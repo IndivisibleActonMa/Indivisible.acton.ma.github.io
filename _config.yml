@@ -1,6 +1,6 @@
 ---
-title: Indivisible City
-timezone: UTC
+title: Indivisible Acton Massachusetts
+timezone: America/New_York
 collections:
   posts:
     title: Posts
@@ -59,13 +59,13 @@ defaults:
     mailchimp-form-embed: 
 subtitle: We are thousands of local citizens resisting the Trump agenda through civic
   action.
-email: 
+email: Indivisible.acton.ma@gmail.com
 baseurl: 
 url: 
 twitter_username: 
-facebook_username: 
+facebook_username: Indivisibleacton
 background-image: "/uploads/31773994174_c2e5706218_k.jpg"
-member-count: '100'
+member-count: 100
 footer-title: Spread the word. Help build a movement.
 markdown: kramdown
 gems:
@@ -76,4 +76,4 @@ paginate_path: "/blog/page:num/"
 exclude:
 - Gemfile
 - Gemfile.lock
-google_analytics: 
+google_analytics: UA-99993052-1
