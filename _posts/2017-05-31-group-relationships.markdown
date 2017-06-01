@@ -1,8 +1,8 @@
 ---
 title: Relationship with Specific Issue Groups
-date: 2017-02-19 22:11:00 -05:00
+date: 2017-05-31 22:11:00 -04:00
 categories:
-- event
+- update
 tags:
 - town hall
 ---
