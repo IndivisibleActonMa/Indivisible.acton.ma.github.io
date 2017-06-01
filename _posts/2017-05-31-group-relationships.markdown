@@ -19,11 +19,3 @@ Member Sue Funk brought in the [Environmental Voter Project](http://www.environm
 Member Joris Wils built a relationship with [Lift Every Vote](https://www.facebook.com/groups/757413041078516/) on the Automatic Voter Registration bill. 
 
 Member Monica Burke reached out to *individual campaigns* (Now: [Archie Parnell SC-05 on 6/20](https://archieparnell.com/) and [Jon Ossoff GA-06 on 6/20](http://electjon.com)) to support the Special Elections.
-
-
-
-
-
-We’re still lining up the details, but we are in talks with some speakers we think you’ll be pretty pleased with.
-
-Please note that an RSVP does not constitute a reservation. We’ll let you know when the event details are finalized and (free) tickets become available.
