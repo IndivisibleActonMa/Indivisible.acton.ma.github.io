@@ -6,7 +6,7 @@ categories:
 tags:
 - update
 is featured: false
-main-image: "/uploads/acton-road-map.gif"
+main-image: "/uploads/acton-road-map-f2215e.gif"
 layout: post
 ---
 
