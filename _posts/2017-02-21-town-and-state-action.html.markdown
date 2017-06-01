@@ -1,11 +1,6 @@
 ---
 title: Town and State Action to lead the Nation
 date: 2017-02-21 19:11:00 -05:00
-categories:
-- action
-tags:
-- call now
-- confirmation hearing
 is featured: true
 ---
 
