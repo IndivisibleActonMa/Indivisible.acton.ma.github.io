@@ -7,7 +7,7 @@ tags:
 - town hall
 ---
 
-# h1. Relationships with Specific Issue Organizations MA Chapters
+### Relationships with Specific Issue Organizations MA Chapters
 We know how to do events. We know how to communicate with each other and to make action happen. We know how to enjoy action.  What we lack is expertise. It is difficult for us to determine which bills to support, when and how to take action. It is difficult for us to build a state-wide strategy.
 
 The answer is for us to build relationships with specific-issue organizations. Those groups know how, what and when to act on environmental, democracy, civil rights and election issues. 
