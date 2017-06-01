@@ -5,7 +5,7 @@ categories:
 - general
 tags:
 - general
-main-image: "/uploads/Indivisible%20Logo%20Long.jpg"
+main-image: "/uploads/Indivisible-6000.gif"
 layout: post
 ---
 
