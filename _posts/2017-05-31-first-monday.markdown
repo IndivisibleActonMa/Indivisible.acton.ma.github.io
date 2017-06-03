@@ -5,6 +5,7 @@ categories:
 - general
 tags:
 - general
+main-image: "/uploads/SACC.jpg"
 ---
 
 In order to use our time the most efficiently, we as a rule have only one meeting the first Monday of the month. At this meeting we will have one or two speakers, we will conduct some general business and we will break out into issue groups. 
