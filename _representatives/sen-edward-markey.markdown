@@ -7,9 +7,8 @@ phone-numbers:
   Boston Office: 617-565-8519
   DC Office: 202-224-2742
   Springfield Office: 413-785-4610
+  Email: https://www.markey.senate.gov/contact
 website: https://www.markey.senate.gov/
-official website: 
-campaign website: 
 ---
 
 ![Markey.gif](/uploads/Markey.gif)
