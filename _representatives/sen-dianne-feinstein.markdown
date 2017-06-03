@@ -1,10 +1,11 @@
 ---
-title: Senator Dianne Feinstein
-date: 2017-02-04 01:58:00 Z
+title: Senator Elizabeth Warren
+date: 2017-02-03 20:58:00 -05:00
 phone-numbers:
-  SF Office: "(213) 894-5000"
-  DC Office: "(202) 224-3553"
-  Sacramento Office: "(916) 448-2787"
+  Boston Office: " (617) 565-3170"
+  Springfield Office: "(413) 788-2690"
+  DC Office: "(202) 224-4543"
+website: https://www.warren.senate.gov
 ---
 
 Rad
