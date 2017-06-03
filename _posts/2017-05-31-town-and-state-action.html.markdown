@@ -8,7 +8,7 @@ main-image: "/uploads/massachusetts-county-map.gif"
 It is become increasingly clear to me and many others that Indivisible Acton as a group can be most effective by operating in our state and our town. As individuals it makes sense for us to call our Members of Congress, but what we can do that is effective as a group is limited. We can and have supported Special Elections all over the country, but that season is ending.
 
 **National Action:**
-There is excellent information on what can do individually to influence what is going on nationally. Notably, Indivisible Somerville puts out a weekly action list that we all can follow: http://bit.ly/2quQ4As. There are many other sites such as http://5calls.org and Daily Action.
+There is excellent information on what can do individually to influence what is going on nationally. Notably, Indivisible Somerville puts out a weekly action list that we all can follow: [Somerville](http://bit.ly/2quQ4As). There are many other sites such as [5calls.org](http://5calls.org) and Daily Action.
 
 There does not seem to be that much we can do nationally as a group. From time to time, we can hold or arrange a car pool to a Town Hall with one our Members of Congress. We can support their reelection campaigns in 2018. But it does not seem to make much sense to demonstrate outside their offices on a regular basis as Indivisible Groups in Red Districts and States do.
 
