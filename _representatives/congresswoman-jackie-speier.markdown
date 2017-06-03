@@ -1,9 +1,11 @@
 ---
-title: "​Congresswoman Jackie Speier"
-date: 2017-02-21 02:09:00 Z
+title: State Senator Jamie Eldridge
+date: 2017-02-20 21:09:00 -05:00
 phone-numbers:
-  San Mateo Office: "(650) 342-0300"
-  DC Office: "(202) 225-3531"
-website: https://speier.house.gov
+  Marlborough  Office: 978-460-8564
+  Boston Office: '617-722-1120 '
+official website: https://malegislature.gov/Legislators/Profile/JBE0
+campaign website: https://www.senatoreldridge.com/
 ---
 
+![JBE0.jpg](/uploads/JBE0.jpg)
