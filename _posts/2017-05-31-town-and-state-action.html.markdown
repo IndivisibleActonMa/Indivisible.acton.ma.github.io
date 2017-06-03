@@ -2,6 +2,7 @@
 title: Town and State Action to lead the Nation
 date: 2017-05-31 19:11:00 -04:00
 is featured: true
+main-image: "/uploads/massachusetts-county-map.gif"
 ---
 
 It is become increasingly clear to me and many others that Indivisible Acton as a group can be most effective by operating in our state and our town. As individuals it makes sense for us to call our Members of Congress, but what we can do that is effective as a group is limited. We can and have supported Special Elections all over the country, but that season is ending.
