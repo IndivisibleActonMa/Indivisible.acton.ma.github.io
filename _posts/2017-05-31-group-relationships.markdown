@@ -5,6 +5,7 @@ categories:
 - update
 tags:
 - town hall
+main-image: "/uploads/350logo.jpg"
 ---
 
 ### Relationships with Specific Issue Organizations MA Chapters
