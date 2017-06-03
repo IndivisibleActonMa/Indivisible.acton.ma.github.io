@@ -60,14 +60,14 @@ defaults:
   values:
     main-image: 
     mailchimp-form-embed: 
-subtitle: We are thousands of local citizens resisting the Trump agenda through civic
-  action.
+subtitle: We are hundreds of Acton area citizens resisting the Trump agenda through
+  civic action.
 email: Indivisible.acton.ma@gmail.com
 baseurl: 
 url: blog.indivisibleacton.org
 twitter_username: 
 facebook_username: groups/indivisibleacton
-background-image: "/uploads/31773994174_c2e5706218_k.jpg"
+background-image: "/uploads/IdesPO.JPG"
 member-count: 413
 footer-title: Spread the word. Help build a movement.
 markdown: kramdown
