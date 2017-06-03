@@ -1,5 +1,5 @@
 ---
-title: Indivisible East Bay meet with Congressman Eric Swalwell.
+title: Mailing of Ides of Trump Cards
 date: 2017-03-15 17:07:00 -04:00
 main-image: "/uploads/Ides.jpg"
 layout: media-item
