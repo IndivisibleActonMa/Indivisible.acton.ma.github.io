@@ -1,6 +1,8 @@
 ---
 title: Environmentalists for GA-06/Ossoff Training Call
 date: 2017-06-05 18:00:00 -04:00
+categories:
+- Action
 main-image: "/uploads/evp.gif"
 event-start-date: 2017-06-05 18:00:00 -04:00
 event-end-date: 2017-06-05 18:30:00 -04:00
