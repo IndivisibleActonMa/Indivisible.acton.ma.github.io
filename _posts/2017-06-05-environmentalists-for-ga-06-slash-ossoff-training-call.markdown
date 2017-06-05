@@ -16,7 +16,7 @@ RSVP-link: peter@environmentalvoter.org
 
 The  [Environmental Voter Project](http://www.environmentalvoter.org/) (EVP) is **THE way to do right for the environment, voter participation and the GA-06 election. The EVP targets *registered non-voting environmentalists* and encourages them to become active voters, which really works**. Those voters then *stay* as voters.
 
-EVP uses a predictive dialer to call our targeted voters in the Georgia 6th District, something you can do from anywhere that has a wireless connection. We have a training conference call set June 5 and, if you're interested, please RSVP to peter@environmentalvoter.org.
+EVP uses a predictive dialer to call targeted voters in the Georgia 6th District. You can take part from anywhere that has an Internet connection. We have a training conference call set June 5 and, if you're interested, please RSVP to peter@environmentalvoter.org.
 
 When: Monday, June 5. 6:00 PM
 How Long? 30 Minutes
