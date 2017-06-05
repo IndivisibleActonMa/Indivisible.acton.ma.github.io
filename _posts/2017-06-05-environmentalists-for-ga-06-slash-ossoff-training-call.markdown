@@ -3,6 +3,8 @@ title: Environmentalists for GA-06/Ossoff Training Call
 date: 2017-06-05 18:00:00 -04:00
 categories:
 - Action
+tags:
+- Action
 main-image: "/uploads/evp.gif"
 event-start-date: 2017-06-05 18:00:00 -04:00
 event-end-date: 2017-06-05 18:30:00 -04:00
@@ -22,4 +24,4 @@ Call-In Number: (641) 715-0632
 Pin: 705854
 
 
-NOTE: Because of our particular non-profit status, we can't support particular candidates...but we are certain that everybody we're calling is a super-environmentalist who is very unlikely to vote in a special congressional election (which is why we're mobilizing them).
+NOTE: Because of EVP's particular non-profit status, it cannot support particular candidates...but we are certain that everybody we're calling is a super-environmentalist who is very unlikely to vote in a special congressional election (which is why we're mobilizing them).
