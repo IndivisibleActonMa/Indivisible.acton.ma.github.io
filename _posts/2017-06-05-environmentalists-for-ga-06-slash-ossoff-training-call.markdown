@@ -9,7 +9,7 @@ main-image: "/uploads/evp.gif"
 event-start-date: 2017-06-05 18:00:00 -04:00
 event-end-date: 2017-06-05 18:30:00 -04:00
 Location: Your phone!
-RSVP-link: peter@environmentalvoter.org
+RSVP-link: mailto:peter@environmentalvoter.org
 ---
 
 ## Phone Banking for the Georgia Special Election!
