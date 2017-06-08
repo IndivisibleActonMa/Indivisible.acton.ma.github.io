@@ -13,4 +13,4 @@ To organize an event not much is needed:
 * Post about it on Facebook as often as you like to promote it. The more the better.
 * Send an email to our[google group](mailto:indivisibleacton@groups.google.com)
 
-If you need to update the entry in the calendar email [Joris](mailto:Send email to mailto:jjmwguard-indivisible@yahoo.com )
+If you need to update the entry in the calendar email [Joris](mailto:jjmwguard-indivisible@yahoo.com )
