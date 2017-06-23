@@ -6,7 +6,7 @@ main-image: "/uploads/townhallwithgrey.jpg"
 event-start-date: 2017-07-10 19:00:00 -04:00
 event-end-date: 2017-07-10 19:15:00 -04:00
 Location: Acton Town Hall, 472 Main Street, Acton, Massachusetts 01720
-RSVP-link: https://actionnetwork.org/events/acton-to-endorse-paris-climate-accord/manage
+RSVP-link: https://actionnetwork.org/events/acton-to-endorse-paris-climate-accord
 ---
 
 Acton groups Indivisible Acton, the Activists Alliance and Mother Out Front have joined forces to appeal to the Board of Selectmen that Acton openly declares its support for the Paris Climate Accord. The spirit of the movement is described in http://wearestillin.com/ and http://climate-mayors.org/ All the cities in the country as well as the fifteen cities in MA that have already joined are listed in http://www.climate-mayors.org/blog/2017/6/5/211-us-climate-mayors-commit-to-adopt-honor-and-uphold-paris-climate-agreement-goals. It's time the towns joined them as people all around the world are being inspired by the domestic and global resistance to Trump on Climate Change. Ms Goulard, the French defense minister, said on June 3, "cooperation will find other routes, past the White House, to states and cities... There are forces in the United States that we know we can rely upon...and these forces will ultimately prevail.'
