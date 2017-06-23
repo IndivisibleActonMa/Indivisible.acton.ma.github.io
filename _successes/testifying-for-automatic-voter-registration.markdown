@@ -3,7 +3,7 @@ title: Testifying at State House for Automatic Voter Registration
 date: 2017-06-08 23:01:00 -04:00
 categories:
 - state
-is featured: true
+is featured: false
 main-image: "/uploads/avr_testimony1.jpg"
 ---
 
