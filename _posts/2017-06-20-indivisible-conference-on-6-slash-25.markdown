@@ -1,7 +1,7 @@
 ---
 title: Indivisible Conference on 6/25
 date: 2017-06-20 22:28:00 -04:00
-is featured: true
+is featured: false
 main-image: "/uploads/minuteman.jpg"
 event-start-date: 2017-06-25 12:30:00 -04:00
 event-end-date: 2017-06-25 17:00:00 -04:00
