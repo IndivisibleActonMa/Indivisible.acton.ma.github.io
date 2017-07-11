@@ -1,7 +1,7 @@
 ---
 title: Appearance at Carbon Pricing Hearing
 date: 2017-06-20 21:35:00 -04:00
-is featured: true
+is featured: false
 main-image: "/uploads/Carbon%20Pricing%20Hearing.jpg"
 ---
 
