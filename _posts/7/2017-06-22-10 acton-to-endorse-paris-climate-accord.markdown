@@ -1,7 +1,7 @@
 ---
 title: Petition Acton to Endorse Paris Climate Accord
 date: 2017-06-22 21:23:00 -04:00
-is featured: true
+is featured: false
 main-image: "/uploads/townhallwithgrey.jpg"
 event-start-date: 2017-07-10 19:00:00 -04:00
 event-end-date: 2017-07-10 19:15:00 -04:00
