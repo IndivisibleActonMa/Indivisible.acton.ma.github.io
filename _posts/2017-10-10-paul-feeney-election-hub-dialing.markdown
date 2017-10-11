@@ -3,8 +3,8 @@ title: Paul Feeney Election Hub Dialing
 date: 2017-10-10 22:52:00 -04:00
 is featured: true
 main-image: "/uploads/FeeneyHealey.jpg"
-event-start-date: 2017-10-10 00:00:00 -04:00
-event-end-date: 2017-10-12 21:00:00 -04:00
+event-start-date: 2017-10-10 17:00:00 -04:00
+event-end-date: 2017-10-12 20:00:00 -04:00
 Location: Your Home
 ---
 
