@@ -3,6 +3,8 @@ title: Support Virginia 2017 Elections
 date: 2017-10-10 21:49:00 -04:00
 is featured: true
 main-image: "/uploads/VirginiaDelegates.png"
+event-start-date: 2017-10-10 00:00:00 -04:00
+event-end-date: 2017-11-07 20:00:00 -05:00
 Location: Your home or at a Starbucks/Bagels Plus meetup
 ---
 
