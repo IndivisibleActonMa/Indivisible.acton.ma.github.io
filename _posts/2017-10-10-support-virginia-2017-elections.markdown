@@ -14,11 +14,16 @@ Information on how to take part below:
 
 The SDP is first launching a general get out the vote campaign that will be for the Governor and a general Democratic down ticket drive. SDP will then begin rolling out texting for our sister races. They are working with the VA Democratic Party called Coordinated (and they are coordinating with Red2Blue who you may have heard of). Below links for training and info. They are using an app called Ground Game for texting, links are below
 
+[Sign up here](http://my.democrats.org/page/s/text-virginia) 
 [GroundGame demo video ](https://drive.google.com/file/d/0B9wXFJ7D35Njc3RVYlQyRDBpVGM/view)
 
 [VA17 Texting Handbook](https://docs.google.com/document/d/1G7VMcXQd9Qn06kUI6f4hT80xxOKG2iI21yxUUPVhoiI/edit?usp=sharing) 
 
 [How to GroundGame](https://docs.google.com/presentation/d/1T9YPyWi8m7DAYbnwwgFELMKcFJO6sV0VUMoOaRmt4K8/edit?usp=sharing) 
+
+[Support email](mailto:groundgame@vavictory17.org) 
+[slack channel (for chatting!)](TOTV.slack.com).
+
 
 To do phone banking, please register with the campaigns of [John Bell](http://www.johnbellfordelegate.com/) and/or [Jennifer Foy](https://www.jennifercarrollfoy.org/).
 
