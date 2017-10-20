@@ -24,7 +24,7 @@ The SDP is first launching a general get out the vote campaign that will be for 
 
 [Support email: groundgame@vavictory17.org](mailto:groundgame@vavictory17.org) 
 
-[slack channel (for chatting!) TOTV.slack.com](TOTV.slack.com).
+[slack channel (for chatting!) TOTV.slack.com](https://TOTV.slack.com).
 
 
 To do phone banking, please register with the campaigns of [John Bell](http://www.johnbellfordelegate.com/) and/or [Jennifer Foy](https://www.jennifercarrollfoy.org/).
