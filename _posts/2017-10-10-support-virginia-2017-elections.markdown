@@ -8,7 +8,7 @@ event-end-date: 2017-11-07 20:00:00 -05:00
 Location: Your home or at a Starbucks/Bagels Plus meetup
 ---
 
-Indivisible Acton is supporting Democrats in the November Virginia Elections through texting, calling and possibly postcards. These are the elections for Governor, Attorney General and the House of Delegates. The leadership is by the [Sister District Project](https://www.facebook.com/sisterdistrict/) (SDP). Indivisible Acton has been assigned two Delegates to support: John Bell and Jennifer Foy.
+Indivisible Acton is supporting Democrats in the November Virginia Elections through texting, calling and possibly postcards. These are the elections for Governor, Attorney General and the House of Delegates. The leadership is by the [Sister District Project](https://www.facebook.com/sisterdistrict/) (SDP). Indivisible Acton has been assigned two Delegates to support: John Bell (87th district) and Jennifer Foy (2d district)
 
 Information on how to take part below:
 
