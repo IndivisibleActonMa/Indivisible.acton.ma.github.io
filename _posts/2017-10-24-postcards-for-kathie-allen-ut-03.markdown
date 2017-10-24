@@ -19,9 +19,7 @@ Postcards@TonyTheDemocrat.org
 All postcards should be in the mail no later than **October 31**. You’ll receive a full set of guidelines with your rack of addresses, but know that all postcards should include the following information:
 
 *Elect Democrat Kathie Allen to Congress for Utah’s 3rd District.*
-
 *Vote Tuesday, November 7th.*
-
 *Dr. Allen is trained to consider facts, diagnose problems, and find solutions.*
 
 
