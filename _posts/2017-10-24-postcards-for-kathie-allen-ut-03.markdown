@@ -10,7 +10,7 @@ Join the get out the vote (GOTV) postcard campaign for Democrat Dr. Kathie Allen
 
 The special election for Chaffetz’s house seat, in Utah’s 3rd District, will be held Tuesday, November 7. If you want to receive a handful of addresses, text HELLO to Abby the Address Bot:
 
-484.ASK.ABBY aka 484.275.2229
+484\.ASK.ABBY aka 484.275.2229
 
 If you want a lot more than five addresses at a time, or texting isn’t convenient for you, email:
 
@@ -18,10 +18,8 @@ Postcards@TonyTheDemocrat.org
 
 All postcards should be in the mail no later than **October 31**. You’ll receive a full set of guidelines with your rack of addresses, but know that all postcards should include the following information:
 
-*Elect Democrat Kathie Allen to Congress for Utah’s 3rd District.*
-*Vote Tuesday, November 7th.*
+*Elect Democrat Kathie Allen to Congress for Utah’s 3rd District.* 
+*Vote Tuesday, November 7th.* 
 *Dr. Allen is trained to consider facts, diagnose problems, and find solutions.*
 
-
 Kathie Allen's website is [here](https://www.drkathieforcongress.com/)
-
