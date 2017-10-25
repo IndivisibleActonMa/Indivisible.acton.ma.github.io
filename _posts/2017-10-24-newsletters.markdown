@@ -1,6 +1,7 @@
 ---
 title: Newsletters
 date: 2017-10-24 22:43:00 -04:00
+is featured: true
 ---
 
 * [Newsletter, October 24, 2017](http://mailchi.mp/33cb109bf504/newsletter-0003-october-22-2017)
