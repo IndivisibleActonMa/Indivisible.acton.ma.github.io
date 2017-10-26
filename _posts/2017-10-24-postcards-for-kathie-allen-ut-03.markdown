@@ -13,8 +13,8 @@ All postcards should be in the mail no later than **October 31**.
 
 To take part **email joris@indivisibleacton.org** with how many cards you would like to write. He will assign you addresses. There is also a pool of Post Office stamped cards available to pick up. Or you can use your own cards. 
 
-The **instructions **to write the postcards are [here](https://docs.google.com/document/d/1za72EW4y0M-xQdQVsrnHek1KlLHa2W_wVAJ0FOVbk5Y/edit?usp=sharing)
-An **example **post cards is [here](https://drive.google.com/file/d/0BwLIGG6Uwnr_R2pkZ2RzTjNJOHc/view?usp=sharing).
+The **instructions** to write the postcards are [here](https://docs.google.com/document/d/1za72EW4y0M-xQdQVsrnHek1KlLHa2W_wVAJ0FOVbk5Y/edit?usp=sharing)
+An **example** post cards is [here](https://drive.google.com/file/d/0BwLIGG6Uwnr_R2pkZ2RzTjNJOHc/view?usp=sharing).
 
 You’ll receive a full set of guidelines with your rack of addresses, but know that all postcards should include the following information:
 
