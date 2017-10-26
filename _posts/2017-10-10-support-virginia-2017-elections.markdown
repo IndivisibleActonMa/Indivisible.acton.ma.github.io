@@ -5,7 +5,7 @@ is featured: true
 main-image: "/uploads/VirginiaDelegates.png"
 event-start-date: 2017-10-28 10:00:00 -04:00
 event-end-date: 2017-10-28 12:00:00 -04:00
-Location: Your home or at a Starbucks/Bagels Plus meetup
+Location: Bagels Plus, 93 Great Road, Acton. -upstairs-
 ---
 
 Indivisible Acton is supporting Democrats in the **November Virginia Elections** through texting all delegates and calling for two assigned delegates. 
