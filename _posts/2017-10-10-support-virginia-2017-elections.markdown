@@ -8,6 +8,8 @@ event-end-date: 2017-10-28 12:00:00 -04:00
 Location: Bagels Plus, 93 Great Road, Acton. -upstairs-
 ---
 
+Update: we may change to what Indivisible has set up: [https://www.indivisible.org/gotv-virginia](https://www.indivisible.org/gotv-virginia)
+
 Indivisible Acton is supporting Democrats in the **November Virginia Elections** through texting all delegates and calling for two assigned delegates. 
 
 These are the elections for Governor, Attorney General and the House of Delegates.  The Sister District Project (SDP) has assigned Indivisible Acton two Delegates to support: [John Bell](http://www.johnbellfordelegate.com/) (87th district) and [Jennifer Foy](https://www.jennifercarrollfoy.org/) (2d district)
@@ -30,3 +32,4 @@ The Sister District Project is rolling out texting for the delegate races. They 
 
 To do phone banking, please register with the campaigns of [John Bell](http://www.johnbellfordelegate.com/) and/or [Jennifer Foy](https://www.jennifercarrollfoy.org/).
 
+PS: we may change to what Indivisible has set up: [https://www.indivisible.org/gotv-virginia](https://www.indivisible.org/gotv-virginia)
