@@ -1,6 +1,7 @@
 ---
 title: Postcards for Doug Jones, Senator AL
 date: 2017-11-19 23:24:00 -05:00
+is featured: true
 main-image: "/uploads/postcards_to_voters.jpg"
 ---
 
