@@ -12,9 +12,9 @@ main-image: "/uploads/Alabama%20Voter%20Reg.jpg"
 
 OpenProgress has set up a campaign using Relay Texting. We used Relay texting for James Thompson and Virginia. This one is a little more complicated, because we have to walk voters through the voter eligibility rules -believe it or not-. 
 
-That's because Alabama makes it hard to vote.
+That's because Alabama makes it hard to vote. [This article tells more].(http://www.al.com/news/index.ssf/2017/08/are_you_registered_to_vote_ala.html)
 
-Follow the instructions [here](http://bit.ly/Wiki_AL_VoterReg)
+Follow the instructions to sign up [here](https://openpr.gg/a/d8893ebc)
 
 For questions email joris@indivisibleacton.org
 
