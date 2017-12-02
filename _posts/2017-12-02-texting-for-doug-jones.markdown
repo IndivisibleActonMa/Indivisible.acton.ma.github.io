@@ -26,3 +26,5 @@ Indivisibles like you have swept amazing, new, progressive candidates into offic
 We can be the difference. [Sign up for a volunteer shift now.](http://act.indivisible.org/go/29609?t=5&akid=7742%2E272935%2EgcLnfU)
 
 Liberty and Justice for ALL has been Doug's Life's work. [See his website.](www.DougJonesForSenate.com)
+
+Contact the site or joris@indivisbibeacton.org for questions.
