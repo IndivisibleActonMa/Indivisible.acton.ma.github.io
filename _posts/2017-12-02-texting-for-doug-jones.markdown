@@ -27,4 +27,4 @@ We can be the difference. [Sign up for a volunteer shift now.](http://act.indivi
 
 Liberty and Justice for ALL has been Doug's Life's work. [See his website.](www.DougJonesForSenate.com)
 
-Contact the site or joris@indivisbibeacton.org for questions.
+Contact the site or joris@indivisbleacton.org for questions.
