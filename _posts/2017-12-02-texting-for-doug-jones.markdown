@@ -24,3 +24,5 @@ Who: Indivisible groups across the country and volunteers like you!
 Indivisibles like you have swept amazing, new, progressive candidates into office from Virginia to Mississippi to Oklahoma to Washington state.  Join us for a text-banking shift and be a part of winning this election for Doug Jones -- and for us.
 
 We can be the difference. [Sign up for a volunteer shift now.](http://act.indivisible.org/go/29609?t=5&akid=7742%2E272935%2EgcLnfU)
+
+Liberty and Justice for ALL has been Doug's Life's work. [See his website.](www.DougJonesForSenate.com)
