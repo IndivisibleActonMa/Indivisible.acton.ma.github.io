@@ -3,9 +3,9 @@ title: Texting for Doug Jones
 date: 2017-12-02 15:08:00 -05:00
 is featured: true
 main-image: "/uploads/DougJonesForSenate.jpg"
-Location: Home
-RSVP: "(http://act.indivisible.org/go/29609?t=5&akid=7742%2E272935%2EgcLnfU)"
 Dates: 12/2, 12/3, 12/9, 12/10, 12/11, 12/12
+RSVP: "(http://act.indivisible.org/go/29609?t=5&akid=7742%2E272935%2EgcLnfU)"
+Location: Home
 ---
 
 Together in 2017, we’ve resisted the worst part of the Trump agenda. Now, Indivisibles across Alabama are using the power of our movement -- combined with the best new digital tools -- to reach the voters who can elect Doug Jones, a man of principle and action.
