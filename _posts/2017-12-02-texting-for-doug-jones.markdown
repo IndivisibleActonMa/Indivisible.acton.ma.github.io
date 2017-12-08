@@ -18,14 +18,15 @@ Here are the details:
 
 What: Indivisible text-banking from Massachusetts
 Where: Anywhere! You just need two spare hours, a comfy chair, and a computer or iPad.
-When: **12/2, 12/3, 12/9, 12/10, 12/11, and 12/12**, from 9am to 9pm CT every day
+When: **12/9, 12/10, 12/11, and 12/12**, from 9am to 9pm CT every day
 Who: Indivisible groups across the country and volunteers like you!
 
 Indivisibles like you have swept amazing, new, progressive candidates into office from Virginia to Mississippi to Oklahoma to Washington state.  Join us for a text-banking shift and be a part of winning this election for Doug Jones -- and for us.
 
 Liberty and Justice for ALL has been Doug's Life's work. [See his website.](www.DougJonesForSenate.com)
 
-# Straight GOTV texting: i.e. send a link to the [polling place and id requirements](https://myinfo.alabamavotes.gov/VoterView/RegistrantSearch.do)
+## traight GOTV texting
+That is sending a reminder and a link to the [polling place and id requirements](https://myinfo.alabamavotes.gov/VoterView/RegistrantSearch.do)
 **Indivisible**: We can be the difference. [Sign up for a volunteer shift now.] (http://act.indivisible.org/go/29609?t=5&akid=7742%2E272935%2EgcLnfU). Uses Relay
 
 **Open Progress**: Red2Blue will be texting voters in Alabama on
@@ -35,7 +36,7 @@ to do the same.
 To sign up go to 
 https://docs.google.com/forms/ d/e/1FAIpQLSdbwTapkIW9Pv6YctGN 3lpNBBbez62pstSsnfFUjNMtJR_ 3yA/viewform. Uses Relay
 
-# Experimental Texting:
+## Experimental Texting:
 **Moveon.org** will launch an innovative Get Out The Vote texting
 program using targeted persuasion videos to move likely voters to vote
 for Doug Jones.  It will involve texting video links to 40,000
