@@ -27,6 +27,7 @@ Liberty and Justice for ALL has been Doug's Life's work. [See his website.](www.
 
 ### Straight GOTV texting
 That is sending a reminder and a link to the [polling place and id requirements](https://myinfo.alabamavotes.gov/VoterView/RegistrantSearch.do)
+
 **Indivisible**: We can be the difference. [Sign up for a volunteer shift now.] (http://act.indivisible.org/go/29609?t=5&akid=7742%2E272935%2EgcLnfU). Uses Relay
 
 **Open Progress**: Red2Blue will be texting voters in Alabama on
