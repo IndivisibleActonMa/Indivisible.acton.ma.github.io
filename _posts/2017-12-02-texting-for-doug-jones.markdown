@@ -28,13 +28,15 @@ Liberty and Justice for ALL has been Doug's Life's work. [See his website.](www.
 ### Straight GOTV texting
 That is sending a reminder and a link to the [polling place and id requirements](https://myinfo.alabamavotes.gov/VoterView/RegistrantSearch.do)
 
-**Indivisible**: We can be the difference. 
+**Indivisible**: We can be the difference.
+ 
 [Sign up for a volunteer shift now](http://act.indivisible.org/go/29609?t=5&akid=7742%2E272935%2EgcLnfU). Uses Relay
 
 **Open Progress**: Red2Blue will be texting voters in Alabama on
 behalf of their local, trusted elected officials to let voters know
 that said officials are voting for Doug Jones and to encourage voters
 to do the same. 
+
 [Sign up for a volunteer shift now](https://docs.google.com/forms/ d/e/1FAIpQLSdbwTapkIW9Pv6YctGN 3lpNBBbez62pstSsnfFUjNMtJR_3yA/viewform). Uses Relay
 
 ### Video Clip Texting:
@@ -42,8 +44,9 @@ to do the same.
 program using targeted (Reich?) persuasion videos to move likely voters to vote
 for Doug Jones.  It will involve texting video links to 40,000
 likely Democratic voters from the national voter file in Alabama.
+
 [Sign up for Saturday, 12/09 or Sunday, 12/10 GOTV persuasion
-texting here](http://mvn.to/AlabamaGOTV): 
+texting now](http://mvn.to/AlabamaGOTV): 
 Uses Spoke.
 
 Contact the sites above or linda@indivisibleacton.org for questions.
