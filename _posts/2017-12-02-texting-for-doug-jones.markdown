@@ -37,9 +37,9 @@ that said officials are voting for Doug Jones and to encourage voters
 to do the same. 
 [Sign up for a volunteer shift now](https://docs.google.com/forms/ d/e/1FAIpQLSdbwTapkIW9Pv6YctGN 3lpNBBbez62pstSsnfFUjNMtJR_ 3yA/viewform). Uses Relay
 
-### Experimental Texting:
+### Video Clip Texting:
 **Moveon.org** will launch an innovative Get Out The Vote texting
-program using targeted persuasion videos to move likely voters to vote
+program using targeted (Reich?) persuasion videos to move likely voters to vote
 for Doug Jones.  It will involve texting video links to 40,000
 likely Democratic voters from the national voter file in Alabama.
 Sign up for Saturday, 12/09 or Sunday, 12/10 GOTV persuasion
