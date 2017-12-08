@@ -34,8 +34,7 @@ That is sending a reminder and a link to the [polling place and id requirements]
 behalf of their local, trusted elected officials to let voters know
 that said officials are voting for Doug Jones and to encourage voters
 to do the same. 
-To sign up go to 
-https://docs.google.com/forms/ d/e/1FAIpQLSdbwTapkIW9Pv6YctGN 3lpNBBbez62pstSsnfFUjNMtJR_ 3yA/viewform. Uses Relay
+To sign up go to [here ](https://docs.google.com/forms/ d/e/1FAIpQLSdbwTapkIW9Pv6YctGN 3lpNBBbez62pstSsnfFUjNMtJR_ 3yA/viewform). Uses Relay
 
 ### Experimental Texting:
 **Moveon.org** will launch an innovative Get Out The Vote texting
