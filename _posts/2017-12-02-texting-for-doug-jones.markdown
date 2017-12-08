@@ -26,7 +26,7 @@ Indivisibles like you have swept amazing, new, progressive candidates into offic
 Liberty and Justice for ALL has been Doug's Life's work. [See his website.](www.DougJonesForSenate.com)
 
 ### Straight GOTV texting
-That is sending a reminder and a link to the [polling place and id requirements](https://myinfo.alabamavotes.gov/VoterView/RegistrantSearch.do)
+That is sending a reminder and a link to the [Alabama polling place and id requirements](https://myinfo.alabamavotes.gov/VoterView/RegistrantSearch.do)
 
 **Indivisible**: We can be the difference.
  
