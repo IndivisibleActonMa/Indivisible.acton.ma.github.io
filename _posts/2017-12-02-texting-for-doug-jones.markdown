@@ -42,8 +42,8 @@ to do the same.
 program using targeted (Reich?) persuasion videos to move likely voters to vote
 for Doug Jones.  It will involve texting video links to 40,000
 likely Democratic voters from the national voter file in Alabama.
-Sign up for Saturday, 12/09 or Sunday, 12/10 GOTV persuasion
-texting here: http://mvn.to/AlabamaGOTV
+[Sign up for Saturday, 12/09 or Sunday, 12/10 GOTV persuasion
+texting here](http://mvn.to/AlabamaGOTV): 
 Uses Spoke.
 
 Contact the sites above or linda@indivisibleacton.org for questions.
