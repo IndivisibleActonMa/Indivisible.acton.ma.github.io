@@ -25,7 +25,7 @@ Indivisibles like you have swept amazing, new, progressive candidates into offic
 
 Liberty and Justice for ALL has been Doug's Life's work. [See his website.](www.DougJonesForSenate.com)
 
-## traight GOTV texting
+### Straight GOTV texting
 That is sending a reminder and a link to the [polling place and id requirements](https://myinfo.alabamavotes.gov/VoterView/RegistrantSearch.do)
 **Indivisible**: We can be the difference. [Sign up for a volunteer shift now.] (http://act.indivisible.org/go/29609?t=5&akid=7742%2E272935%2EgcLnfU). Uses Relay
 
@@ -36,7 +36,7 @@ to do the same.
 To sign up go to 
 https://docs.google.com/forms/ d/e/1FAIpQLSdbwTapkIW9Pv6YctGN 3lpNBBbez62pstSsnfFUjNMtJR_ 3yA/viewform. Uses Relay
 
-## Experimental Texting:
+### Experimental Texting:
 **Moveon.org** will launch an innovative Get Out The Vote texting
 program using targeted persuasion videos to move likely voters to vote
 for Doug Jones.  It will involve texting video links to 40,000
