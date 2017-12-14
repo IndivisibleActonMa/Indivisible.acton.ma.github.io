@@ -6,15 +6,15 @@ is featured: true
 
 We can fight the #TrumpTaxScam with Texting and Calling.
 
-Sign up [here](https://act.moveon.org/survey/mo-text-team-schedule/)
-That will get you a Slack Account.
+Once again, we’re pulling out all the stops to defeat the tax scam… and bringing back our peer-to-peer calling tool (AKA hubdialer). [Can you sign up to make calls to progressives in Maine and Arizona? ](https://www.trumptaxscam.org/calls-to-kill-the-tax-scam/)
 
-**MoveOn Calling**
-They're calling voters in the districts of Republicans Rep. Tom MacArthur of NJ, Rep. Brian Mast of FL and Rep. Ileana Ros-Lehtinen of FL. These members of Congress voted yes on the most recent slew of bad bills including the GOP tax plan and ACA repeal. It's time they hear from their constituents loud and clear - this is NOT ok.
+Here’s how it works:
 
-The HubDialer is up and running today and this week. Sign in using the information below and recommit defending the ACA.
+Click [here](https://www.trumptaxscam.org/calls-to-kill-the-tax-scam/) to sign up to make phone calls from our peer-to-peer dialing tool. You’ll get an email confirmation with a login, password, and URL to sign into our system. Once signed in, you can start making calls immediately -- and we’ll give you a script to make it as easy as possible!
+Next, you’ll call a voter in Arizona or Maine. These folks are your friends -- they attended the Women’s March, they’re fighting for a #DreamActNow, and fight for progressive causes.
+You explain how they have power now. You’ll remind them why the continued fight against the tax scam is so important -- and why they have particular power in this moment.
+You ask them to use their power. You’ll ask them to call their senator in opposition to the bill, and to share their own reasons for opposing it.
+The tool connects them to their Senator’s office. The call tool will allow you to automatically patch them through to the Senators’ district offices.
+In addition to Jones’ victory last night, we have a lot of leverage in this fight. Republican Senators Susan Collins (ME), Jeff Flake (AZ), and Marco Rubio (FL) voted for the tax scam, but both have also said the bill wasn’t perfect. There are also a number of differences between the two bills and the Republican caucus isn’t aligned yet. They’re running out of time to get everything done and we can stop them.
 
-**MoveOn has set up texting and calling**. You can text constituents in states with vulnerable Members of Congress above and ask them to call. The text you send will provide them a phone number that will coach the constituent and direct their call making it super easy. The texters report high response rates, because people care. 
-Sign up [here](https://act.moveon.org/survey/mo-text-team-schedule/).
-
-In both cases you do not expose your phone number. The number the callee sees is provided by the service.
+Amp up the pressure on these targets: [Sign up now to start making calls to progressives in red states](https://www.trumptaxscam.org/calls-to-kill-the-tax-scam/). You can make calls as much as you want every day from 9am to 9pm local time until the tax scam fight is over
