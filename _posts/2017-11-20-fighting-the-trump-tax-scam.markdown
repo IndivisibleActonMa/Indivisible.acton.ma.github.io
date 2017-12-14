@@ -2,6 +2,7 @@
 title: Fighting the Trump Tax Scam
 date: 2017-11-20 13:14:00 -05:00
 is featured: true
+main-image: "/uploads/download.png"
 RSVP-link: https://www.trumptaxscam.org/calls-to-kill-the-tax-scam/
 ---
 
