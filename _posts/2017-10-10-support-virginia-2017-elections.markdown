@@ -1,6 +1,7 @@
 ---
 title: Support Virginia November 2017 Elections
 date: 2017-10-10 21:49:00 -04:00
+published: false
 is featured: false
 main-image: "/uploads/VirginiaDelegates.png"
 event-start-date: 2017-10-28 10:00:00 -04:00
