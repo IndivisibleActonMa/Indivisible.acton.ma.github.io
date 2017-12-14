@@ -1,5 +1,5 @@
 ---
-title: Postcards for Doug Jones, US Senator AL
+title: 'Past Event: Postcards for Doug Jones, US Senator AL'
 date: 2017-11-19 23:24:00 -05:00
 is featured: false
 main-image: "/uploads/postcards_to_voters.jpg"
