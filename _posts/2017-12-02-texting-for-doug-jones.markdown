@@ -1,6 +1,7 @@
 ---
 title: 'Past Event: Texting for Doug Jones'
 date: 2017-12-02 15:08:00 -05:00
+published: false
 is featured: false
 main-image: "/uploads/DougJonesForSenate.jpg"
 Location: Home
