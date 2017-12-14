@@ -1,7 +1,7 @@
 ---
 title: Sue Chalifoux Zephir for State Senate
 date: 2017-11-18 20:36:00 -05:00
-is featured: true
+is featured: false
 main-image: "/uploads/img-8665.jpg"
 ---
 
