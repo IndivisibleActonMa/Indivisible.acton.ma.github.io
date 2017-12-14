@@ -28,9 +28,12 @@ Amp up the pressure on these targets: [Sign up now to start making calls to prog
 You can make calls as much as you want every day from 9am to 9pm local time until the tax scam fight is over
 
 **Texting**
+
 Text with MoveOn. New assignments each day!
+
 [Click here to first read the resources page](https://docs.google.com/document/d/1HvJGYn7v-8u064zN5ex_XvqW3ubG-CkoAbzhmN0Qmbs/edit?usp=sharing
 )
+
 [Click here for texting schedule signup](https://act.moveon.org/survey/mo-text-team-schedule/)
 
 [Click here for Spoke login](http://mvn.to/SpokeLogin) 
