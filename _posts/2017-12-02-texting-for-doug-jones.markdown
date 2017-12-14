@@ -1,5 +1,5 @@
 ---
-title: Texting for Doug Jones
+title: 'Past Event: Texting for Doug Jones'
 date: 2017-12-02 15:08:00 -05:00
 is featured: false
 main-image: "/uploads/DougJonesForSenate.jpg"
