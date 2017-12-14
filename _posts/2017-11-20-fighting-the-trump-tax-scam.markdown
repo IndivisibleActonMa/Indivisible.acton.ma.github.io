@@ -7,6 +7,7 @@ RSVP-link: https://www.trumptaxscam.org/calls-to-kill-the-tax-scam/
 
 We can fight the #TrumpTaxScam with Texting and Calling.
 
+**Calling**
 Once again, we’re pulling out all the stops to defeat the tax scam… and bringing back our peer-to-peer calling tool (AKA hubdialer). [Can you sign up to make calls to progressives in Maine and Arizona? ](https://www.trumptaxscam.org/calls-to-kill-the-tax-scam/)
 
 Here’s how it works:
@@ -19,3 +20,15 @@ The tool connects them to their Senator’s office. The call tool will allow you
 In addition to Jones’ victory last night, we have a lot of leverage in this fight. Republican Senators Susan Collins (ME), Jeff Flake (AZ), and Marco Rubio (FL) voted for the tax scam, but both have also said the bill wasn’t perfect. There are also a number of differences between the two bills and the Republican caucus isn’t aligned yet. They’re running out of time to get everything done and we can stop them.
 
 Amp up the pressure on these targets: [Sign up now to start making calls to progressives in red states](https://www.trumptaxscam.org/calls-to-kill-the-tax-scam/). You can make calls as much as you want every day from 9am to 9pm local time until the tax scam fight is over
+
+**Texting**
+Text with MoveOn. New assignments each day!
+[First read the resources page:](https://docs.google.com/document/d/1HvJGYn7v-8u064zN5ex_XvqW3ubG-CkoAbzhmN0Qmbs/edit?usp=sharing
+)
+[Texting schedule signup:](https://act.moveon.org/survey/mo-text-team-schedule/)
+
+[Spoke login:](http://mvn.to/SpokeLogin) 
+
+[Text Team training and references:](https://front.moveon.org/join-moveon-text-team/)
+
+Questions: email joris@indivisibleacton.org
