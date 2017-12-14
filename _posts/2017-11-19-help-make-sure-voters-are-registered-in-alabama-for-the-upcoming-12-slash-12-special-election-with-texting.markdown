@@ -2,6 +2,7 @@
 title: Help make sure voters are registered in Alabama for the upcoming 12/12 Special
   Election with Texting.
 date: 2017-11-19 22:34:00 -05:00
+published: false
 is featured: false
 main-image: "/uploads/Alabama%20Voter%20Reg.jpg"
 ---
