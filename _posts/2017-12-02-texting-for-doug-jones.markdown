@@ -1,7 +1,7 @@
 ---
 title: Texting for Doug Jones
 date: 2017-12-02 15:08:00 -05:00
-is featured: true
+is featured: false
 main-image: "/uploads/DougJonesForSenate.jpg"
 Location: Home
 Dates: 12/2, 12/3, 12/9, 12/10, 12/11, 12/12
