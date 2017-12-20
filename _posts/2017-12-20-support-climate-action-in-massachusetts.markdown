@@ -9,6 +9,6 @@ On 12/11/2017 we had two visitors from the Elder Climate Action, who presented a
 
 [Overview of Legislation Video](https://youtu.be/nfUBTLHIbv4)
 
-[GWSIA Video](https://www.youtube.com/edit?o=U&video_id=m8-uJ6i6j5M)
+[GWSIA Video](https://youtu.be/m8-uJ6i6j5M)
 
 [Slides](https://drive.google.com/open?id=1mRV0T3vnH0uOJvrZQukAMOMzHo-74wux)
