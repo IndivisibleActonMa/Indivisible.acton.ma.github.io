@@ -1,7 +1,7 @@
 ---
 title: Taking Part in Indivisible Acton
 date: 2017-06-07 22:40:00 -04:00
-is featured: true
+is featured: false
 main-image: "/uploads/wego.jpg"
 ---
 
