@@ -5,5 +5,10 @@ main-image:
 layout: actions
 ---
 
-6/5 6:00 PM Join the Environmental Voter Project Event: [Details](http://www.indivisibleacton.org/action/2017/06/05/environmentalists-for-ga-06-slash-ossoff-training-call.html)
+[How to Take Part](http://www.indivisibleacton.org/2017/06/07/taking-part-in-indivisible-acton.html)
+
+[How to organize Events](http://www.indivisibleacton.org/2017/06/07/organizing-events.html)
+
+[Second Monday General Meetings
+](http://www.indivisibleacton.org/general/2017/05/31/first-monday.html)
 
