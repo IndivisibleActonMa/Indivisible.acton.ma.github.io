@@ -1,5 +1,5 @@
 ---
-title: Take Action
+title: General Information
 position: 0
 main-image: 
 layout: actions
