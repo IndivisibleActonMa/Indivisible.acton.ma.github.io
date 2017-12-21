@@ -11,5 +11,5 @@ date: 2017-12-20 21:38:00 -05:00
 
 ## MA Representative 14th Middlesex 
 
-[Video Presentation by Candidate Ben Blumenthal at General Meeting on 12/11/17
+[Video Presentation by Candidate Ben Bloomenthal at General Meeting on 12/11/17
 ](https://youtu.be/rBF8WGN0Jp0)
