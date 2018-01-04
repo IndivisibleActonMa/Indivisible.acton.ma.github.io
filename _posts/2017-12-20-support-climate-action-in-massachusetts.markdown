@@ -5,6 +5,10 @@ is featured: true
 main-image: "/uploads/march_banner.jpg"
 ---
 
+**Please attend our [meeting with Senator Jamie Eldridge on 1/5 at 11:30A: ](https://www.facebook.com/events/1157103037754851/ at the Acton Library or by phone. We will be strategizing on how to get the legislation out of committee this month.**
+
+===================================================================
+
 On 12/11/2017 we had two visitors from the Elder Climate Action, who presented an overview of Climate Change legislation in MA. 
 
 The state has a strong law on the books, the GWSA (Global Warming Solutions Act) which was enacted in 2008 and mandates an 80% reduction in greenhouse gas emissions state wide by 2050.  This is a tough law and we need to meet the goal to avoid the wost effects of climate change.  But we have no plan to get there and we need one ASAP!
