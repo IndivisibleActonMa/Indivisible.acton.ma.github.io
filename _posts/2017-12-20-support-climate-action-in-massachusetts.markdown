@@ -5,7 +5,17 @@ is featured: true
 main-image: "/uploads/march_banner.jpg"
 ---
 
-**Please attend our [meeting with Senator Jamie Eldridge on 1/5 at 11:30A: ](https://www.facebook.com/events/1157103037754851/ at the Acton Library or by phone. We will be strategizing on how to get the legislation out of committee this month.**
+**Meeting with Senator Jamie Eldridge, Mass Power Forward on 1/5 at 11:30A:
+
+A meeting was held with Senator Jamie Eldridge, a leader on climate legislation, to strategize on how to get climate bills out of committee by the deadline of 2/7. Many representatives from Indivisible and Climate Action groups were present.
+
+Represented organizations: Indivisible Acton, Indivisible Nashoba, Indivisible Somerville, Indivisible Westford, Elders for Climate Action, Three Rivers Affinity Group, 350MA Lowell, Citizens Climate Lobby, Minuteman Indivisible, and more (please email joris@indivisibleacton.org if your group is meeting).
+
+[Summary]
+(https://docs.google.com/document/d/1QW1_ezbs1Z235ra0N_y-rHvLj1cU7wQQsJ96aT8JU98/edit?usp=sharing)
+
+[Recording]
+(https://drive.google.com/open?id=1-HW6owJu3qcQTNuvKqeI9yz_3243vYZZ)
 
 ===================================================================
 
