@@ -18,6 +18,7 @@ Represented organizations: Indivisible Acton, Indivisible Nashoba, Indivisible S
 (https://drive.google.com/open?id=1-HW6owJu3qcQTNuvKqeI9yz_3243vYZZ)
 
 ===================================================================
+**Premeeting
 
 On 12/11/2017 we had two visitors from the Elder Climate Action, who presented an overview of Climate Change legislation in MA. 
 
