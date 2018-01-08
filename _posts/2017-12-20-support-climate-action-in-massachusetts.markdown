@@ -11,7 +11,7 @@ A meeting was held with Senator Jamie Eldridge, a leader on climate legislation,
 
 Represented organizations: Indivisible Acton, Indivisible Nashoba, Indivisible Somerville, Indivisible Westford, Elders for Climate Action, Three Rivers Affinity Group, 350MA Lowell, Citizens Climate Lobby, Minuteman Indivisible, and more (please email joris@indivisibleacton.org if your group is missing).
 
-[Summary](http://https://docs.google.com/document/d/1QW1_ezbs1Z235ra0N_y-rHvLj1cU7wQQsJ96aT8JU98/edit?usp=sharing)
+[Meeting Summary](http://https://docs.google.com/document/d/1QW1_ezbs1Z235ra0N_y-rHvLj1cU7wQQsJ96aT8JU98/edit?usp=sharing)
 
 [Recording](https://drive.google.com/open?id=1-HW6owJu3qcQTNuvKqeI9yz_3243vYZZ)
 
