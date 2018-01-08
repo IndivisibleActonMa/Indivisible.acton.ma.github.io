@@ -13,7 +13,7 @@ Represented organizations: Indivisible Acton, Indivisible Nashoba, Indivisible S
 
 [Meeting Summary](http://https://docs.google.com/document/d/1QW1_ezbs1Z235ra0N_y-rHvLj1cU7wQQsJ96aT8JU98/edit?usp=sharing)
 
-[Recording](https://drive.google.com/open?id=1-HW6owJu3qcQTNuvKqeI9yz_3243vYZZ)
+[Meeting Recording](https://drive.google.com/open?id=1-HW6owJu3qcQTNuvKqeI9yz_3243vYZZ)
 
 ## Premeeting
 
