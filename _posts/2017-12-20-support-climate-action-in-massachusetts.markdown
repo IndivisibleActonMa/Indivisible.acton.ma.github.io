@@ -5,7 +5,7 @@ is featured: true
 main-image: "/uploads/march_banner.jpg"
 ---
 
-**Meeting with Senator Jamie Eldridge, Mass Power Forward on 1/5 at 11:30A:
+## Meeting with Senator Jamie Eldridge, Mass Power Forward on 1/5/18
 
 A meeting was held with Senator Jamie Eldridge, a leader on climate legislation, to strategize on how to get climate bills out of committee by the deadline of 2/7. Many representatives from Indivisible and Climate Action groups were present.
 
@@ -17,8 +17,7 @@ Represented organizations: Indivisible Acton, Indivisible Nashoba, Indivisible S
 [Recording]
 (https://drive.google.com/open?id=1-HW6owJu3qcQTNuvKqeI9yz_3243vYZZ)
 
-===================================================================
-**Premeeting
+## Premeeting
 
 On 12/11/2017 we had two visitors from the Elder Climate Action, who presented an overview of Climate Change legislation in MA. 
 
