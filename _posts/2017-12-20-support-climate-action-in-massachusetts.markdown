@@ -15,7 +15,7 @@ On 1/5/18 a meeting was held with Senator Jamie Eldridge, a leader on climate le
 
 [**Meeting Recording** (68 min)](https://drive.google.com/open?id=1-HW6owJu3qcQTNuvKqeI9yz_3243vYZZ)
 
-## Premeeting
+## Global Warming Solutions Implementation Act
 
 On 12/11/2017 we had two visitors from the Elder Climate Action, who presented an overview of Climate Change legislation in MA. 
 
