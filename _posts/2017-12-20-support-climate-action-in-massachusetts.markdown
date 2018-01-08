@@ -9,11 +9,11 @@ main-image: "/uploads/march_banner.jpg"
 
 A meeting was held with Senator Jamie Eldridge, a leader on climate legislation, to strategize on how to get climate bills out of committee by the deadline of 2/7. Many representatives from Indivisible and Climate Action groups were present.
 
-Represented organizations: Indivisible Acton, Indivisible Nashoba, Indivisible Somerville, Indivisible Westford, Elders for Climate Action, Three Rivers Affinity Group, 350MA Lowell, Citizens Climate Lobby, Minuteman Indivisible, Green Acton and more (please email joris@indivisibleacton.org if your group is missing).
+**Represented organizations**: Indivisible Acton, Indivisible Nashoba, Indivisible Somerville, Indivisible Westford, Elders for Climate Action, Three Rivers Affinity Group, 350MA Lowell, Citizens Climate Lobby, Minuteman Indivisible, Green Acton and more (please email joris@indivisibleacton.org if your group is missing).
 
-[Meeting Summary](http://https://docs.google.com/document/d/1QW1_ezbs1Z235ra0N_y-rHvLj1cU7wQQsJ96aT8JU98/edit?usp=sharing)
+[**Meeting Summary**](http://https://docs.google.com/document/d/1QW1_ezbs1Z235ra0N_y-rHvLj1cU7wQQsJ96aT8JU98/edit?usp=sharing)
 
-[Meeting Recording (68 min)](https://drive.google.com/open?id=1-HW6owJu3qcQTNuvKqeI9yz_3243vYZZ)
+[**Meeting Recording** (68 min)](https://drive.google.com/open?id=1-HW6owJu3qcQTNuvKqeI9yz_3243vYZZ)
 
 ## Premeeting
 
