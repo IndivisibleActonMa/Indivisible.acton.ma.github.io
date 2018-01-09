@@ -11,7 +11,7 @@ THE PHONE-BANK IS UP & RUNNING (LINK BELOW). Texting coming soon!
 *** Help Elect Democrat Conor Lamb (PA-18) to Congress ***
 If you can to help, please email monica@indivisibleacton.org.
 
-## Background:
+### Background:
 
 There are more Dems (46.4%) than Republicans (41.4%); however, the district went for Trump in 2016.
 
