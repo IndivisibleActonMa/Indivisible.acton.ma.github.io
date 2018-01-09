@@ -19,7 +19,8 @@ This seat is open following the resignation of Tim Murphy, the married anti-choi
 
 ### Phonebank for Community Forum to build volunteer base
 
-Voice of Westmoreland, a resistance group near Pittsburgh, has a community forum scheduled for January 13th to organize volunteers. We need to help get as many potential volunteers to this meeting as possible, so we are calling registered Democrats in Westmoreland County who are likely to be strong supporters of candidate Conor Lamb. Phone calls can be made now until January 12th.[https://www.openvpb.com/vpb_bycode/E90342E-1837](https://www.openvpb.com/vpb_bycode/E90342E-1837)
+Voice of Westmoreland, a resistance group near Pittsburgh, has a community forum scheduled for January 13th to organize volunteers. We need to help get as many potential volunteers to this meeting as possible, so we are calling registered Democrats in Westmoreland County who are likely to be strong supporters of candidate Conor Lamb. Phone calls can be made now until January 12th.
+ [https://www.openvpb.com/vpb_bycode/E90342E-1837](https://www.openvpb.com/vpb_bycode/E90342E-1837)
 
 If you get a voicemail, you can leave a message using the script provided at the end of the page (but please mark "I couldn't reach (voter)" so we can try to reach them in person later.
 
