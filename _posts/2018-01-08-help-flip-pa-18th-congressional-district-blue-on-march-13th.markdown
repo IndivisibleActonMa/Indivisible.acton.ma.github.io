@@ -8,7 +8,7 @@ Like what you saw in Alabama and Virginia? Help flip (PA-18) blue on March 13th.
 
 THE PHONE-BANK IS UP & RUNNING (LINK BELOW). Texting coming soon!
 
-*** Help Elect Democrat Conor Lamb (PA-18) to Congress ***
+* Help Elect Democrat Conor Lamb (PA-18) to Congress *
 If you can to help, please email monica@indivisibleacton.org.
 
 ### Background
