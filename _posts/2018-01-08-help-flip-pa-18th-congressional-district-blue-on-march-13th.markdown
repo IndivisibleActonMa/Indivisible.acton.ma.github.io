@@ -11,13 +11,13 @@ THE PHONE-BANK IS UP & RUNNING (LINK BELOW). Texting coming soon!
 *** Help Elect Democrat Conor Lamb (PA-18) to Congress ***
 If you can to help, please email monica@indivisibleacton.org.
 
-### Background:
+### Background
 
 There are more Dems (46.4%) than Republicans (41.4%); however, the district went for Trump in 2016.
 
 This seat is open following the resignation of Tim Murphy, the married anti-choice hypocrite who urged his girlfriend to get an abortion. The Republican running for this seat, Rick Saccone, is a far-right extremist who proudly boosts that he was "Trump before Trump was Trump."
 
-*** Phonebank for Community Forum to build volunteer base:
+### Phonebank for Community Forum to build volunteer base
 
 Voice of Westmoreland, a resistance group near Pittsburgh, has a community forum scheduled for January 13th to organize volunteers. We need to help get as many potential volunteers to this meeting as possible, so we are calling registered Democrats in Westmoreland County who are likely to be strong supporters of candidate Conor Lamb. Phone calls can be made now until January 12th. https://www.openvpb.com/vpb_bycode/E90342E-1837
 
