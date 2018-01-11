@@ -13,9 +13,9 @@ main-image: "/uploads/march_banner.jpg"
 
 Here follows an email that went out from Catherine Loeb of Indivisble Acton (catherine@indivisibleacton.org)
 
-     First, thank you for your interest in our event with Senator Eldridge on January 5th.  Here is a link to a summary and audio recording of the January 5th meeting with Senator Eldridge.  Please feel free to share it widely. http://www.indivisibleacton. org/2017/12/20/support-climate-action-in-massachusetts.html
+First, thank you for your interest in our event with Senator Eldridge on January 5th.  Here is a link to a summary and audio recording of the January 5th meeting with Senator Eldridge.  Please feel free to share it widely. http://www.indivisibleacton. org/2017/12/20/support-climate-action-in-massachusetts.html
 
-     This email is an update on MASS POWER FORWARD decision on which bills to support as well as possible 'next steps' for us.  
+This email is an update on MASS POWER FORWARD decision on which bills to support as well as possible 'next steps' for us.  
 
 UPDATE: Mass Power Forward agreed to go with 5 of the 8 bills under consideration. In order of the votes they generated, they are:
 
