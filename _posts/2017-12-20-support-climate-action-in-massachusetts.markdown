@@ -7,7 +7,7 @@ main-image: "/uploads/march_banner.jpg"
 
 ## State Action Next Steps Meeting 
 
-[Please use this poll to attend our conference call to coordinate state action, likely Saturday 1/13](https://doodle.com/poll/zmyy7e eiwehgua9v) 
+[Please use this poll to attend our conference call to coordinate state action, likely Saturday 1/13](https://doodle.com/poll/zmyy7eeiwehgua9v) 
 
 [This is a summary of four of the five bills selected by Mass Power Forward](https://docs.google.com/document/d/1udxuyFC0SAw_3JzoMBIJKChEiRdvrEQrSuWvN_yqlNo/edit?usp=sharing)
 
