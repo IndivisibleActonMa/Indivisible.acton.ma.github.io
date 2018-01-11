@@ -11,7 +11,7 @@ main-image: "/uploads/march_banner.jpg"
 
 [This is a summary of five bills selected by Mass Power Forward for 2018](https://docs.google.com/document/d/1udxuyFC0SAw_3JzoMBIJKChEiRdvrEQrSuWvN_yqlNo/edit?usp=sharing)
 
-Here follows an email that went out from Catherine Loeb of Indivisble Acton (catherine@indivisibleacton.org)
+Here follows an email that went out from Catherine Loeb of Indivisible Acton (catherine@indivisibleacton.org)
 
 First, thank you for your interest in our event with Senator Eldridge on January 5th.  Here is a link to a summary and audio recording of the January 5th meeting with Senator Eldridge.  Please feel free to share it widely. http://www.indivisibleacton. org/2017/12/20/support-climate-action-in-massachusetts.html
 
