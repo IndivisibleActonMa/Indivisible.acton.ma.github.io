@@ -19,15 +19,15 @@ This email is an update on MASS POWER FORWARD decision on which bills to support
 
 UPDATE: Mass Power Forward agreed to go with 5 of the 8 bills under consideration. In order of the votes they generated, they are:
 
-   1. DPU Reform / Pipeline tax ban (H.3400, S.2698) [got the most votes]
+** DPU Reform / Pipeline tax ban (H.3400, S.2698) [got the most votes]**
 
-Environmental Justice Act (H. 2913, S. 426)
+**Environmental Justice Act (H. 2913, S. 426)**
 
-RPS increase (various bills; MPF just wants to accelerate the rate of increase at an aggressive clip)
+**RPS increase (various bills; MPF just wants to accelerate the rate of increase at an aggressive clip)**
 
-Solar-4-All bill (H.3396, S.1831)
+**Solar-4-All bill (H.3396, S.1831)**
 
-Global Warming Solutions Implementation Act (H.2149, S.1880)
+**Global Warming Solutions Implementation Act (H.2149, S.1880)**
 
 The next steps for Mass Power Forward will be to plan how to mobilize their climate advocacy groups to push these bills between now and Feb. 7th (and even beyond).
 
