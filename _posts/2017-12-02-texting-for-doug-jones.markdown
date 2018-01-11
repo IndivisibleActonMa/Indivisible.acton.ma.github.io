@@ -9,7 +9,7 @@ Dates: 12/2, 12/3, 12/9, 12/10, 12/11, 12/12
 RSVP: "(http://act.indivisible.org/go/29609?t=5&akid=7742%2E272935%2EgcLnfU)"
 ---
 
-Together in 2017, we’ve resisted the worst part of the Trump agenda. Now, Indivisibles across Alabama are using the power of our movement -- combined with the best new digital tools -- to reach the voters who can elect Doug Jones, a man of principle and action.
+Together in 2017, we’ve resisted the worst part of the Trump agenda. Now, Indivisibles across Alabama are using the power of our movement -- combined with the best new digital tools -- to reach the voters who can elect Doug Jones, a man of principle and action. 
 
 Indivisible National has set up a text-banking program where Indivisibles anywhere can help our Alabama groups get out the vote for this important election. Election Day is December 12, which means we have less than two weeks to make a big impact.
 

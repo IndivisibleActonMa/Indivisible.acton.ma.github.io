@@ -5,6 +5,44 @@ is featured: true
 main-image: "/uploads/march_banner.jpg"
 ---
 
+## State Action Next Steps Meeting 
+
+[Please use this poll to attend our conference call to coordinate state action, likely Saturday 1/13](https://doodle.com/poll/zmyy7e eiwehgua9v) 
+
+[This is a summary of four of the five bills selected by Mass Power Forward](https://docs.google.com/document/d/1udxuyFC0SAw_3JzoMBIJKChEiRdvrEQrSuWvN_yqlNo/edit?usp=sharing)
+
+Here follows an email that went out from Catherine Loeb of Indivisble Acton (catherine@indivisibleacton.org)
+
+     First, thank you for your interest in our event with Senator Eldridge on January 5th.  Here is a link to a summary and audio recording of the January 5th meeting with Senator Eldridge.  Please feel free to share it widely. http://www.indivisibleacton. org/2017/12/20/support- climate-action-in- massachusetts.html
+
+     This email is an update on MASS POWER FORWARD decision on which bills to support as well as possible 'next steps' for us.  
+
+UPDATE: Mass Power Forward agreed to go with 5 of the 8 bills under consideration. In order of the votes they generated, they are:
+
+   1. DPU Reform / Pipeline tax ban (H.3400, S.2698) [got the most votes]
+
+Environmental Justice Act (H. 2913, S. 426)
+
+RPS increase (various bills; MPF just wants to accelerate the rate of increase at an aggressive clip)
+
+Solar-4-All bill (H.3396, S.1831)
+
+Global Warming Solutions Implementation Act (H.2149, S.1880)
+
+The next steps for Mass Power Forward will be to plan how to mobilize their climate advocacy groups to push these bills between now and Feb. 7th (and even beyond).
+
+So, what can the various Indivisible groups do between now and then to help out this effort? Michael Ansara of Indivisible MA has suggested creating a Climate Action Team to reach out to the various local Indivisible Groups, so that is what we will do.
+
+It is our opinion (Joris and mine) that we should take our direction from the climate advocacy groups. Specifically, we will need help from the climate groups with any messaging of scripts, phone calls and texts. When there is an action that needs to take place, we will need to be in contact with a point person from each of the Indivisible groups. That person would be responsible for getting that message out to their own group members and organizing an 'action event'. We can stay connected via email / phone.
+
+Michael has suggested a conference call between the point persons of each group. This would need to take place soon as our turn around time is less than a month. Joris and I will try to set up a Doodle poll as to possible call times and get it out to you pronto.
+
+Thanks!
+
+[Please use this poll to attend our conference call to coordinate state action, likely Saturday ](https://doodle.com/poll/zmyy7e eiwehgua9v)
+
+[This is a summary of four of the five bills selected by Mass Power Forward](https://docs.google.com/document/d/1udxuyFC0SAw_3JzoMBIJKChEiRdvrEQrSuWvN_yqlNo/edit?usp=sharing)
+
 ## Meeting with Senator Jamie Eldridge, Mass Power Forward and Indivisible
 
 On 1/5/18 a meeting was held with Senator Jamie Eldridge, a leader on climate legislation, to strategize on how to get climate bills out of committee by the deadline of 2/7/18. Many representatives from Indivisible and Climate Action groups were present.
