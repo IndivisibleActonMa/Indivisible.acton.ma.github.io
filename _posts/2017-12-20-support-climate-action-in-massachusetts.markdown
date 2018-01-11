@@ -25,11 +25,11 @@ UPDATE: Mass Power Forward agreed to go with 5 of the 8 bills under consideratio
 * Solar-4-All bill (H.3396, S.1831)
 * Global Warming Solutions Implementation Act (H.2149, S.1880)
 
-The next steps for Mass Power Forward will be to plan how to mobilize their climate advocacy groups to push these bills between now and Feb. 7th (and even beyond).
+**The next steps for Mass Power Forward will be to plan how to mobilize their climate advocacy groups to push these bills between now and Feb. 7th (and even beyond).**
 
 So, what can the various Indivisible groups do between now and then to help out this effort? Michael Ansara of Indivisible MA has suggested creating a Climate Action Team to reach out to the various local Indivisible Groups, so that is what we will do.
 
-It is our opinion (Joris and mine) that we should take our direction from the climate advocacy groups. Specifically, we will need help from the climate groups with any messaging of scripts, phone calls and texts. When there is an action that needs to take place, we will need to be in contact with a point person from each of the Indivisible groups. That person would be responsible for getting that message out to their own group members and organizing an 'action event'. We can stay connected via email / phone.
+*It is our opinion (Joris and mine) that we should take our direction from the climate advocacy groups.* Specifically, we will need help from the climate groups with any messaging of scripts, phone calls and texts. When there is an action that needs to take place, we will need to be in contact with a point person from each of the Indivisible groups. That person would be responsible for getting that message out to their own group members and organizing an 'action event'. We can stay connected via email / phone.
 
 Michael has suggested a conference call between the point persons of each group. This would need to take place soon as our turn around time is less than a month. Joris and I will try to set up a Doodle poll as to possible call times and get it out to you pronto.
 
