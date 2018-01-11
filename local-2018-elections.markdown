@@ -11,7 +11,6 @@ date: 2017-12-20 21:38:00 -05:00
 ## Lieutenant Governor
 [Presentation by Candidate Jimmy Tingle at General Meeting on 1/8/18](https://youtu.be/Vbr2Az6UlKI)
 
-
 [Presentation by Candidate Quentin Palfrey at General Meeting on 1/8/18](https://youtu.be/qbF5VMtXBXo)
 
 ## Congressional District MA-3
