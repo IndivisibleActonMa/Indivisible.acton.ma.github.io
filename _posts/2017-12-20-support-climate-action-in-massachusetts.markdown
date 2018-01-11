@@ -19,7 +19,7 @@ This email is an update on MASS POWER FORWARD decision on which bills to support
 
 UPDATE: Mass Power Forward agreed to go with 5 of the 8 bills under consideration. In order of the votes they generated, they are:
 
-** DPU Reform / Pipeline tax ban (H.3400, S.2698) [got the most votes]**
+**DPU Reform / Pipeline tax ban (H.3400, S.2698) [got the most votes]**
 
 **Environmental Justice Act (H. 2913, S. 426)**
 
