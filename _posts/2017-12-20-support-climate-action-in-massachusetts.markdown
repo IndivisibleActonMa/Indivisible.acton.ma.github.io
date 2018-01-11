@@ -9,7 +9,7 @@ main-image: "/uploads/march_banner.jpg"
 
 [Please use this poll to attend our conference call to coordinate state action, likely Saturday 1/13](https://doodle.com/poll/zmyy7eeiwehgua9v) 
 
-[This is a summary of four of the five bills selected by Mass Power Forward](https://docs.google.com/document/d/1udxuyFC0SAw_3JzoMBIJKChEiRdvrEQrSuWvN_yqlNo/edit?usp=sharing)
+[This is a summary of five bills selected by Mass Power Forward for 2018](https://docs.google.com/document/d/1udxuyFC0SAw_3JzoMBIJKChEiRdvrEQrSuWvN_yqlNo/edit?usp=sharing)
 
 Here follows an email that went out from Catherine Loeb of Indivisble Acton (catherine@indivisibleacton.org)
 
