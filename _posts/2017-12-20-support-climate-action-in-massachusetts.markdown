@@ -7,7 +7,13 @@ main-image: "/uploads/march_banner.jpg"
 
 ## State Action Next Steps Meeting 
 
-[Please use this doodle poll to attend our conference call to coordinate state action, likely Saturday 1/13](https://doodle.com/poll/zmyy7eeiwehgua9v) 
+[attend our conference call to coordinate state action on 1/13 at 10:00 - 11:00](https://calendar.google.com/calendar/r/eventedit/MG9xZnJyMmprdmVrc3Z0ODIzc2pqbzMwcDMgaW5kaXZpc2libGUuYWN0b24ubWFAbQ?trp=false&sf=true&output=xml) 
+
+Join the call: https://www.uberconference.com/indivisibleacton
+Optional dial-in number: 720-835-5586
+PIN: 54197
+
+## Mass Power Forward Bills for 2018
 
 [This is a summary of five bills selected by Mass Power Forward for 2018](https://docs.google.com/document/d/1udxuyFC0SAw_3JzoMBIJKChEiRdvrEQrSuWvN_yqlNo/edit?usp=sharing)
 
@@ -34,8 +40,6 @@ So, what can the various Indivisible groups do between now and then to help out 
 Michael has suggested a conference call between the point persons of each group. This would need to take place soon as our turn around time is less than a month. Joris and I will try to set up a Doodle poll as to possible call times and get it out to you pronto.
 
 Thanks!
-
-[Please use this poll to attend our conference call to coordinate state action, likely Saturday ](https://doodle.com/poll/zmyy7eeiwehgua9v)
 
 [This is a summary of four of the five bills selected by Mass Power Forward](https://docs.google.com/document/d/1udxuyFC0SAw_3JzoMBIJKChEiRdvrEQrSuWvN_yqlNo/edit?usp=sharing)
 
