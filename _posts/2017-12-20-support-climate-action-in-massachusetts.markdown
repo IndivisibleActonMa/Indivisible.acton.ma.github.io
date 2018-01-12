@@ -13,6 +13,8 @@ Join the call: https://www.uberconference.com/indivisibleacton
 Optional dial-in number: 720-835-5586
 PIN: 54197
 
+[Please review draft information to be discussed for a proposed action on 1/17](https://docs.google.com/document/d/1sW0xRwaU4M-jSEbycjoTSWV4VH4x1X06G8zTnyd35R8/edit?usp=drivesdk)
+
 ## Mass Power Forward Bills for 2018
 
 [This is a summary of five bills selected by Mass Power Forward for 2018](https://docs.google.com/document/d/1udxuyFC0SAw_3JzoMBIJKChEiRdvrEQrSuWvN_yqlNo/edit?usp=sharing)
