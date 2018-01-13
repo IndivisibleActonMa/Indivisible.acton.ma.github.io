@@ -8,6 +8,11 @@ date: 2017-12-20 21:38:00 -05:00
 
 [Schedule of upcoming events and locations](https://goo.gl/eFdgnJ).
 
+## Governor
+[Presentation by Candidate Jay Gonzalez at Acton & Boxborough DTC Gubernatorial Forum 1/13/18](https://youtu.be/W04hUE7sVPg)
+
+[Presentation by Candidate Setti Warren at Acton & Boxborough DTC Gubernatorial Forum 1/13/18](https://youtu.be/ooagkrnlkWE)
+
 ## Lieutenant Governor
 [Presentation by Candidate Jimmy Tingle at General Meeting on 1/8/18](https://youtu.be/Vbr2Az6UlKI)
 
