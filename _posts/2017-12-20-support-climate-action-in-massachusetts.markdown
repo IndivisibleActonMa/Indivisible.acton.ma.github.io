@@ -8,8 +8,8 @@ main-image: "/uploads/march_banner.jpg"
 ## State Action Next Steps Meeting 
 [State House Climate Action CallIn Script 1/17/18](https://docs.google.com/document/d/1sW0xRwaU4M-jSEbycjoTSWV4VH4x1X06G8zTnyd35R8/edit?usp=drivesdk)
 
-[Recording of conference call to coordinate state action on 1/13 at 10:00 - 11:00]
-(https://drive.google.com/file/d/1wddE4dHEesgoXoEVHSd4HYnrhl_aSDWb/view?usp=drivesdk)
+[Recording of conference call to coordinate state action on 1/13 at 10:00 - 11:00](https://drive.google.com/file/d/1wddE4dHEesgoXoEVHSd4HYnrhl_aSDWb/view?usp=drivesdk)
+
 [Chat Transcript](https://drive.google.com/file/d/1_ejgmhhHdQcQVAMEtrETVrIm_67ynn1v/view?usp=drivesdk)
 
 Call In script that was discussed is above.
