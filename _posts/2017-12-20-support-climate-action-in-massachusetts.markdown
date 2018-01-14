@@ -6,14 +6,12 @@ main-image: "/uploads/march_banner.jpg"
 ---
 
 ## State Action Next Steps Meeting 
+[State House Climate Action CallIn Script 1/17/18](https://docs.google.com/document/d/1sW0xRwaU4M-jSEbycjoTSWV4VH4x1X06G8zTnyd35R8/edit?usp=drivesdk)
 
-[attend our conference call to coordinate state action on 1/13 at 10:00 - 11:00](https://calendar.google.com/calendar/r/eventedit/MG9xZnJyMmprdmVrc3Z0ODIzc2pqbzMwcDMgaW5kaXZpc2libGUuYWN0b24ubWFAbQ?trp=false&sf=true&output=xml) 
+[Recording of our conference call to coordinate state action on 1/13 at 10:00 - 11:00]
 
-[Join the call](https://www.uberconference.com/indivisibleacton)
-Optional dial-in number: 720-835-5586
-PIN: 54197
 
-[Please review draft information to be discussed for a proposed action on 1/17](https://docs.google.com/document/d/1sW0xRwaU4M-jSEbycjoTSWV4VH4x1X06G8zTnyd35R8/edit?usp=drivesdk)
+Call In script that was discussed is above.
 
 [Meeting Agenda](https://docs.google.com/document/d/1OSxATdRkBVBe696hbqdzKfD6qBiGJJMOsWcixfuB18M/edit?usp=drivesdk)
 
