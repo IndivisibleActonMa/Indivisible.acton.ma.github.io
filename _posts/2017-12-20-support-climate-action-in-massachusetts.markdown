@@ -6,6 +6,9 @@ main-image: "/uploads/march_banner.jpg"
 ---
 
 ## State Call-In Wednesday 1/17/18
+
+[State wide letter to Indivisible Groups on Climate Legislation](https://docs.google.com/document/d/1ykC66Q7dRU-MJ0jMQwaTTihHkMWhb0l92Y-BF5s1ryw/edit?usp=sharing)
+
 [State House Climate Action CallIn Script 1/17/18](https://docs.google.com/document/d/1sW0xRwaU4M-jSEbycjoTSWV4VH4x1X06G8zTnyd35R8/edit?usp=drivesdk)
 
 Please call your state representative and The House leadership.
