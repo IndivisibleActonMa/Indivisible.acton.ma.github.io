@@ -14,7 +14,7 @@ Let's shock the State House with calls on 1/17 to show that we are organized (an
 
 [State wide letter to Indivisible Groups on Climate Legislation](https://docs.google.com/document/d/1ykC66Q7dRU-MJ0jMQwaTTihHkMWhb0l92Y-BF5s1ryw/edit?usp=sharing)
 
-[State House Climate Action Call-In Script 1/17/18](https://docs.google.com/document/d/1sW0xRwaU4M-jSEbycjoTSWV4VH4x1X06G8zTnyd35R8/edit?usp=drivesdk)
+[MA Clean Energy Call in Day Script 1/17/18](https://docs.google.com/document/d/1sW0xRwaU4M-jSEbycjoTSWV4VH4x1X06G8zTnyd35R8/edit?usp=drivesdk)
 
 ## Meeting 1/13/18
 [Recording of conference call to coordinate the state action on 1/13](https://drive.google.com/open?id=1o4nkgntmrn3lWZ0VedDkjM8nYT7fX-Jp)
