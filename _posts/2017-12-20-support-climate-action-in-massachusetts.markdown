@@ -16,6 +16,8 @@ Let's shock the State House with calls on 1/17 to show that we are organized (an
 
 [MA Clean Energy Call in Day Script 1/17/18](https://docs.google.com/document/d/1sW0xRwaU4M-jSEbycjoTSWV4VH4x1X06G8zTnyd35R8/edit?usp=drivesdk)
 
+[Indivisible Acton members customized Clean Energy and Elections Call In Day Script 1/17/18](https://goo.gl/Srj87D)
+
 ## Meeting 1/13/18
 [Recording of conference call to coordinate the state action on 1/13](https://drive.google.com/open?id=1o4nkgntmrn3lWZ0VedDkjM8nYT7fX-Jp)
 
