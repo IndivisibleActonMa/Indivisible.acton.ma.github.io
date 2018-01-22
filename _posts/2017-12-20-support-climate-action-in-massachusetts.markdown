@@ -11,6 +11,10 @@ main-image: "/uploads/march_banner.jpg"
 ## Next Meeting
 Monday 1/22 7:30 - 8:30 PM
 
+**Our goal is to get the five climate bills recommended by Mass Power Forward out of committee by 2/7. **
+
+Committees have until 2/7 to recommend bills.
+
 Join the call: [https://www.uberconference.com/indivisibleacton](https://www.uberconference.com/indivisibleacton)
 
 Optional dial-in number: 978-248-8483
