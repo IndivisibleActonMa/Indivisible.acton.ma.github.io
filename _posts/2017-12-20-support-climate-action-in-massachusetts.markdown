@@ -8,6 +8,12 @@ main-image: "/uploads/march_banner.jpg"
 ## Group Captains
 If you are willing to be a point person on climate action for your group, [please sign up here](https://actionnetwork.org/forms/sign-up-for-the-indivisible-ma-climate-action-list?source=direct_link&). For inquiries contact catherine@indivisbleacton.org.
 
+## Next Meeting
+Monday 1/22 7:30 - 8:30 PM
+Join the call: https://www.uberconference.com/indivisibleacton
+Optional dial-in number: 978-248-8483
+Email joris@indivisibleacton.org for face 2 face location in Acton.
+
 ## State Call-In Wednesday 1/17/18
 
 Let's shock the State House with calls on 1/17 to show that we are organized (and can primary them if we see a need)!
@@ -19,6 +25,8 @@ Let's shock the State House with calls on 1/17 to show that we are organized (an
 [Indivisible Acton members customized Clean Energy and Elections Call In Day Script 1/17/18](https://goo.gl/Srj87D)
 
 ## Meeting 1/13/18
+[Catherine's Meeting Notes](https://docs.google.com/document/d/1yCiLplcnrtyg0UiTkI1xoEmH9gJmtWwyCqKg7KgS940/edit?usp=sharing)
+
 [Recording of conference call to coordinate the state action on 1/13](https://drive.google.com/open?id=1o4nkgntmrn3lWZ0VedDkjM8nYT7fX-Jp)
 
 [Chat Transcript](https://drive.google.com/open?id=1Ebx1vFKZquNeTgN5rkJsdDWcksAiuzMr)
