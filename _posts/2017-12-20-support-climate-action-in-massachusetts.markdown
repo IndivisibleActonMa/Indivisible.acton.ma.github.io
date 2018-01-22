@@ -11,7 +11,7 @@ If you are willing to be a point person on climate action for your group, [pleas
 ## Next Meeting
 Monday 1/22 7:30 - 8:30 PM
 
-Join the call: https://www.uberconference.com/indivisibleacton
+Join the call: [https://www.uberconference.com/indivisibleacton](https://www.uberconference.com/indivisibleacton)
 
 Optional dial-in number: 978-248-8483
 
