@@ -11,6 +11,8 @@ main-image: "/uploads/march_banner.jpg"
 ## Next Meeting
 Monday 1/22 7:30 - 8:30 PM
 
+[Agenda](https://docs.google.com/document/d/1TehtUdzvZ8CDutsgMl2rzYDUUp8l0c85YK-8EpHMoEs/edit?usp=drivesdk)
+
 **Our goal is to get the five climate bills recommended by Mass Power Forward out of committee by 2/7. **
 
 Committees have until 2/7 to recommend bills.
