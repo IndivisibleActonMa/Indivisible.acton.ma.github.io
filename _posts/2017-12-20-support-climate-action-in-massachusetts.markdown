@@ -15,6 +15,8 @@ Join the call: [https://www.uberconference.com/indivisibleacton](https://www.ube
 
 Optional dial-in number: 978-248-8483
 
+No PIN required.
+
 Email joris@indivisibleacton.org for face 2 face location in Acton.
 
 ## State Call-In Wednesday 1/17/18
