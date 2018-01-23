@@ -6,7 +6,7 @@ main-image: "/uploads/march_banner.jpg"
 ---
 
 ## Group Captains
-[If you are willing to be a point person on climate action for your group, ***please sign up here***](https://actionnetwork.org/forms/sign-up-for-the-indivisible-ma-climate-action-list?source=direct_link&). 
+[If you are willing to be a **point person** on climate action for your group, ***please sign up here***](https://actionnetwork.org/forms/sign-up-for-the-indivisible-ma-climate-action-list?source=direct_link&). 
 
 For inquiries contact catherine@indivisbleacton.org.
 
