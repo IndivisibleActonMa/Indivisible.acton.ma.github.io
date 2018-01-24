@@ -2,6 +2,7 @@
 title: Please help push Automatic Voter Registration (AVR) initiative in MA
 date: 2018-01-16 14:37:00 -05:00
 is featured: true
+main-image: "/uploads/avr.jpeg"
 ---
 
 We are requesting help from members to write to your state representatives to sponsor the AVR bill: H.2091. We are asking that the members write postcards to their state representative/senator in addition to MA House Speaker Robert DeLeo.
