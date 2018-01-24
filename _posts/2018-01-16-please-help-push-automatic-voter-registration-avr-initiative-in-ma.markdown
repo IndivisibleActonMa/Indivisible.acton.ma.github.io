@@ -6,9 +6,9 @@ is featured: true
 
 We are requesting help from members to write to your state representatives to sponsor the AVR bill: H.2091. We are asking that the members write postcards to their state representative/senator in addition to MA House Speaker Robert DeLeo.
 
-1. The postcard to Speaker DeLeo is a request to bring the AVR bill to vote! 
-2. If your local representative is a co-sponsor of the AVR bill, we are asking you to send a 'Thank You!' postcard.
-3. If your  local representative is NOT a co-sponsor of the AVR bill, we are asking to send a postcard and/or call their office requesting him/her to support this bill.
+1. Send a postcard to Speaker DeLeo with a request to bring the AVR bill to vote! 
+2. Send a *Thank You!* postcard to your local representative if he/she is a co-sponsor of the AVR bill.
+3. Send a postcard and/or call your local representative requesting him/her to support this bill, if he/she is **NOT** a co-sponsor of the AVR bill.
 
 The instructions on how to write these postcards is detailed here: [https://lifteveryvote.net/postcard-parties/](https://lifteveryvote.net/postcard-parties/)
 
