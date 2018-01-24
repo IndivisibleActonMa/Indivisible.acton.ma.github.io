@@ -6,6 +6,8 @@ main-image: "/uploads/Picture6-860x573.png"
 
 Like what you saw in Alabama and Virginia? Help flip (PA-18) blue on March 13th.
 
+[Here is info from the campaign on texting, calling and postcarding](https://docs.google.com/document/d/1Ji8mOfChoeU19xLEEjYpEKqN3r8mlwNUm-xe2M3K7Q4/edit?usp=drivesdk)
+
 THE PHONE-BANK IS UP & RUNNING (LINK BELOW). Texting coming soon!
 
 *Help Elect Democrat Conor Lamb (PA-18) to Congress.*
