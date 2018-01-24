@@ -16,13 +16,13 @@ Who is a co-sponsor and who is not in the neighboring towns
 
 ### Co-sponsors - Towns they represent:
 * Cory Atkins - Acton, Concord, Carlisle, Chelmsford
-Jennifer Benson - Acton, Ayer, Boxborough, Harvard, Lunenburg, Shirley
-James Arciero - Chelmsford, Littleton, Westford
-Carmine Gentile - Framingham, Marlborough, Sudbury, Wayland* 
+* Jennifer Benson - Acton, Ayer, Boxborough, Harvard, Lunenburg, Shirley
+* James Arciero - Chelmsford, Littleton, Westford
+* Carmine Gentile - Framingham, Marlborough, Sudbury, Wayland
 
 ### NOT Co-sponsors - Towns they represent:
-*** Kate Hogan - Bolton, Hudson, Maynard, Stow
-Sheila Harrington - Ashby, Ayer, Dunstable, Groton, Pepperell, Townsend**
+* Kate Hogan - Bolton, Hudson, Maynard, Stow
+* Sheila Harrington - Ashby, Ayer, Dunstable, Groton, Pepperell, Townsend
 
 ### NOT a Co-sponsor
-* Robert DeLeo - Winthrop, Revere****
+* Robert DeLeo - Winthrop, Revere
