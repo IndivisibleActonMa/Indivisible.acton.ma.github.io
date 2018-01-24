@@ -12,7 +12,7 @@ We are requesting help from members to write to your state representatives to sp
 
 The instructions on how to write these postcards is detailed here: [https://lifteveryvote.net/postcard-parties/](https://lifteveryvote.net/postcard-parties/)
 
-Who is a co-sponsor and who is not in the neighboring towns
+Who is a co-sponsor and who is not in the neighboring towns -
 
 ### Co-sponsors - Towns they represent:
 * Cory Atkins - Acton, Concord, Carlisle, Chelmsford
@@ -25,4 +25,4 @@ Who is a co-sponsor and who is not in the neighboring towns
 * **Sheila Harrington** - Ashby, Ayer, Dunstable, Groton, Pepperell, Townsend
 
 ### NOT a Co-sponsor
-* **Robert DeLeo** - Winthrop, Revere
+* **Robert DeLeo** - Speaker of the House, representing Winthrop, Revere
