@@ -1,7 +1,6 @@
 ---
 title: testing
 date: 2018-01-24 22:36:00 -05:00
-published: false
 ---
 
 <!-- Begin Action Network Signup Form -->
