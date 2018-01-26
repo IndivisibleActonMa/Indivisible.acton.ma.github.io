@@ -1,7 +1,7 @@
 ---
 title: Help flip PA 18th congressional district blue on March 13th
 date: 2018-01-08 22:52:00 -05:00
-main-image: "/uploads/Picture6-860x573.png"
+main-image: "/uploads/20171126_131247.jpg"
 ---
 
 Pennsylvania Together is a statewide coalition of grassroots resistance groups. We are working to elect Democrat Conor Lamb to Congress. The special election on March 13th in southwest Pennsylvania is the next big test of whether the Democrats will retake the House in 2018. We're going to fight with all we've got - and we are so glad you are, too! Here's how you can help:
@@ -24,18 +24,21 @@ The PA18 special election will be an upcoming campaign for Postcards to Voters. 
 
 
 NEW: Want to canvas in PA18? Announcing BlueBnB!
+
 Turn PA Blue is committed to flipping seats in Pennsylvania by not limiting ourselves to the gerrymandered boxes that Republicans have put us in. The BlueBnB program is designed to match up hosts in the PA 18th Congressional District and volunteers from other areas to increase our ground game. For information on canvassing in the 18th, please visit the campaign website.
 
 Hosts - live in the PA 18th (or close to the border)
+
 Hosts provide volunteers with a place to stay, a bed and the appropriate accommodations. Although not required, hosts are encouraged to help volunteers with transportation and meals. 
 
 Volunteers - can be from anywhere, but willing to help!
+
 The volunteers are responsible for their own expenses such as food and travel as the hosts will only be providing a warm bed and bathroom facilities. 
 
 [Click for more on the candidate](http://www.conorlamb.com)
 
 To contribute to his campaign, every dollar counts - Conor Lamb has refused to accept corporate PAC donations.
 
-Know of others who'd like to help? Have them sign up here: bit.ly/FlipThe18th
+Know of others who'd like to help? [Have them sign up here](http://bit.ly/FlipThe18th): 
 
 Paid for by Pennsylvania Together, www.patogether.org and not authorized by any candidate or campaign committee.
