@@ -4,30 +4,38 @@ date: 2018-01-08 22:52:00 -05:00
 main-image: "/uploads/Picture6-860x573.png"
 ---
 
-Like what you saw in Alabama and Virginia? Help flip (PA-18) blue on March 13th.
+Pennsylvania Together is a statewide coalition of grassroots resistance groups. We are working to elect Democrat Conor Lamb to Congress. The special election on March 13th in southwest Pennsylvania is the next big test of whether the Democrats will retake the House in 2018. We're going to fight with all we've got - and we are so glad you are, too! Here's how you can help:
 
-[Here is info from the campaign on texting, calling and postcarding](https://docs.google.com/document/d/1Ji8mOfChoeU19xLEEjYpEKqN3r8mlwNUm-xe2M3K7Q4/edit?usp=drivesdk)
+1. Recruit volunteers in the 18th:
+Want to help recruit more boots on the ground in the 18th? Voice of Westmoreland, a resistance group in rural Washington county, has a community forum scheduled for January 27th to organize volunteers. We are calling registered Democrats in Westmoreland County who are likely to be strong supporters of candidate Conor Lamb to ask them to get involved. 
 
-THE PHONE-BANK IS UP & RUNNING (LINK BELOW). Texting coming soon!
+ Knocking on doors is the single most effective way to increase turn out in the special election.
+Phone calls can be made now until January 26th. Read the volunteer recruitment phone bank instructions here. These can be used as a handout if you are phonebanking with a group.
 
-*Help Elect Democrat Conor Lamb (PA-18) to Congress.*
-If you can to help, please email [monica@indivisibleacton.org](mailto:monica@indivisibleacton.org).
+### Call voters in the 18th
 
-### Background
+Want to speak directly to voters in PA18 to let them know about the special election? Please read our Conor Lamb phone bank instructions. These can be used as a handout if you are phonebanking with a group.
 
-There are more Dems (46.4%) than Republicans (41.4%); however, the district went for Trump in 2016.
+### 3. Send postcards to voters in the 18th:
 
-This seat is open following the resignation of Tim Murphy, the married anti-choice hypocrite who urged his girlfriend to get an abortion. The Republican running for this seat, Rick Saccone, is a far-right extremist who proudly boosts that he was "Trump before Trump was Trump."
+The PA18 special election will be an upcoming campaign for Postcards to Voters. ‪They provide easy step-by-step instructions with addresses. You use your own cards and postage. Get in on the fun by emailing Join@TonyTheDemocrat.org or by texting JOIN to 484-275-2229‬. Throwing a large postcard party and need a longer list of voter addresses?  Email postcards@TonyTheDemocrat.org. 
 
-[POLITICO: And Trump is running scared](https://www.politico.com/story/2018/01/11/trump-special-election-pennsylvania-pittsburgh-336502)
+**Or join us at attend a weekly meetup at Starbucks or Bagels+ in Acton. See our calendar for details**
 
-### Phonebank for Community Forum to build volunteer base
 
-Voice of Westmoreland, a resistance group near Pittsburgh, has a community forum scheduled for January 13th to organize volunteers. We need to help get as many potential volunteers to this meeting as possible, so we are calling registered Democrats in Westmoreland County who are likely to be strong supporters of candidate Conor Lamb. Phone calls can be made now until January 12th.
- [https://www.openvpb.com/vpb_bycode/E90342E-1837](https://www.openvpb.com/vpb_bycode/E90342E-1837)
+NEW: Want to canvas in PA18? Announcing BlueBnB!
+Turn PA Blue is committed to flipping seats in Pennsylvania by not limiting ourselves to the gerrymandered boxes that Republicans have put us in. The BlueBnB program is designed to match up hosts in the PA 18th Congressional District and volunteers from other areas to increase our ground game. For information on canvassing in the 18th, please visit the campaign website.
 
-If you get a voicemail, you can leave a message using the script provided at the end of the page (but please mark "I couldn't reach (voter)" so we can try to reach them in person later.
+Hosts - live in the PA 18th (or close to the border)
+Hosts provide volunteers with a place to stay, a bed and the appropriate accommodations. Although not required, hosts are encouraged to help volunteers with transportation and meals. 
 
-Our first virtual phonebank in 2018 will be to support local grassroots resistance group Voice of Westmoreland. Westmoreland County is one of the redder, more rural parts of the 18th Congressional District. We believe there are more than 100,000 doors of Democratic voters to be knocked to raise the profile of this special election. With your help, we will recruit progressive people from across Westmoreland to a Community Forum to kickoff our plan to win in 2018.
+Volunteers - can be from anywhere, but willing to help!
+The volunteers are responsible for their own expenses such as food and travel as the hosts will only be providing a warm bed and bathroom facilities. 
 
-Will you help us recruit more boots on the ground in Westmoreland County? The Community Forum will take place on January 13th, so you can make calls at any time between January 2 and 12th. We have about 9000 phone numbers to call, so we can put lots of folks to work. We are working with local partners to plan a similar event in Washington County on January 27th. And of course, we will organize virtual phone banks to reach voters directly as well.
+[Click for more on the candidate](http://www.conorlamb.com)
+
+To contribute to his campaign, every dollar counts - Conor Lamb has refused to accept corporate PAC donations.
+
+Know of others who'd like to help? Have them sign up here: bit.ly/FlipThe18th
+
+Paid for by Pennsylvania Together, www.patogether.org and not authorized by any candidate or campaign committee.
