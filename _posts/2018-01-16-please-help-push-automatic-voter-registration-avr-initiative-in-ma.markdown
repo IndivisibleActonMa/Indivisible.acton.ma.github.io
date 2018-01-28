@@ -27,3 +27,7 @@ Who is a co-sponsor and who is not in the neighboring towns -
 
 ### NOT a Co-sponsor
 * **Robert DeLeo** - Speaker of the House, representing Winthrop, Revere
+
+### Petition for Clean Elections
+Please print and sign this [petition](https://docs.google.com/document/d/1xgGpnIt69UYCyidoEtIdzi6MVbW54JePi1hfVrnr1EE/edit?usp=drivesdk). Take a picture and email it to your representative and to petitions@indivisibleacton.org. 
+We will take them all to the House leadership.
