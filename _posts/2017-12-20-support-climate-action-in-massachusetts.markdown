@@ -11,14 +11,6 @@ main-image: "/uploads/march_banner.jpg"
 For inquiries contact catherine@indivisbleacton.org.
 
 ## Next Meeting
-Monday 1/22 7:30 - 8:30 PM
-
-[Agenda](https://docs.google.com/document/d/1TehtUdzvZ8CDutsgMl2rzYDUUp8l0c85YK-8EpHMoEs/edit?usp=drivesdk)
-
-**Our goal is to get the five climate bills recommended by Mass Power Forward out of committee by 2/7. **
-
-Committees have until 2/7 to recommend bills.
-
 Join the call: [https://www.uberconference.com/indivisibleacton](https://www.uberconference.com/indivisibleacton)
 
 Optional dial-in number: 978-248-8483
@@ -26,6 +18,22 @@ Optional dial-in number: 978-248-8483
 No PIN required.
 
 Email joris@indivisibleacton.org for face 2 face location in Acton.
+
+## Last Meeting
+Monday 1/22 7:30 - 8:30 PM
+
+[Agenda](https://docs.google.com/document/d/1TehtUdzvZ8CDutsgMl2rzYDUUp8l0c85YK-8EpHMoEs/edit?usp=drivesdk)
+
+[Recording First Half](https://drive.google.com/open?id=1hUPMJSdG6YJbq6On6lEpUS0Rv27NbL_O)
+
+[Recording Second Half](https://drive.google.com/open?id=1nNYZE7V_YH0RfhjHLfxAUH8MR-IgorVP)
+
+[Chat Transcript](https://drive.google.com/open?id=1cw5sDIQ_cgnrsvifJhZW-8icKu6q-1Cy3eL9k5jgrbU)
+
+**Our goal is to get the five climate bills recommended by Mass Power Forward out of committee by 2/7. **
+
+Committees have until 2/7 to recommend bills.
+
 
 ## State Call-In Wednesday 1/17/18
 
