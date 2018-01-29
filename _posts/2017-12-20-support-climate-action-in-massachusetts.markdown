@@ -10,7 +10,7 @@ main-image: "/uploads/march_banner.jpg"
 
 For inquiries contact catherine@indivisbleacton.org.
 
-## Next Meeting
+## Next Meeting 1/30 7:30 - 8:30
 Join the call: [https://www.uberconference.com/indivisibleacton](https://www.uberconference.com/indivisibleacton)
 
 Optional dial-in number: 978-248-8483
