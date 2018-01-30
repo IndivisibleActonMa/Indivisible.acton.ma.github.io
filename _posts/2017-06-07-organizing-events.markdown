@@ -19,7 +19,6 @@ To organize an event not much is needed:
 * Send an email to our [google group](mailto:indivisibleacton@groups.google.com)
 
 
-
-See the [How To Make Events Happen](http://www.indivisibleacton.org/2017/06/07/organizing-events.html) page for more info on tools to help you promote your event.
+Click [here](http://www.indivisibleacton.org/2017/06/07/organizing-events.html) for more info on tools to help you promote your event.
 
 If you need to update the entry in the calendar email [Joris](mailto:jjmwguard-indivisible@yahoo.com)
