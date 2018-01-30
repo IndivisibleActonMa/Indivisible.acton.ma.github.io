@@ -14,8 +14,10 @@ To organize an event not much is needed:
 
 * Add the events to the calendar by clicking [here](https://docs.google.com/forms/d/e/1FAIpQLSceZqvFrTjQSVDc-NH12WPMV0vHF853zF3NPtmIQCNzIHcqjw/viewform).
 
-* Post about it on Facebook as often as you like to promote it. The more often the better. See the [How To Make Events Happen] (http://www.indivisibleacton.org/2017/06/07/organizing-events.html) for more info on how to announce and share an event on Facebook.
+* Post about it on Facebook as often as you like to promote it. The more often the better. 
 
 * Send an email to our [google group](mailto:indivisibleacton@groups.google.com)
+
+See the [How To Make Events Happen] (http://www.indivisibleacton.org/2017/06/07/organizing-events.html) page for more info on tools to help you promote your event.
 
 If you need to update the entry in the calendar email [Joris](mailto:jjmwguard-indivisible@yahoo.com )
