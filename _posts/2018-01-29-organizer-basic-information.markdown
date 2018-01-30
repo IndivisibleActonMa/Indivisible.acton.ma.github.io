@@ -11,7 +11,7 @@ Thank you for taking on an organizer role in Indivisible Acton! Organizers make 
 ### Tools
 In Indivisible Acton, organizers use a number of tools to communicate with each other and the general membership.  
 
-Here is a list of video tutorials to help you get started:
+Here are some video tutorials to help you get started.
 
 ### Managing events on Facebook
 
