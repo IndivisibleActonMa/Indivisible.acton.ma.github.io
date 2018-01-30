@@ -1,21 +1,23 @@
 ---
-title: Organizer Basic Information
+title: How to Make Events Happen
 date: 2018-01-29 18:11:00 -05:00
-main-image: "/uploads/slack%20Android.png"
+main-image: "/uploads/23467017_10159635499965397_8407070291840967214_o.jpg"
 ---
 
-## Welcome
+### Welcome
 
-Thank you for taking on an organizer role in Indivisible Acton. Organizers make events happen, which make action which move our state forward and resists the national extremism.
+Thank you for taking on an organizer role in Indivisible Acton! Organizers make events happen, which make action which move our state forward and resists the national extremism.
 
-## Tools
-In Indivisible Acton, organizers use a number of tools to communicate with each other and the general membership
+### Tools
+In Indivisible Acton, organizers use a number of tools to communicate with each other and the general membership.  
+
+Here is a list of video tutorials to help you get started:
 
 ### Managing events on Facebook
 
 [This video](https://youtu.be/Pt8IsVoY8ts) shows how to announce and share an event on Facebook. 
 
-### Communicating with each other
+### Using Slack to communicate with each other and the general membership
 
 [Invite to Slack](https://youtu.be/id-3DXaZrlA)
 
