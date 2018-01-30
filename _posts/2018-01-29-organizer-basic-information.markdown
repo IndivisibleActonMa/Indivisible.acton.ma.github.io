@@ -17,9 +17,6 @@ Here are some video tutorials to help you get started.
 
 [This video](https://youtu.be/Pt8IsVoY8ts) shows how to announce and share an event on Facebook. 
 
-`<iframe width="560" height="315" src="https://www.youtube.com/embed/Pt8IsVoY8ts" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>`
-
-
 ### Using Slack to communicate  
 
 [Invite to Slack](https://youtu.be/id-3DXaZrlA)
