@@ -5,11 +5,17 @@ main-image: "/uploads/Organize-your-own-event-in-Aalborg-1024x682.jpg"
 ---
 
 To organize an event not much is needed:
+
 * Decide on a date, time, duration and location
+
 * Provide a title and a description. 
+
 * Optionally: create a signup with [eventbrite](http://eventbrite.com) or [actionnetwork](http://actionnetwork.org) or whatever tool you like
+
 * Add the events to the calendar by clicking [here](https://docs.google.com/forms/d/e/1FAIpQLSceZqvFrTjQSVDc-NH12WPMV0vHF853zF3NPtmIQCNzIHcqjw/viewform).
-* Post about it on Facebook as often as you like to promote it. The more often the better.
+
+* Post about it on Facebook as often as you like to promote it. The more often the better. See the [How To Make Events Happen] (http://www.indivisibleacton.org/2017/06/07/organizing-events.html) for more info on how to announce and share an event on Facebook.
+
 * Send an email to our [google group](mailto:indivisibleacton@groups.google.com)
 
 If you need to update the entry in the calendar email [Joris](mailto:jjmwguard-indivisible@yahoo.com )
