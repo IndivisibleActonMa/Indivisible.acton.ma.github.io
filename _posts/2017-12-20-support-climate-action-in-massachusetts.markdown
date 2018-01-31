@@ -14,6 +14,8 @@ For inquiries contact catherine@indivisbleacton.org.
 
 [Print and sign this petition](https://drive.google.com/file/d/1_xK43yrc68SiwsUm2Vx_wy2CGBp0Xqu9/view?usp=drivesdk)
 
+[Use these reminder slips to call ](https://drive.google.com/file/d/1Mw3g3XNF5_EjoDZOL9pF7iswRrXDgGts/view?usp=drivesdk)
+
 Call your legislator and the House Speaker
 
 ## Meeting 1/30 7:30 - 8:30
