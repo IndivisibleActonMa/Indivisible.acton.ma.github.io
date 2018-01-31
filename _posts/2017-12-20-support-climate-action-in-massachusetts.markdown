@@ -10,6 +10,12 @@ main-image: "/uploads/march_banner.jpg"
 
 For inquiries contact catherine@indivisbleacton.org.
 
+## Mass Power Forward Clean Energy Bills and Carbon Pricing Valentine's Week Action
+
+[Print and sign this petition](https://drive.google.com/file/d/1_xK43yrc68SiwsUm2Vx_wy2CGBp0Xqu9/view?usp=drivesdk)
+
+Call your legislator and the House Speaker
+
 ## Meeting 1/30 7:30 - 8:30
 Join the call: [https://www.uberconference.com/indivisibleacton](https://www.uberconference.com/indivisibleacton)
 
