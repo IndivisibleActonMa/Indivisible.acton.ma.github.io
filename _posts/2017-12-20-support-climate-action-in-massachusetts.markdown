@@ -27,7 +27,7 @@ No PIN required.
 
 Email joris@indivisibleacton.org for face 2 face location in Acton.
 
-[Recording](https://drive.google.com/file/d/1-HW6owJu3qcQTNuvKqeI9yz_3243vYZZ/view?usp=drivesdk)
+[Recording](https://drive.google.com/open?id=1lAs4O9w8dRQRT9AT7hAKUantvX_9vcVY)
 
 [Agenda](https://docs.google.com/document/d/1SvS0r3XDQpvdBZYTHStYXV7ejStLulPYv5vSCfRH5tE/edit?usp=drivesdk)
 
