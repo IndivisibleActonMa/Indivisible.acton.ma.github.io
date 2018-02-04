@@ -11,7 +11,7 @@ layout: actions
 
 [Indivisible National Webinar - Relationship Building](https://drive.google.com/file/d/13Vx9zKUOPpL1O5f60_5iembcwZu2oXr3/view)
 
---------------------------
+---
 
 ### Find out what's going on
 
@@ -22,8 +22,7 @@ layout: actions
 
 [Past Newsletters](http://www.indivisibleacton.org/2017/10/24/newsletters.html)
 
-
---------------------------
+---
 
 ### Communication
 
@@ -37,8 +36,7 @@ layout: actions
 
 [Video Tutorial : Slack on App](https://youtu.be/-KHmfHQpXT0)
 
-
---------------------------
+---
 
 ### Events
 
@@ -46,8 +44,7 @@ layout: actions
 
 [Video Tutorial: How to announce and share an event on Facebook](https://youtu.be/Pt8IsVoY8ts)
 
-
---------------------------
+---
 
 ### Other Helpful Links
 
@@ -56,3 +53,5 @@ layout: actions
 [Local 2018 Elections](http://www.indivisibleacton.org/local-2018-elections.html)
 
 [List of all video tutorials](http://www.indivisibleacton.org/2018/01/29/organizer-basic-information.html)
+
+--------------------------
