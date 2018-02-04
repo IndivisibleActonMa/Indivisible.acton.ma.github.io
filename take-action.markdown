@@ -1,6 +1,7 @@
 ---
 title: Take Action
 date: 2018-01-17 10:41:00 -05:00
+layout: actions
 ---
 
 
