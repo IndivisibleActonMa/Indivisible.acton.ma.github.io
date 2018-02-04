@@ -2,7 +2,7 @@
 title: General Information
 position: 0
 main-image: 
-layout: actions
+layout: page
 ---
 
 ### Getting involved
