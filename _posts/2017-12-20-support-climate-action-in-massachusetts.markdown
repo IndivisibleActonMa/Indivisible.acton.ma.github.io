@@ -18,7 +18,7 @@ For inquiries contact catherine@indivisbleacton.org.
 
 Call your legislator and the House Speaker
 
-## Next meeting
+## Next meeting week of 2/4
 [Doodle poll](https://doodle.com/poll/abqye929kny336km)
 
 When we have a date:
