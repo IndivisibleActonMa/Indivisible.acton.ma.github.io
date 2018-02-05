@@ -31,7 +31,6 @@ No PIN required.
 
 Email joris@indivisibleacton.org for face 2 face location in Acton.
 
-
 ## Meeting 1/30 7:30 - 8:30
 
 [Notes](https://docs.google.com/document/d/1r9taN3Dc6VA6QDdwqNkNElNe2eukO--jim50CYV152k/edit?usp=drivesdk)
