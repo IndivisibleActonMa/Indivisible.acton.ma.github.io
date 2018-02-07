@@ -18,10 +18,7 @@ For inquiries contact catherine@indivisbleacton.org.
 
 Call your legislator and the House Speaker
 
-## Next meeting week of 2/4
-[Doodle poll](https://doodle.com/poll/abqye929kny336km)
-
-When we have a date:
+## Next meeting 2/8 8:00 - 9:00 PM
 
 Join the call: [https://www.uberconference.com/indivisibleacton](https://www.uberconference.com/indivisibleacton)
 
@@ -30,6 +27,8 @@ Optional dial-in number: 978-248-8483
 No PIN required.
 
 Email joris@indivisibleacton.org for face 2 face location in Acton.
+
+[Facebook entry](https://www.facebook.com/events/1774081849553707/)
 
 ## Meeting 1/30 7:30 - 8:30
 
