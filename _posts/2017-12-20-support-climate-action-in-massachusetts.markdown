@@ -20,6 +20,8 @@ Call your legislator and the House Speaker
 
 ## Next meeting 2/8 8:00 - 9:00 PM
 
+Latest news is that most bills are **still alive**! But pressure on the House is needed. Please read the latest on the #climate channel in the Indivisible-MA Slack.
+
 Please attend our next conference call from 8 - 9 on 2/8. We will be preparing for the Clean Energy Lobby Week and Day. To attend and Lobby check out this [Facebook event](https://www.facebook.com/events/814037912116329/?link_id=0&can_id=ba4e91dbceba9498feab05b7ee73798d&source=email-tomorrows-meeting-and-slack&email_referrer=&email_subject=tomorrows-meeting-and-slack). To RSVP to Lobby on 2/14 click [here](https://docs.google.com/forms/d/e/1FAIpQLSdoBhg3o2MEnLvxtQbEvTBkgR1RiLysnI6IoyCL8tPlcMRiRA/viewform?link_id=1&can_id=ba4e91dbceba9498feab05b7ee73798d&source=email-tomorrows-meeting-and-slack&email_referrer=&email_subject=tomorrows-meeting-and-slack). 
 
 We encourage to make sheets like [this one](https://docs.google.com/spreadsheets/d/1Wm1DKWA8_3pckFKnaJeM77QsLumrEAMzEaN87Yjwq78/edit#gid=0?link_id=2&can_id=ba4e91dbceba9498feab05b7ee73798d&source=email-tomorrows-meeting-and-slack&email_referrer=&email_subject=tomorrows-meeting-and-slack) that indicate your legislators' support for the clean energy bills.
