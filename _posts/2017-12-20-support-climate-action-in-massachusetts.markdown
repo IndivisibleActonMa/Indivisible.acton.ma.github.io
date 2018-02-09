@@ -12,11 +12,13 @@ For inquiries contact catherine@indivisbleacton.org.
 
 ## Mass Power Forward Clean Energy Bills and Carbon Pricing Valentine's Week Action
 
+
 [Print and sign this petition](https://drive.google.com/file/d/1_xK43yrc68SiwsUm2Vx_wy2CGBp0Xqu9/view?usp=drivesdk)
 
 [Use these reminder slips to call ](https://drive.google.com/file/d/1Mw3g3XNF5_EjoDZOL9pF7iswRrXDgGts/view?usp=drivesdk)
 
-Call your legislator and the House Speaker
+Distribute this online petition that encourages people to sign and call their legislator
+<link href='https://actionnetwork.org/css/style-embed-v3.css' rel='stylesheet' type='text/css' /><script src='https://actionnetwork.org/widgets/v3/petition/mass-power-forward-and-carbon-pricing-bills?format=js&source=widget'></script><div id='can-petition-area-mass-power-forward-and-carbon-pricing-bills' style='width: 100%'><!-- this div is the target for our HTML insertion --></div>
 
 ## Next meeting 2/8 8:00 - 9:00 PM
 
