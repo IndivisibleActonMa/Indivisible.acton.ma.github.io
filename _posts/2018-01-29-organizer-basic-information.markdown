@@ -8,6 +8,11 @@ main-image: "/uploads/23467017_10159635499965397_8407070291840967214_o.jpg"
 
 Thank you for taking on an organizer role in Indivisible Acton! Organizers make events happen, which make action, which move our state forward and resists the national extremism.
 
+### Event Sign up and Records
+[Participant Sign up](https://www.actionnetwork.org/forms/participant-signin)
+
+[Event Record](https://www.actionnetwork.org/forms/leader-event-record)
+
 ### Tools
 In Indivisible Acton, organizers use a number of tools to communicate with each other and the general membership.  
 
