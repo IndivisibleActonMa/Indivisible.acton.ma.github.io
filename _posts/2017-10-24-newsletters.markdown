@@ -1,7 +1,6 @@
 ---
 title: Newsletters
 date: 2017-10-24 22:43:00 -04:00
-published: false
 is featured: false
 ---
 
