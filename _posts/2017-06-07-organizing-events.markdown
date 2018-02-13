@@ -10,9 +10,7 @@ To organize an event not much is needed:
 
 * Provide a title and a description.
 
-* Optionally: create a signup with [eventbrite](http://eventbrite.com) or [actionnetwork](http://actionnetwork.org) or whatever tool you like
-
-* Use [these tools](http://www.indivisibleacton.org/2018/01/29/organizer-basic-information.html) to post the event on Facebook and email to our distribution list
+* Optionally: create a signup with [Eventbrite](http://eventbrite.com) or [The Action Network](http://actionnetwork.org) or whatever tool you like
 
 * Add the events to the calendar by clicking [here](https://docs.google.com/forms/d/e/1FAIpQLSceZqvFrTjQSVDc-NH12WPMV0vHF853zF3NPtmIQCNzIHcqjw/viewform).
 
@@ -20,7 +18,4 @@ To organize an event not much is needed:
 
 * Send an email to our [google group](mailto:indivisibleacton@groups.google.com)
 
-
-Click [here](http://www.indivisibleacton.org/2017/06/07/organizing-events.html) for more info on tools to help you promote your event.
-
-If you need to update the entry in the calendar email [Joris](mailto: Joris@indivisibleacton.org)
+If you need to update the entry in the calendar email \[Joris\](mailto: Joris@indivisibleacton.org)
