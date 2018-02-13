@@ -1,6 +1,7 @@
 ---
 title: Communication
 date: 2017-06-02 20:17:00 -04:00
+published: false
 main-image: "/uploads/social-media-communication-linchi-kwok-blog.jpg"
 ---
 
