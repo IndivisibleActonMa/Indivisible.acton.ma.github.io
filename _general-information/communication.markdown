@@ -1,6 +1,7 @@
 ---
 title: Communication
 date: 2017-06-02 20:56:00 -04:00
+published: false
 ---
 
 The group communications channels are still evolving. Right now we have: 
