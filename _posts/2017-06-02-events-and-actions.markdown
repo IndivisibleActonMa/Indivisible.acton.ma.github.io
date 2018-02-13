@@ -1,6 +1,7 @@
 ---
 title: Events and Actions
 date: 2017-06-02 20:12:00 -04:00
+published: false
 main-image: "/uploads/Resist.jpg"
 ---
 
