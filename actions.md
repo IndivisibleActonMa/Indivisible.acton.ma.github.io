@@ -40,11 +40,21 @@ layout: page
 
 ---
 
+
+
 ### Events
 
 [How to organize Events](http://www.indivisibleacton.org/2017/06/07/organizing-events.html)
 
 [Video Tutorial: How to announce and share an event on Facebook](https://youtu.be/Pt8IsVoY8ts)
+
+---
+
+### Event Sign up and Records
+
+[Participant Sign up](https://www.actionnetwork.org/forms/participant-signin)
+
+[Event Record](https://www.actionnetwork.org/forms/leader-event-record)
 
 ---
 
