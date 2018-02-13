@@ -26,7 +26,9 @@ layout: page
 
 ### Communication
 
-[Our current channels](http://www.indivisibleacton.org/2017/06/02/communication.html)
+[A closed Facebook Group to which people post events and news](www.facebook.com/groups/indivisibleacton)
+
+[The collaboration tool Slack is used for planning events](indivisibleacton.slack.com)
 
 [Video Tutorial : How to send and filter mass emails](https://youtu.be/T-HfrbKi3dY)
 
@@ -54,4 +56,4 @@ layout: page
 
 [List of all video tutorials](http://www.indivisibleacton.org/2018/01/29/organizer-basic-information.html)
 
---------------------------
+---
