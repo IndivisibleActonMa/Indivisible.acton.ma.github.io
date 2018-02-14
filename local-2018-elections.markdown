@@ -21,7 +21,7 @@ date: 2017-12-20 21:38:00 -05:00
 [Presentation by Candidate Quentin Palfrey at General Meeting on 1/8/18](https://youtu.be/qbF5VMtXBXo)
 
 ## Secretary of State
-Presentation by Candidate Josh Zakim at Indivisible Acton Anniversary Meeting 2/12/18
+[Presentation by Candidate Josh Zakim at Indivisible Acton Anniversary Meeting 2/12/18](https://youtu.be/3O0kfqPMnhs)
 
 ## Congressional District MA-3
 
