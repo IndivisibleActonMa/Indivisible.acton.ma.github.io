@@ -14,6 +14,9 @@ collections:
   successes:
     title: Successes
     output: true
+  test:
+    title: Test
+    output: true
   uploads:
     title: Uploads
     output: true
