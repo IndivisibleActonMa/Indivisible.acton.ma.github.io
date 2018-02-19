@@ -11,7 +11,10 @@ main-image: "/uploads/AB%20Enough.jpg"
 [Moms Demand Action](https://momsdemandaction.org/)
 
 ## Acton Boxborough Regional High School 3/14 10:00 -10:15 Walkout registration
+
 [**Sign up here**](https://actionnetwork.org/events/abrhs-walkout)
+
+It is important to sign up, so that school officials know what to expect. It will make all of this smoother. It looks like teachers, school board members and students are going to take part.
 
 [Walkout Facebook Group](https://www.facebook.com/groups/169793903805492)
 
