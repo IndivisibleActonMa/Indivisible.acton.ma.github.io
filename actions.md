@@ -15,6 +15,8 @@ layout: page
 
 ### Find out what's going on
 
+[Upcoming Events](indivisible.acton.ma.github.io/events/upcoming-events.html)
+
 [Second Monday General Meetings
 ](http://www.indivisibleacton.org/general/2017/05/31/first-monday.html)
 
