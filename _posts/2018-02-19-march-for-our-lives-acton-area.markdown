@@ -37,7 +37,7 @@ Right now there are 2 things we all need to do.
 Any questions you can contact Mackenzie Cooper or Rachel Pryke but everything is quite basic.
 
 ## Boston March
-[**General Announcement**](https://www.facebook.com/events/1607397545975790/)
+[**Boston March Facebook Event**](https://www.facebook.com/events/1607397545975790/)
 
 [**Volunteer Signup**](https://actionnetwork.org/events/abrhs-walkout)
 
@@ -46,5 +46,5 @@ Any questions you can contact Mackenzie Cooper or Rachel Pryke but everything is
 
 [**DC March website**](https://www.marchforourlives.com)
 
-[**DC March Facebook Page**](https://www.facebook.com/events/328400457654324/)
+[**DC March Facebook Event**](https://www.facebook.com/events/328400457654324/)
 
