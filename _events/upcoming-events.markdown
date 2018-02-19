@@ -1,11 +1,10 @@
 ---
-title: Upcoming Events
+title: Upcoming Events of Interest
 date: 2018-02-19 10:07:00 -05:00
 layout: page
 ---
 
-
-## Some upcoming events of interest
+## 
 
 * March 14, 2018 10:00-10:15a  [ABRHS Walkout](https://actionnetwork.org/events/abrhs-walkout)
 
