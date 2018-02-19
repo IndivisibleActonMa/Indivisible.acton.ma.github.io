@@ -19,7 +19,7 @@ It is important to sign up, so that school officials know what to expect. It wil
 
 [**Walkout Facebook Group**](https://www.facebook.com/groups/169793903805492)
 
-### Walkout Instructions:
+### Walkout Instructions
 It is official, we are on the map for the National School Walkout. Here is the link: https://actionnetwork.org/events/abrhs-walkout
 
 You can RSVP through there however, it is not necessary, unless a person you know who wants to join does not have a facebook. As the event gets closer Mackenzie Cooper and I will be posting more info about what to bring, what to expect and what to do. You can expect to see this info on this page and on the website page.
