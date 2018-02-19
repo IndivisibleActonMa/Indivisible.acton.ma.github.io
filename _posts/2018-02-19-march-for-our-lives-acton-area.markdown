@@ -1,6 +1,7 @@
 ---
 title: March for our Lives - Acton Area
 date: 2018-02-19 10:55:00 -05:00
+is featured: true
 main-image: "/uploads/AB%20Enough.jpg"
 ---
 
