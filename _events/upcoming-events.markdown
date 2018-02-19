@@ -11,4 +11,4 @@ layout: page
 * March 14, 2018 10:00-10:15a  [ABRHS Walkout](https://actionnetwork.org/events/abrhs-walkout)
 
 
-* March 24, 2018 12-5p [March for Our Lives](https://www.facebook.com/events/1607397545975790/permalink/1608185985896946/)
+* March 24, 2018 12-5p [March for Our Lives](https://www.facebook.com/events/1607397545975790/)
