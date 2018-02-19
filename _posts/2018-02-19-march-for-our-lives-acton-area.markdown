@@ -36,12 +36,12 @@ Right now there are 2 things we all need to do.
 
 Any questions you can contact Mackenzie Cooper or Rachel Pryke but everything is quite basic.
 
-## Boston March
+## Boston March 3/24
 [**Boston March Facebook Event**](https://www.facebook.com/events/1607397545975790/)
 
 [**Volunteer Signup**](https://actionnetwork.org/events/abrhs-walkout)
 
-## Washington DC March
+## Washington DC March 3/24
 ***Indivisible Acton* is planning to raise funds to *sponsor students* to take an overnight bus down there. Stay tuned**.
 
 [**DC March website**](https://www.marchforourlives.com)
