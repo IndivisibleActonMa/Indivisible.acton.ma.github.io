@@ -6,17 +6,18 @@ main-image: "/uploads/AB%20Enough.jpg"
 ---
 
 ## Main gun violence organizations
-[Everytown](http://everytown.org/)
+[**Everytown**](http://everytown.org/)
 
-[Moms Demand Action](https://momsdemandaction.org/)
+[**Moms Demand Action**](https://momsdemandaction.org/)
 
 ## Acton Boxborough Regional High School 3/14 10:00 -10:15 Walkout registration
 
 [**Sign up here**](https://actionnetwork.org/events/abrhs-walkout)
 
+### Links
 It is important to sign up, so that school officials know what to expect. It will make all of this smoother. It looks like teachers, school board members and students are going to take part.
 
-[Walkout Facebook Group](https://www.facebook.com/groups/169793903805492)
+[**Walkout Facebook Group**](https://www.facebook.com/groups/169793903805492)
 
 ### Walkout Instructions:
 It is official, we are on the map for the National School Walkout. Here is the link: https://actionnetwork.org/events/abrhs-walkout
@@ -36,9 +37,9 @@ Right now there are 2 things we all need to do.
 Any questions you can contact Mackenzie Cooper or Rachel Pryke but everything is quite basic.
 
 ## Boston March
-[General Announcement](https://www.facebook.com/events/1607397545975790/)
+[**General Announcement**](https://www.facebook.com/events/1607397545975790/)
 
-[Volunteer Signup](https://actionnetwork.org/events/abrhs-walkout)
+[**Volunteer Signup**](https://actionnetwork.org/events/abrhs-walkout)
 
 ## DC March
 Indivisible Acton is planning to raise funds and get a bus down there. Stay tuned.
