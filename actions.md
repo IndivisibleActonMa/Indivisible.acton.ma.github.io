@@ -15,7 +15,7 @@ layout: page
 
 ### Find out what's going on
 
-[Upcoming Events](indivisible.acton.ma.github.io/events/upcoming-events.html)
+[Upcoming Events](http://indivisibleacton.org/events/upcoming-events.html)
 
 [Second Monday General Meetings
 ](http://www.indivisibleacton.org/general/2017/05/31/first-monday.html)
@@ -41,8 +41,6 @@ layout: page
 [Video Tutorial : Slack on App](https://youtu.be/-KHmfHQpXT0)
 
 ---
-
-
 
 ### Events
 
