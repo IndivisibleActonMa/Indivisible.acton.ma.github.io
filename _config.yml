@@ -2,6 +2,9 @@
 title: Indivisible Acton Massachusetts
 timezone: America/New_York
 collections:
+  events:
+    title: Events
+    output: true
   general-information:
     title: General Information
     output: true
