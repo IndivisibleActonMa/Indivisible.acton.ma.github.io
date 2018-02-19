@@ -42,7 +42,7 @@ Any questions you can contact Mackenzie Cooper or Rachel Pryke but everything is
 [**Volunteer Signup**](https://actionnetwork.org/events/abrhs-walkout)
 
 ## DC March
-**Indivisible Acton is planning to raise funds and get a bus down there. Stay tuned**.
+***Indivisible Acton* is planning to raise funds and get a bus down there. Stay tuned**.
 
 [**DC March website**](https://www.marchforourlives.com)
 
