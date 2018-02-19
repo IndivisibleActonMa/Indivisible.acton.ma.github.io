@@ -10,7 +10,7 @@ main-image: "/uploads/AB%20Enough.jpg"
 
 [**Moms Demand Action**](https://momsdemandaction.org/)
 
-## Acton Boxborough Regional High School Walkout 3/14 10:00 -10:15 
+## Acton Boxborough Regional High School Walkout 3/14 10:00 -10:17 
 
 ### Links
 [**Sign up here**](https://actionnetwork.org/events/abrhs-walkout)
