@@ -7,8 +7,7 @@ main-image: "/uploads/AB%20Enough.jpg"
 
 ## Organize a walkout
 
-[Sign up your own school's walkout
-](https://www.womensmarch.com/empower)
+[**Sign up your own school's walkout**](https://www.womensmarch.com/empower)
 
 ## Main gun violence organizations
 [**Everytown**](http://everytown.org/)
