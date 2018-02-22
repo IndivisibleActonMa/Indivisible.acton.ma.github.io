@@ -51,9 +51,9 @@ Host: Sophie
 ## March for our Lives: Chelmsford 3/24
 Indivisible Acton, Indivisible Westford, Solidarity Lowell and local organizers are working together to have a march in Chelmsford on 3/24. Students, please join as a leader. Adults, we are the support!
 
-[Facebook Page to Organize](https://www.facebook.com/March-for-our-Lives-Chelmsford-958252207684193/)
+[**Facebook Page to Organize**](https://www.facebook.com/March-for-our-Lives-Chelmsford-958252207684193/)
 
-[Planning Meeting 2/26 Invite](https://www.facebook.com/events/159187648074134)
+[**Planning Meeting 2/26 Invite**](https://www.facebook.com/events/159187648074134)
 
 ## March for our Lives: Boston 3/24
 [**Boston March Facebook Event**](https://www.facebook.com/events/1607397545975790/)
