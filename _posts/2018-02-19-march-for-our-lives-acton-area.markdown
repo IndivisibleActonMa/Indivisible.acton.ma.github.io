@@ -53,7 +53,7 @@ Indivisible Acton, Indivisible Westford, Solidarity Lowell and local organizers 
 
 [Facebook Page to Organize](https://www.facebook.com/March-for-our-Lives-Chelmsford-958252207684193/)
 
-[Meeting Link](https://www.facebook.com/events/159187648074134)
+[Planning Meeting 2/26 Invite](https://www.facebook.com/events/159187648074134)
 
 ## March for our Lives: Boston 3/24
 [**Boston March Facebook Event**](https://www.facebook.com/events/1607397545975790/)
