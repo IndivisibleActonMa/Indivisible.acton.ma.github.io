@@ -1,5 +1,5 @@
 ---
-title: March for our Lives - Acton Area
+title: March for our Lives - Acton/Chelmsford
 date: 2018-02-19 10:55:00 -05:00
 is featured: true
 main-image: "/uploads/AB%20Enough.jpg"
@@ -42,13 +42,26 @@ Right now there are 2 things we all need to do.
 
 Any questions you can contact Mackenzie Cooper or Rachel Pryke but everything is quite basic.
 
-## Boston March 3/24
+## Chelmsford High School Walkout 3/14 10:00 -10:17 
+
+Chelmsford High School• 200 Richardson Rd, CHELMSFORD, MA 01824
+Host: Sophie
+[**Sign up here** (enter your zipcode)](https://www.womensmarch.com/enough)
+
+## March for our Lives: Chelmsford 3/24
+Indivisible Acton, Indivisible Westford, Solidarity Lowell and local organizers are working together to have a march in Chelmsford on 3/24. Students, please join as a leader. Adults, we are the support!
+
+[Facebook Page to Organize](https://www.facebook.com/March-for-our-Lives-Chelmsford-958252207684193/)
+
+[Meeting Link](https://www.facebook.com/events/159187648074134)
+
+## March for our Lives: Boston 3/24
 [**Boston March Facebook Event**](https://www.facebook.com/events/1607397545975790/)
 
 [**Volunteer Signup**](https://actionnetwork.org/events/abrhs-walkout)
 
 ## Washington DC March 3/24
-***Indivisible Acton* is planning to raise funds to *sponsor students* to take an overnight bus down there. Stay tuned**.
+People are organizing buses. Please email joris@indivisibleacton.org if you have info.
 
 [**DC March website**](https://www.marchforourlives.com)
 
