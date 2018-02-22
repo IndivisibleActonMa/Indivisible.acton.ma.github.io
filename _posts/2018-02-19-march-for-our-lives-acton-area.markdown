@@ -23,6 +23,8 @@ It is important to sign up, so that school officials know what to expect. It wil
 
 [**Walkout Facebook Group**](https://www.facebook.com/groups/169793903805492)
 
+[**Radio Interview with Organizers**](http://www.wbur.org/radioboston/2018/02/21/youth-activism-florida)
+
 ### Walkout Instructions
 It is official, we are on the map for the National School Walkout. Here is the link: https://actionnetwork.org/events/abrhs-walkout
 
