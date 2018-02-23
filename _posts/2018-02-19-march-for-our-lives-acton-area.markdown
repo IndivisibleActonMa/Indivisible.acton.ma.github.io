@@ -23,7 +23,10 @@ It is important to sign up, so that school officials know what to expect. It wil
 
 [**Walkout Facebook Group**](https://www.facebook.com/groups/169793903805492)
 
+The two organizers were featured on a radio interview on WBUR for Radio Boston
 [**Radio Interview with Organizers**](http://www.wbur.org/radioboston/2018/02/21/youth-activism-florida)
+
+The organizers composed a [**this letter**](https://goo.gl/uXNxa6) and then requested people to cosign on Facebook. Within 2 days they had 400 cosigners including 200 students, parents, local politicians and school committee members.
 
 ### Walkout Instructions
 It is official, we are on the map for the National School Walkout. Here is the link: https://actionnetwork.org/events/abrhs-walkout
