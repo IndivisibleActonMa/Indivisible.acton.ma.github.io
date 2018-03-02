@@ -8,6 +8,10 @@ layout: page
 
 ---
 
+* March 6,7 2018 7-9p [Fighting for Fracking]
+(https://www.facebook.com/events/185745502024493/)
+
+
 * March 14, 2018 10:00-10:15a  [ABRHS Walkout](https://actionnetwork.org/events/abrhs-walkout)
 
 
