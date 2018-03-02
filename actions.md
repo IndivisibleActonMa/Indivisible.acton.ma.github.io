@@ -17,8 +17,8 @@ layout: page
 
 [Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
 
-[Second Monday General Meetings
-](http://www.indivisibleacton.org/general/2017/05/31/first-monday.html)
+[Indivisible-Acton Monthly Meetings](http://www.indivisibacton.org/events/indivisible-acton-monthly-meetings.html)
+
 
 [Calendar](http://www.indivisibleacton.org/calendar.html)
 
