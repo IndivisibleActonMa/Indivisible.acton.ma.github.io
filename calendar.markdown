@@ -8,4 +8,3 @@ layout: calendar
 ---
 
 
-[MA3Grassroots Calendar Events](https://www.ma3grassroots.com/event-calendar)
