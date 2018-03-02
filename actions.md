@@ -32,6 +32,8 @@ layout: page
 
 [The collaboration tool Slack is used for planning events](indivisibleacton.slack.com)
 
+[Twitter introduction](https://drive.google.com/file/d/0BwLIGG6Uwnr_Y0h2a3EwS0hiWTF6dHNkLXR1OUZMOGhibHpr/view)
+
 [Video Tutorial : How to send and filter mass emails](https://youtu.be/T-HfrbKi3dY)
 
 [Video Tutorial : Invite to Slack](https://youtu.be/id-3DXaZrlA)
