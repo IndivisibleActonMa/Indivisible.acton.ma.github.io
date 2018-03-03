@@ -65,6 +65,5 @@ layout: page
 
 [Local 2018 Elections](http://www.indivisibleacton.org/local-2018-elections.html)
 
-[List of all video tutorials](http://www.indivisibleacton.org/2018/01/29/organizer-basic-information.html)
 
 [Relationships with Specific Issue Organizations - MA Chapters](http://www.indivisibleacton.org/events/relationships-with-issue-organizations.html)
