@@ -8,13 +8,12 @@ layout: page
 
 ---
 
-
-Click [here to Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
-
 Click [here for the list of actions for this week](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?ts=5a5e9634) from our sister organization's weekly newsletter.
 
 Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
 
+---
 
+Click [here to Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
 
 ---
