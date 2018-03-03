@@ -1,6 +1,7 @@
 ---
 title: Relationships with Issue Organizations
 date: 2018-03-02 22:33:00 -05:00
+layout: page
 ---
 
 ![350logo.jpg](/uploads/350logo.jpg)
