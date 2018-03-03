@@ -5,10 +5,11 @@ main-image:
 layout: page
 ---
 
+![23467017_10159635499965397_8407070291840967214_o.jpg](/uploads/23467017_10159635499965397_8407070291840967214_o.jpg)
+
 ### Getting involved
 
 [Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
-
 
 ---
 
@@ -41,7 +42,6 @@ layout: page
 [Video Tutorial : Slack on App](https://youtu.be/-KHmfHQpXT0)
 
 [Indivisible National Webinar - Relationship Building](https://drive.google.com/file/d/13Vx9zKUOPpL1O5f60_5iembcwZu2oXr3/view)
-
 
 ### Events
 
