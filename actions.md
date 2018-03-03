@@ -67,4 +67,4 @@ layout: page
 
 [List of all video tutorials](http://www.indivisibleacton.org/2018/01/29/organizer-basic-information.html)
 
----
+[Relationships with Specific Issue Organizations - MA Chapters](http://www.indivisibleacton.org/events/relationships-with-issue-organizations.html)
