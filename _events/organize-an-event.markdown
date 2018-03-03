@@ -1,6 +1,7 @@
 ---
 title: Organize an Event!
 date: 2018-03-02 19:59:00 -05:00
+layout: page
 ---
 
 ![Organize-your-own-event-in-Aalborg-1024x682.jpg](/uploads/Organize-your-own-event-in-Aalborg-1024x682.jpg)
