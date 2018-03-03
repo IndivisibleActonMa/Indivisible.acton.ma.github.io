@@ -46,7 +46,7 @@ layout: page
 
 ### Events
 
-[How to organize Events](http://www.indivisibleacton.org/2017/06/07/organizing-events.html)
+[How to organize Events](http://www.indivisibleacton.org/events/organize-an-event.html)
 
 [Video Tutorial: How to announce and share an event on Facebook](https://youtu.be/Pt8IsVoY8ts)
 
