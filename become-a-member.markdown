@@ -1,6 +1,7 @@
 ---
 title: Become A Member
 date: 2017-02-16 22:58:00 -05:00
+published: false
 position: 5
 mailchimp-form-embed: "<!-- Begin MailChimp Signup Form -->\n<link href=\"//cdn-images.mailchimp.com/embedcode/classic-10_7.css\"
   rel=\"stylesheet\" type=\"text/css\">\n<style type=\"text/css\">\n\t#mc_embed_signup{background:#fff;
