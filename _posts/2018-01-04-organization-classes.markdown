@@ -1,6 +1,7 @@
 ---
 title: Organization Classes
 date: 2018-01-04 12:02:00 -05:00
+published: false
 main-image: "/uploads/OpenProgressRegistration-5abd7a.jpg"
 ---
 
