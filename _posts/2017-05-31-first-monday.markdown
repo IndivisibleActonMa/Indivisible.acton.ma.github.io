@@ -1,6 +1,7 @@
 ---
 title: Second Monday Meeting
 date: 2017-05-31 23:30:00 -04:00
+published: false
 categories:
 - general
 tags:
