@@ -7,7 +7,8 @@ layout: page
 
 ### Getting involved
 
-[How to Take Part](http://www.indivisibleacton.org/2017/06/07/taking-part-in-indivisible-acton.html)
+[Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
+
 
 [Indivisible National Webinar - Relationship Building](https://drive.google.com/file/d/13Vx9zKUOPpL1O5f60_5iembcwZu2oXr3/view)
 
@@ -18,7 +19,6 @@ layout: page
 [Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
 
 [Indivisible-Acton Monthly Meetings](http://www.indivisibleacton.org/events/indivisible-acton-monthly-meetings.html)
-
 
 [Calendar](http://www.indivisibleacton.org/calendar.html)
 
