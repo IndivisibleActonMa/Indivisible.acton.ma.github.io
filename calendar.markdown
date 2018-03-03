@@ -10,7 +10,7 @@ layout: calendar
 ---
 
 
-[Indivisible Acton : Monthly Meetings](http://www.indivisibleacton.org/events/indivisible-acton-monthly-meetings.html)
+[Indivisible Acton : Monthly Meeting Dates](http://www.indivisibleacton.org/events/indivisible-acton-monthly-meetings.html)
 
 
 ---
