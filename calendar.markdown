@@ -7,4 +7,4 @@ embed-code: '<iframe src="https://calendar.google.com/calendar/embed?src=indivis
 layout: calendar
 ---
 
-[Indivisible Acton : Monthly Meetings](http://www.indivisibleacton.org/events/indivisible-acton-monthly-meetings.html)
+### Join us for [Indivisible Acton : Monthly Meetings](http://www.indivisibleacton.org/events/indivisible-acton-monthly-meetings.html)
