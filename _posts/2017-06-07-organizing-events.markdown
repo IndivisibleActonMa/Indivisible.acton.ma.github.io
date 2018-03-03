@@ -1,6 +1,7 @@
 ---
 title: How to Organize Events
 date: 2017-06-07 23:04:00 -04:00
+published: false
 main-image: "/uploads/Organize-your-own-event-in-Aalborg-1024x682.jpg"
 ---
 
