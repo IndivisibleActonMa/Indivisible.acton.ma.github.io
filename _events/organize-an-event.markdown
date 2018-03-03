@@ -1,7 +1,7 @@
 ---
 title: Organize an Event!
 date: 2018-03-02 19:59:00 -05:00
-layout: page
+layout: post
 ---
 
 ![Organize-your-own-event-in-Aalborg-1024x682.jpg](/uploads/Organize-your-own-event-in-Aalborg-1024x682.jpg)
@@ -25,6 +25,6 @@ layout: page
 * Post about it on Facebook as often as you like to promote it - the more often the better!
 
 
-* Send an email to our [google group](mailto:indivisibleacton@groups.google.com)
+* Send an email to our [The Action Network](http://actionnetwork.org) group
 
-If you need to update the entry in the calendar email \[Joris\](mailto: Joris@indivisibleacton.org)
+If you need to update the entry in the calendar email [Joris](mailto:Joris@indivisibleacton.org)
