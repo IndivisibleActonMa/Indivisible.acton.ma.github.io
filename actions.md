@@ -9,7 +9,6 @@ layout: page
 
 [Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
 
-
 [Indivisible National Webinar - Relationship Building](https://drive.google.com/file/d/13Vx9zKUOPpL1O5f60_5iembcwZu2oXr3/view)
 
 ---
@@ -42,7 +41,7 @@ layout: page
 
 [Video Tutorial : Slack on App](https://youtu.be/-KHmfHQpXT0)
 
----
+[Webinar provided by Indivisible National on 1:1 conversations to involve active people](https://drive.google.com/open?id=13Vx9zKUOPpL1O5f60_5iembcwZu2oXr3)
 
 ### Events
 
