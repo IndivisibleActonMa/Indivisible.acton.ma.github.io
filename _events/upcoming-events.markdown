@@ -16,6 +16,9 @@ layout: page
 * March 14, 2018 10:00-10:15a  [ABRHS Walkout](https://actionnetwork.org/events/abrhs-walkout)
 
 
+* March 23, 2018 11a-5p [Connecting and Transforming Communities through Meaningful Listening](https://www.eventbrite.com/e/youth-on-boardlisteningworks-training-connecting-transforming-communities-through-meaningful-tickets-43712638679)
+
+
 * March 24, 2018 12-5p [March for Our Lives: Boston](https://www.facebook.com/events/1607397545975790/)
 
 
