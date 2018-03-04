@@ -38,6 +38,10 @@ test-mailchimp: "<!-- Begin MailChimp Signup Form -->\n<link href=\"//cdn-images
   type='text/javascript'>(function($) {window.fnames = new Array(); window.ftypes
   = new Array();fnames[0]='EMAIL';ftypes[0]='email';fnames[3]='MMERGE3';ftypes[3]='text';fnames[4]='MMERGE4';ftypes[4]='text';fnames[5]='MMERGE5';ftypes[5]='text';}(jQuery));var
   $mcj = jQuery.noConflict(true);</script>\n<!--End mc_embed_signup-->"
+test-picture: <img alt="Monthly Meetings" src=/uploads/INDIVISIBLE-%20ACTON%20Welcomes%20you%20to%20our%20upcoming%20Monthly%20Meetings.jpg;
+  img {max-width:100%} />
 layout: default
 ---
+
+
 
