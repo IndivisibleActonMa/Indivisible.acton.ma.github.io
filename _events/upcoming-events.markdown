@@ -12,9 +12,6 @@ layout: page
 
 * March 6,7 2018 7-9p [Fighting Fracking](https://www.facebook.com/events/185745502024493/)
 
-* March 12, 6:30p-9p 
-[Indivisible Acton General Meeting and Candidate Forum](https://docs.google.com/document/d/12qvb4xtZJ16TGsl5uK3-XCPK2zHBic57RoO-t2eMQVo/edit)
-
 * March 14, 2018 10:00-10:15a  [ABRHS Walkout](https://actionnetwork.org/events/abrhs-walkout)
 
 
