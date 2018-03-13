@@ -5,8 +5,6 @@ main-image:
 layout: page
 ---
 
-
-
 ### Getting involved
 
 [Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
@@ -21,7 +19,7 @@ layout: page
 
 [Calendar](http://www.indivisibleacton.org/calendar.html)
 
-[Past Newsletters](http://www.indivisibleacton.org/2017/10/24/newsletters.html)
+[Newsletters](http://www.indivisibleacton.org/events/newsletters.html)
 
 ---
 
@@ -64,6 +62,5 @@ layout: page
 [MA House Leadership](https://malegislature.gov/Legislators/Leadership)
 
 [Local 2018 Elections](http://www.indivisibleacton.org/local-2018-elections.html)
-
 
 [Relationships with Specific Issue Organizations - MA Chapters](http://www.indivisibleacton.org/events/relationships-with-issue-organizations.html)
