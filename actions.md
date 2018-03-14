@@ -15,6 +15,8 @@ layout: page
 
 [Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
 
+[The Environment](http://www.indivisibleacton.org/events/the-environment.html)
+
 [Indivisible-Acton Monthly Meetings](http://www.indivisibleacton.org/events/indivisible-acton-monthly-meetings.html)
 
 [Calendar](http://www.indivisibleacton.org/calendar.html)
