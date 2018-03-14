@@ -4,7 +4,8 @@ date: 2018-03-13 20:46:00 -04:00
 is featured: true
 ---
 
-### Hosted by [League of Women Voters - Acton Area](http://www.lwv-aa.org)
+
+Hosted by [League of Women Voters - Acton Area](http://www.lwv-aa.org)
 
 ### Get more info [here](https://www.facebook.com/events/170220383609305/) about the Acton Candidate Forum
 
