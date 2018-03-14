@@ -1,7 +1,7 @@
 ---
 title: Acton Candidate Forum
 date: 2018-03-13 20:46:00 -04:00
-is featured: false
+is featured: true
 ---
 
 ### Hosted by League of Women Voters
