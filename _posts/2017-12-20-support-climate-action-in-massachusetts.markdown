@@ -10,23 +10,31 @@ main-image: "/uploads/march_banner.jpg"
 
 For inquiries contact catherine@indivisbleacton.org.
 
-## Mass Power Forward Clean Energy Bills and Carbon Pricing Valentine's Week Action
+## Action
 
+**PLEASE SIGN THE FOLLOWING LETTER**: [Storming the Barricades for Climate Action](https://actionnetwork.org/letters/storming-the-barricades-for-climate-action
+)
 
-[Print and sign this petition](https://drive.google.com/file/d/1_xK43yrc68SiwsUm2Vx_wy2CGBp0Xqu9/view?usp=drivesdk)
+It will automatically be emailed to your State Rep and Senator.
+
+## Weekly Calls
+
+Request from Mass Power Forward:
+
+Just a reminder that we are starting our weekly call-in day to our legislators to advocate for our priority legislation today.  The call log form is [**HERE**](https://docs.google.com/document/d/1BMdEHbnwmjdqD0pLHgF9fb3zJkTpcq9ogMK_G5POeHw/edit?usp=drivesdk).  We have 5-7 weeks to help influence what the House will do before it gets the Pacheco omnibus bill, so let’s go to work!
+
+## Background Information on the most forward clean energy bill in a decade
+
+This [**link**](https://environmentmassachusetts.org/blogs/blog/mae/massachusetts-draws-closer-100-percent-renewable-commitment-0) summarizes the key elements of the Pacheco omnibus clean energy bill, with a focus on the provisions related to a transition to 100% renewable energy.
+This includes most of the elements of the 100% Renewable Energy Act, including a commitment to achieve 100% renewable electricity by 2035 and 100% renewable energy economy-wide by 2050.
+
 
 [Use these reminder slips to call ](https://drive.google.com/file/d/1Mw3g3XNF5_EjoDZOL9pF7iswRrXDgGts/view?usp=drivesdk)
 
 Distribute this online petition that encourages people to sign and call their legislator
 <link href='https://actionnetwork.org/css/style-embed-v3.css' rel='stylesheet' type='text/css' /><script src='https://actionnetwork.org/widgets/v3/petition/mass-power-forward-and-carbon-pricing-bills?format=js&source=widget'></script><div id='can-petition-area-mass-power-forward-and-carbon-pricing-bills' style='width: 100%'><!-- this div is the target for our HTML insertion --></div>
 
-## Next meeting 2/8 8:00 - 9:00 PM
 
-[Meeting Agenda](https://docs.google.com/document/d/1szCY1itxnndnGMBtREnbTtpiepfZeU7oTBV7-1lFx-g/edit?usp=sharing)
-
-Latest news is that most bills are **still alive**! But pressure on the House is needed. Please read the latest on the #climate channel in the Indivisible-MA Slack.
-
-Please attend our next conference call from 8 - 9 on 2/8. We will be preparing for the Clean Energy Lobby Week and Day. To attend and Lobby check out this [Facebook event](https://www.facebook.com/events/814037912116329/?link_id=0&can_id=ba4e91dbceba9498feab05b7ee73798d&source=email-tomorrows-meeting-and-slack&email_referrer=&email_subject=tomorrows-meeting-and-slack). To RSVP to Lobby on 2/14 click [here](https://docs.google.com/forms/d/e/1FAIpQLSdoBhg3o2MEnLvxtQbEvTBkgR1RiLysnI6IoyCL8tPlcMRiRA/viewform?link_id=1&can_id=ba4e91dbceba9498feab05b7ee73798d&source=email-tomorrows-meeting-and-slack&email_referrer=&email_subject=tomorrows-meeting-and-slack). 
 
 We encourage to make sheets like [this one](https://docs.google.com/spreadsheets/d/1Wm1DKWA8_3pckFKnaJeM77QsLumrEAMzEaN87Yjwq78/edit#gid=0?link_id=2&can_id=ba4e91dbceba9498feab05b7ee73798d&source=email-tomorrows-meeting-and-slack&email_referrer=&email_subject=tomorrows-meeting-and-slack) that indicate your legislators' support for the clean energy bills.
 
