@@ -4,7 +4,7 @@ date: 2018-03-14 11:58:00 -04:00
 layout: page
 ---
 
-### Here are some links to information about how you can support the Environment:
+### Information about how you can support the Environment
 
 ---
 
