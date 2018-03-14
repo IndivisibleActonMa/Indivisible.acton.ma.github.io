@@ -6,7 +6,7 @@ is featured: false
 
 ## Hosted by League of Women Voters
 
-## Click [here](http://www.lwv-aa.org) for more info
+### Click [here](http://www.lwv-aa.org) for more info
 
 ---
 
