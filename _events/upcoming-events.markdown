@@ -17,7 +17,7 @@ layout: page
 
 
 * Saturday, March 17, 2018 2-4p
-  [League of Women Voters - Acton Area Candidate Forum](www.lwv-aa.org)
+  [League of Women Voters - Acton Area Candidate Forum](http://www.lwv-aa.org)
 
 
 * March 23, 2018 11a-5p [Connecting and Transforming Communities through Meaningful Listening](https://www.eventbrite.com/e/youth-on-boardlisteningworks-training-connecting-transforming-communities-through-meaningful-tickets-43712638679)
