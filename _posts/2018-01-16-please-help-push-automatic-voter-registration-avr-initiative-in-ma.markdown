@@ -1,6 +1,7 @@
 ---
 title: Please help push Automatic Voter Registration (AVR) initiative in MA
 date: 2018-01-16 14:37:00 -05:00
+published: false
 is featured: true
 main-image: "/uploads/avr.jpg"
 ---
