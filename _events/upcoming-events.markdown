@@ -16,8 +16,9 @@ layout: page
 * March 14, 2018 10:00-10:15a  [ABRHS Walkout](https://actionnetwork.org/events/abrhs-walkout)
 
 
-* Saturday, March 17, 2018 2-4p **League of Women Voters - Acton Area**
-  Luther Conant School
+* Saturday, March 17, 2018 2-4p
+  **[League of Women Voters - Acton Area Candidate Forum](www.lwv-aa.org)**
+  Luther Conant School - Cafeteria
   80 Taylor Rd.
   Acton, MA 01720
 
