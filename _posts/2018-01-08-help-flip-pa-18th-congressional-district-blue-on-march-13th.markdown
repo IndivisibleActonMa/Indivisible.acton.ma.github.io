@@ -1,7 +1,7 @@
 ---
 title: Help flip PA 18th congressional district blue on March 13th and Other Postcarding
 date: 2018-01-08 22:52:00 -05:00
-is featured: true
+is featured: false
 main-image: "/uploads/20171126_131247.jpg"
 ---
 
