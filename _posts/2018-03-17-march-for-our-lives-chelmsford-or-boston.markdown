@@ -22,7 +22,7 @@ If you already have been to a big march, then consider Chelmsford, because
 
 And of course: you can bring your young family, you can sit down if you need to, and you are in and out in a couple of hours.
 
-A small march builds community engagement: we will all meet neighbors we know at the march and get to know new ones. These clusters of connections all over country taking action at the same time generates the energy and momentum to bring the change that we all seek 
+A small march builds community engagement: we will all meet neighbors we know at the march and get to know new ones. These clusters of connections that we and others create all over country at the same time generates the organization and momentum to bring the change that we all seek 
 
 The organizers selected Chelmsford, because to win on the gun violence issue locally and nationally, we need to empower the suburbs. The recent national special elections in PA and AL were won in the suburbs of Pittsburgh, Birmingham and Montgomery. Turnout and enthusiasm were huge there. Similarly, to get Democrats elected in MA is easy, but to get our policies enacted is not. To get those policies we need the suburbs. Half the country lives there. 
 
