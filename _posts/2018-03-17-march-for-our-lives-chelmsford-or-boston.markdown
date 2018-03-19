@@ -14,7 +14,7 @@ If you have never been to a huge march, like the 2017 Women’s, Science or Clim
 
 Boston will be huge, probably bigger than Women’s March 2017. I suspect that every person that attended the Women’s March will be there as well as their spouses and tens of thousands students and their families.
 
-To arrange a car pool click [here](https://actionnetwork.org/events/carpool-to-march-for-our-lives-boston), to take the train from  Acton click [here](https://www.actionnetwork.org/events/commuter-rail-march-for-our-lives-boston). Wendy is coordinating.
+To arrange a car pool click [**here**](https://actionnetwork.org/events/carpool-to-march-for-our-lives-boston), to take the train from  Acton click [**here**](https://www.actionnetwork.org/events/commuter-rail-march-for-our-lives-boston). Wendy is coordinating.
 ## Chelmsford
 If you already have been to a big march, then consider Chelmsford, because 
 
@@ -32,5 +32,5 @@ What works in Chelmsford will rub off onto other suburban towns. Success in Chel
 
 Finally, the march will be plain fun. You will be inspired by the courage and strength of the local speakers, who are your neighbors: kids and adults. I went to the Ayer Women’s March and saw at least 20 people that I knew. I was moved to tears by the five local women, who did such great work. And I made new friends. New people who now are in our coalition.
 
-For the march event site click [here](https://event.marchforourlives.com/event/march-our-lives-events/9185). For the march Facebook site and schedule click [here](https://www.facebook.com/events/172568543525779).
+For the march event site click [**here**](https://event.marchforourlives.com/event/march-our-lives-events/9185). For the march Facebook site and schedule click [**here**](https://www.facebook.com/events/172568543525779).
 
