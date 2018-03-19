@@ -1,6 +1,7 @@
 ---
 title: 'March for our Lives: Chelmsford or Boston'
 date: 2018-03-17 16:19:00 -04:00
+is featured: true
 main-image: "/uploads/m4ol.jpg"
 event-start-date: 2018-03-24 00:00:00 -04:00
 event-end-date: 2018-03-24 00:00:00 -04:00
