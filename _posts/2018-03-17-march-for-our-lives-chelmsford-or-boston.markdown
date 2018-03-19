@@ -3,15 +3,11 @@ title: 'March for our Lives: Chelmsford or Boston'
 date: 2018-03-17 16:19:00 -04:00
 is featured: true
 main-image: "/uploads/m4ol.jpg"
-event-start-date: 2018-03-24 00:00:00 -04:00
-event-end-date: 2018-03-24 00:00:00 -04:00
 ---
-
-# March for our Lives: we all are going to go, but where: Chelmsford or Boston?
 
 ## Joris Wils, Indivisible Acton
 
-Here are some considerations to help you decide.
+March for our Lives: we all are going to go, but where: Chelmsford or Boston? Here are some considerations to help you decide.
 
 ## Boston
 If you have never been to a huge march, like the 2017 Women’s, Science or Climate Marches, then go to Boston. These huge marches do not come often. It is life-changing to experience the energy and enthusiasm of tens likely hundreds of thousands of people gathered and chanting to support a cause and our democracy. You realize that you are not alone. There are people who will support you if you lead and leaders will rise that you can support. Your vote counts, because it is supported by all the others.
