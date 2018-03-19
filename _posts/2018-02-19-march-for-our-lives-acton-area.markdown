@@ -1,6 +1,7 @@
 ---
 title: March for our Lives - Acton/Chelmsford
 date: 2018-02-19 10:55:00 -05:00
+published: false
 is featured: true
 main-image: "/uploads/AB%20Enough.jpg"
 ---
