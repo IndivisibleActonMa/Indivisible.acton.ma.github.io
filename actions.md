@@ -27,7 +27,7 @@ layout: page
 
 ### Communication
 
-[A closed Facebook Group to which people post events and news](www.facebook.com/groups/indivisibleacton)
+[A closed Facebook Group to which people post events and news](http://www.facebook.com/groups/indivisibleacton)
 
 [The collaboration tool Slack is used for planning events](indivisibleacton.slack.com)
 
