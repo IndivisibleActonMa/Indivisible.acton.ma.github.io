@@ -8,6 +8,9 @@ collections:
   general-information:
     title: General Information
     output: true
+  newsletters:
+    title: Newsletters
+    output: true
   posts:
     title: Posts
     output: true
