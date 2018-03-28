@@ -4,11 +4,14 @@ date: 2018-03-12 23:39:00 -04:00
 layout: page
 ---
 
-### Click [here](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?ts=5a5e9634) for the current weekly newsletter.
+### Click [here](https://files.slack.com/files-pri/T3Z9LR4SJ-F9WLL0Q72/ia_newsletter_3_2f26_2f18.pdf) for the current weekly newsletter.
 
 ---
 
 ### Past Newsletters
+
+* [Newsletter, March 12, 2018](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?ts=5a5e9634)
+
 
 * [Newsletter, October 24, 2017](http://mailchi.mp/33cb109bf504/newsletter-0003-october-22-2017)
 
