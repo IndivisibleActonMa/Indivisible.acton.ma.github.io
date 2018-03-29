@@ -12,6 +12,9 @@ layout: page
 
 * [Newsletter, March 12, 2018](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?ts=5a5e9634)
 
+---
+
+### Archived Newsletters
 
 * [Newsletter, October 24, 2017](http://mailchi.mp/33cb109bf504/newsletter-0003-october-22-2017)
 
