@@ -33,6 +33,10 @@ layout: page
 * March 24, 2018 1:30-4p [March for Our Lives: Chelmsford](https://www.facebook.com/events/172568543525779/)
 
 
+* March 31, 2018 10a-3p [Transgender Day of Visibility Kick Off Canvass](https://www.facebook.com/events/1982782898606105/) hosted by Freedom for All Massachusetts
+
+
+
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
 
 ---
