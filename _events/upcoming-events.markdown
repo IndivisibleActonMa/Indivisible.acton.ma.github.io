@@ -8,7 +8,7 @@ layout: page
 
 ---
 
-### Click [here](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal) to see events published on Facebook.
+### Click [here](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal) to see events published on Indivisible Acton's Public Facebook page.
 
 ---
 
