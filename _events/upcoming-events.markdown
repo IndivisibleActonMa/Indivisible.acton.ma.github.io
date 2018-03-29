@@ -36,6 +36,8 @@ layout: page
 * March 31, 2018 10a-3p [Transgender Day of Visibility Kick Off Canvass](https://www.facebook.com/events/1982782898606105/) hosted by Freedom for All Massachusetts
 
 
+* April 14, 2018 1p -3p [March For Science Boston](https://www.facebook.com/events/189078908364928/)
+
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
 
