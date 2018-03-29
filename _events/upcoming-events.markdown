@@ -8,6 +8,10 @@ layout: page
 
 ---
 
+### Click [here](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal) to see events on Facebook.
+
+---
+
 ## Events
 
 * March 6,7 2018 7-9p [Fighting Fracking](https://www.facebook.com/events/185745502024493/)
