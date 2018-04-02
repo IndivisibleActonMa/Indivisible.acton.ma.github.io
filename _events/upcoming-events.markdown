@@ -14,26 +14,7 @@ layout: page
 
 ## Events
 
-* March 6,7 2018 7-9p [Fighting Fracking](https://www.facebook.com/events/185745502024493/)
-
-
-* March 14, 2018 10:00-10:15a  [ABRHS Walkout](https://actionnetwork.org/events/abrhs-walkout)
-
-
-* Saturday, March 17, 2018 2-4p
-  [League of Women Voters - Acton Area Candidate Forum](http://www.lwv-aa.org)
-
-
-* March 23, 2018 11a-5p [Connecting and Transforming Communities through Meaningful Listening](https://www.eventbrite.com/e/youth-on-boardlisteningworks-training-connecting-transforming-communities-through-meaningful-tickets-43712638679)
-
-
-* March 24, 2018 12-5p [March for Our Lives: Boston](https://www.facebook.com/events/1607397545975790/)
-
-
-* March 24, 2018 1:30-4p [March for Our Lives: Chelmsford](https://www.facebook.com/events/172568543525779/)
-
-
-* March 31, 2018 10a-3p [Transgender Day of Visibility Kick Off Canvass](https://www.facebook.com/events/1982782898606105/) hosted by Freedom for All Massachusetts
+* April 5, 2018 7-9p [Candidating Forum - Carlisle](https://www.eventbrite.com/e/candidating-with-beej-das-rufus-gifford-barbara-litalien-juana-matias-keith-r-stjohn-and-lori-tickets-43178010592?aff=erelexpmlt)
 
 
 * April 14, 2018 1p -3p [March For Science Boston](https://www.facebook.com/events/189078908364928/)
