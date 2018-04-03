@@ -10,14 +10,26 @@ layout: page
 
 ### Click [here](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal) to see events published on Indivisible Acton's Public Facebook page.
 
+
+### [Check our calendar](http://www.indivisibleacton.org/calendar.html)
+
 ---
 
 ## Events
 
-* April 5, 2018 7-9p [Candidating Forum - Carlisle](https://www.eventbrite.com/e/candidating-with-beej-das-rufus-gifford-barbara-litalien-juana-matias-keith-r-stjohn-and-lori-tickets-43178010592?aff=erelexpmlt)
+* April 5, 2018 7-9p : [Candidating Forum - Carlisle](https://www.eventbrite.com/e/candidating-with-beej-das-rufus-gifford-barbara-litalien-juana-matias-keith-r-stjohn-and-lori-tickets-43178010592?aff=erelexpmlt)
 
 
-* April 14, 2018 1p -3p [March For Science Boston](https://www.facebook.com/events/189078908364928/)
+* April 3, 7p, Concord : [Conversations in a Civil Society: Agreeing to Disagree](https://www.facebook.com/events/344939506007450/)
+
+
+* April 6, 6-7p Acton : #Follow Friday at the local Starbucks: Learn how to get on Twitter and how you can use it to help up your activism game. Maryellen Waters will train us on how to use Twitter. Bring laptops/ipads/iphones. Please create an account before coming Friday, if possible.
+
+
+* April 7, 9a online : [Healey Signature Saturday and Zoom Call with Maura Healey](https://docs.google.com/forms/d/10ZE0Qc1XPIUr5SsJZhkJg-t9Yu4UK2HAI_CvoxoDhlM/viewform?link_id=48&can_id=0d5712ce9b810b29d6d5471775001fbd&source=email-weekly-newsletter-31918&email_referrer&email_subject=weekly-newsletter-31918&edit_requested=true)
+
+
+* April 14, 2018 1p -3p :  [March For Science Boston](https://www.facebook.com/events/189078908364928/)
 
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
