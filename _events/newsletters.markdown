@@ -4,7 +4,7 @@ date: 2018-03-12 23:39:00 -04:00
 layout: page
 ---
 
-### Click [here](https://www.indivisibleacton.org/uploads/3408513457173162335.pdf) for the current weekly newsletter.
+### Click [here](https://www.indivisibleacton.org//uploads/apr3-newsletter.pdf) for the current weekly newsletter.
 
 ---
 
