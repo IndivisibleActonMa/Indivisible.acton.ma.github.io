@@ -8,8 +8,8 @@ layout: post
 
 ---
 
-
 ## Meeting Agendas
 
+Click on the meeting date for the associated agenda.
 
-* ### [April 9 Meeting Agenda](https://docs.google.com/document/d/1-fylkDDLQtLYhLw-QPEOES9ZUSYjsZDcP5wssr7BJgc/edit)
+* ### [April 9](https://docs.google.com/document/d/1-fylkDDLQtLYhLw-QPEOES9ZUSYjsZDcP5wssr7BJgc/edit)
