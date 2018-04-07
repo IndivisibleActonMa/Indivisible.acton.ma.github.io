@@ -26,6 +26,9 @@ layout: page
 * April 7, 9a online : [Healey Signature Saturday and Zoom Call with Maura Healey](https://docs.google.com/forms/d/10ZE0Qc1XPIUr5SsJZhkJg-t9Yu4UK2HAI_CvoxoDhlM/viewform?link_id=48&can_id=0d5712ce9b810b29d6d5471775001fbd&source=email-weekly-newsletter-31918&email_referrer&email_subject=weekly-newsletter-31918&edit_requested=true)
 
 
+* April 9, 2018 6:30-8:45p : [Indivisible Acton Monthly Meeting](http://www.indivisibleacton.org/events/indivisible-acton-monthly-meetings.html)
+
+
 * April 14, 2018 1p -3p :  [March For Science Boston](https://www.facebook.com/events/189078908364928/)
 
 
