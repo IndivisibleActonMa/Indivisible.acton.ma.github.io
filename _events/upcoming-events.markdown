@@ -20,9 +20,6 @@ layout: page
 * April 5, 2018 7-9p : [Candidating Forum - Carlisle](https://www.eventbrite.com/e/candidating-with-beej-das-rufus-gifford-barbara-litalien-juana-matias-keith-r-stjohn-and-lori-tickets-43178010592?aff=erelexpmlt)
 
 
-* April 3, 7p, Concord : [Conversations in a Civil Society: Agreeing to Disagree](https://www.facebook.com/events/344939506007450/)
-
-
 * April 6, 6-7p Acton : #Follow Friday at the local Starbucks: Learn how to get on Twitter and how you can use it to help up your activism game. Maryellen Waters will train us on how to use Twitter. Bring laptops/ipads/iphones. Please create an account before coming Friday, if possible.
 
 
