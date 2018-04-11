@@ -4,11 +4,14 @@ date: 2018-03-12 23:39:00 -04:00
 layout: page
 ---
 
-### Click [here](https://www.indivisibleacton.org/uploads/IA%20Newsletter%204_3_18.pdf)  for the current weekly newsletter.
+### Click [here](/uploads/Apr10Newsletter.pdf) for the current weekly newsletter.
 
 ---
 
 ### Past Newsletters
+
+* [Newsletter, April 3, 2018](https://www.indivisibleacton.org/uploads/IA%20Newsletter%204_3_18.pdf)
+
 * [Newsletter, March 26, 2018](https://www.indivisibleacton.org/uploads/3408513457173162335.pdf)
 
 * [Newsletter, March 12, 2018](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?ts=5a5e9634)
