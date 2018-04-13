@@ -12,6 +12,8 @@ Click [here for the list of actions for this week](https://docs.google.com/docum
 
 Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
 
+Click [here to learn about Rapid Resist Texting](https://docs.google.com/forms/d/e/1FAIpQLSfZeZzukCxzvvDTDALdPk_NGqkbn5c1JLuFnC31f9tOSq7UpA/viewform)
+
 ---
 
 Click [here to Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
