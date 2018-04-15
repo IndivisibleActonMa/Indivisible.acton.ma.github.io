@@ -1,7 +1,8 @@
 ---
 title: March For Science Boston
 date: 2018-04-11 07:09:00 -04:00
-is featured: true
+published: false
+is featured: false
 main-image: "/uploads/18076528_10210501404064491_6274176932040188087_o.jpg"
 event-start-date: 2018-04-14 13:00:00 -04:00
 event-end-date: 2018-04-14 15:00:00 -04:00
