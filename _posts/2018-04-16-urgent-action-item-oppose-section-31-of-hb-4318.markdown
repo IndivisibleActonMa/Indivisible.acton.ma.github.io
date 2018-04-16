@@ -32,4 +32,4 @@ SECTION 31 of HOUSE BILL 4318 in the Climate Adaption bill proposed by Governor 
 
 Many things in H.4318 are positive, but Section 31 is not.
 
-TIMELINE: **H.4318 can be voted through Committee anytime between now and the week of April 16, 2018.** From there, it will need to be reviewed by the House and the Senate, reconciled, and sent to Governor Baker’s desk.\
+TIMELINE: **H.4318 can be voted through Committee anytime between now and the week of April 16, 2018.** From there, it will need to be reviewed by the House and the Senate, reconciled, and sent to Governor Baker’s desk.
