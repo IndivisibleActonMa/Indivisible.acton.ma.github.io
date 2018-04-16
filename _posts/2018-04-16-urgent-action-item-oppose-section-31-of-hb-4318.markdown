@@ -17,8 +17,6 @@ call-script-text: "\"Hi, my name is ________ and I'm a constituent of [Represent
   in Massachusetts. I strongly urge you to vote NO on Section 31 of House Bill 4318.
   Please stand up for your constituents -- not the interests of private water corporations.
   Thank you!\""
-event-start-date: 2016-04-01 00:00:00 -04:00
-event-end-date: 2020-04-01 00:00:00 -04:00
 ---
 
 URGENT ACTION ITEM
