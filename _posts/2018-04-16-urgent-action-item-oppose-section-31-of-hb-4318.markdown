@@ -21,13 +21,17 @@ event-start-date: 2016-04-01 00:00:00 -04:00
 event-end-date: 2020-04-01 00:00:00 -04:00
 ---
 
- 
-URGENT ACTION ITEM 
+URGENT ACTION ITEM
 
-(sharing from Corporate Accountability and Boston Action League activists who testified in front of joint committee) 
+\(sharing from Corporate Accountability and Boston Action League activists who testified in front of joint committee)
 
-ANY DAY NOW: MA JOINT COMMITTEE ON ENVIRONMENT, NATURAL RESOURCES AND AGRICULTURE TO VOTE ON BILL THAT WOULD ALLOW WATER PRIVATIZATION IN OUR STATE, i.e. CORPORATE CONTROL OF MUNICIPAL WATER SUPPLIES. 
+ANY DAY NOW: MA JOINT COMMITTEE ON ENVIRONMENT, NATURAL RESOURCES AND AGRICULTURE TO VOTE ON BILL THAT WOULD ALLOW WATER PRIVATIZATION IN OUR STATE, i.e. CORPORATE CONTROL OF MUNICIPAL WATER SUPPLIES.
 
 When private water profiteers control public water systems, they are obligated to put their profits and the interests of their shareholders first, meaning communities come second. To maximize profits, we’ve seen corporations raise water rates, engage in labor abuses, neglect infrastructure investments, and cut corners -- jeopardizing public health and access to water.
-SECTION 31 of HOUSE BILL 4318 in the Climate Adaption bill proposed by Governor Baker [which falls short in many ways and competes with the Senate's Climate/Energy Omnibus bill] - would open the door for municipalities across the state to be barraged with unsolicited proposals and sales pitches from the private water industry, and allow corporations to access grants and loan money from the federal and state government that our cities sorely need to keep their systems functioning, effectively turning over precious and limited public resources to private hands. Additionally, these contracts could last 20 years, with a ten-year renewal option. This means that cities could be locking themselves into private control of their water systems for up to three decades. 
-Many things in H.4318 are positive, but Section 31 is not. 
+
+
+SECTION 31 of HOUSE BILL 4318 in the Climate Adaption bill proposed by Governor Baker \[which falls short in many ways and competes with the Senate's Climate/Energy Omnibus bill\] - would open the door for municipalities across the state to be barraged with unsolicited proposals and sales pitches from the private water industry, and allow corporations to access grants and loan money from the federal and state government that our cities sorely need to keep their systems functioning, effectively turning over precious and limited public resources to private hands. Additionally, these contracts could last 20 years, with a ten-year renewal option. This means that cities could be locking themselves into private control of their water systems for up to three decades.
+
+Many things in H.4318 are positive, but Section 31 is not.
+
+TIMELINE: **H.4318 can be voted through Committee anytime between now and the week of April 16, 2018.** From there, it will need to be reviewed by the House and the Senate, reconciled, and sent to Governor Baker’s desk.\
