@@ -14,3 +14,5 @@ layout: calendar
 
 
 ---
+
+### Please Note: Tuesday, April 24 Meet-Up location is changed to:  Dunkin Donuts on 315 Main St in Acton near Not Your Average Joe's and Acton Liquor
