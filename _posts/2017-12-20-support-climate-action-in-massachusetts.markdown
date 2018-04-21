@@ -10,24 +10,23 @@ main-image: "/uploads/march_banner.jpg"
 
 For inquiries contact catherine@indivisbleacton.org.
 
-## Action 3/10
+### WE AREN’T DONE YET!  WE HAVE TO KEEP THE PRESSURE UP ON OUR LEGISLATORS AND INSIST ON PUBLIC POLICIES THAT REFLECT THE SCIENTIFIC FACTS - NOT THE DEMANDS OF CORPORATE LOBBYISTS.  
 
-**PLEASE SIGN THE FOLLOWING LETTER**: [Storming the Barricades for Climate Action](https://actionnetwork.org/letters/storming-the-barricades-for-climate-action
-)
+350MA and it’s partners have more actions planned in the next few weeks - a **CALL-IN DAY (April 23rd)** and a **LOBBY DAY (May 10th)** at the State House where they will deliver post cards and meet with lawmakers.  Please join us!!
 
-It will automatically be emailed to your State Rep and Senator.
+There are bills in the works right now that could make Massachusetts a leader in the fight against climate change. One in particular, the OMNIBUS CLEAN ENERGY BILL, would be a crucial step in this direction. But industry lobbyists oppose these bills, so we need to counter them with people power. That’s why we’ve selected a few key days of action.
 
-## Weekly Calls 3/10
+To sign up for either the Call-In Day or the Lobby Day, use this link:
+Sign up to go [here](https://marchforscienceboston.betterfutureproject.org/sign_up). 
 
-Request from Mass Power Forward:
+Here is the legislation we are fighting for:
+[An Act to Promote a Clean Energy Future](https://indivisible-ma.slack.com/files/U8QNQNV5H/FA9FG3D2Q/an_act_to_promote_a_clean_energy_future_2.jpg)
 
-Just a reminder that we are starting our **weekly call-in day** to our legislators to advocate for our priority legislation today.  The call log form is [**HERE**](https://docs.google.com/document/d/1BMdEHbnwmjdqD0pLHgF9fb3zJkTpcq9ogMK_G5POeHw/edit?usp=drivesdk).  We have 5-7 weeks to help influence what the House will do before it gets the Pacheco omnibus bill, so let’s go to work!
+**Please call the following people** to tell them you support this legislation: Your own Rep and Senator, [Tom Golden](https://malegislature.gov/Legislators/Profile/TAG1)  (Chair of the Telecommunications, Utilities and Energy (617-722-2263) and Speaker of the House [Robert DeLeo] (https://malegislature.gov/Legislators/Profile/RAD1) (617-722-2500)
 
-## Background Information on the most forward clean energy bill in a decade
+You can find the phone numbers for your legislators [here](https://malegislature.gov/Search/FindMyLegislator): 
 
-This [**link**](https://environmentmassachusetts.org/blogs/blog/mae/massachusetts-draws-closer-100-percent-renewable-commitment-0) summarizes the key elements of the Pacheco omnibus clean energy bill, with a focus on the provisions related to a transition to 100% renewable energy.
-This includes most of the elements of the 100% Renewable Energy Act, including a commitment to achieve 100% renewable electricity by 2035 and 100% renewable energy economy-wide by 2050.
-
+And for Legislative Leadership [here](https://malegislature.gov/Legislators/Leadership).
 
 ## Meeting 1/30 7:30 - 8:30
 
