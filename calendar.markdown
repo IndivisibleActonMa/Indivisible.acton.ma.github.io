@@ -9,10 +9,14 @@ layout: calendar
 
 ---
 
-
 [Indivisible Acton : Monthly Meeting Dates](http://www.indivisibleacton.org/events/indivisible-acton-monthly-meetings.html)
-
 
 ---
 
-### Please Note: Tuesday, April 24 Meet-Up location is changed to:  Dunkin Donuts on 315 Main St in Acton near Not Your Average Joe's and Acton Liquor
+### *Please Note:*
+
+### Tuesday, April 24 Meet-Up location change
+
+### *Dunkin Donuts, 315 Main St in Acton* near Not Your Average Joe's and Acton Liquor
+
+---
