@@ -14,13 +14,13 @@ For inquiries contact catherine@indivisbleacton.org.
 
 350MA and it’s partners have more actions planned in the next few weeks - a **CALL-IN DAY (April 23rd)** and a **LOBBY DAY (May 10th)** at the State House where they will deliver post cards and meet with lawmakers.  Please join us!!
 
-There are bills in the works right now that could make Massachusetts a leader in the fight against climate change. One in particular, the OMNIBUS CLEAN ENERGY BILL, would be a crucial step in this direction. But industry lobbyists oppose these bills, so we need to counter them with people power. That’s why we’ve selected a few key days of action.
+There are bills in the works right now that could make Massachusetts a leader in the fight against climate change. One in particular, the [OMNIBUS CLEAN ENERGY BILL](https://drive.google.com/file/d/1rnBqBK7nR9KUvOx-zIq9IPgyR74cZxhp/view?usp=sharing), would be a crucial step in this direction. But industry lobbyists oppose these bills, so we need to counter them with people power. That’s why we’ve selected a few key days of action.
 
 To sign up for either the Call-In Day or the Lobby Day, use this link:
 Sign up to go [here](https://marchforscienceboston.betterfutureproject.org/sign_up). 
 
 Here is the legislation we are fighting for:
-[An Act to Promote a Clean Energy Future](https://indivisible-ma.slack.com/files/U8QNQNV5H/FA9FG3D2Q/an_act_to_promote_a_clean_energy_future_2.jpg)
+[An Act to Promote a Clean Energy Future](https://drive.google.com/file/d/1rnBqBK7nR9KUvOx-zIq9IPgyR74cZxhp/view?usp=sharing)
 
 **Please call the following people** to tell them you support this legislation: Your own Rep and Senator, [Tom Golden](https://malegislature.gov/Legislators/Profile/TAG1)  (Chair of the Telecommunications, Utilities and Energy (617-722-2263) and Speaker of the House [Robert DeLeo] (https://malegislature.gov/Legislators/Profile/RAD1) (617-722-2500)
 
