@@ -8,7 +8,7 @@ layout: page
 
 ---
 
-* Support Bill S.2302 - *An Act to promote a clean energy future* by clicking [here](https://environmentmassachusetts.org/blogs/blog/mae/massachusetts-draws-closer-100-percent-renewable-commitment-0)  to sign the letter
+* Support Bill S.2302 - *An Act to promote a clean energy future* [here](https://docs.google.com/forms/d/e/1FAIpQLSfKI4V6hrMWmT6SIoITG-5eFS2-2GM5_eyIx98P8xCxlgu6Qw/viewform) to sign the letter
 
 
 * [About Environment Massachusetts](https://environmentmassachusetts.org/page/mae/about-environment-massachusetts)
