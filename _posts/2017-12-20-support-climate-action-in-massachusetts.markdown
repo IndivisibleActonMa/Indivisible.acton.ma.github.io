@@ -2,7 +2,7 @@
 title: Support Climate Action in Massachusetts
 date: 2017-12-20 10:20:00 -05:00
 is featured: true
-main-image: "/uploads/march_banner.jpg"
+main-image: "/uploads/An%20Act%20to%20Promote%20a%20Clean%20Energy%20Future%202.jpg"
 ---
 
 ## Group Captains
