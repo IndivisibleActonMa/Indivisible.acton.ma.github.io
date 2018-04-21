@@ -13,10 +13,8 @@ layout: calendar
 
 ---
 
-### *Please Note:*
+### *Please Note*
 
-### Tuesday, April 24 Meet-Up location change
-
-### *Dunkin Donuts, 315 Main St in Acton* near Not Your Average Joe's and Acton Liquor
+* *Tuesday, April 24 Meet-Up* location has changed to  *Dunkin Donuts, 315 Main St in Acton* near Not Your Average Joe's and Acton Liquor
 
 ---
