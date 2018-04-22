@@ -43,7 +43,7 @@ layout: page
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
 
 
-* May 5, 2018 2-5p : Sister District Project - [Battle Road Walk for Melissa Shusterman](http://sisterdistrictma.com/event/battle-road-walk-for-melissa-shusterman-2018-05-05/)
+* May 5, 2018 2-5p, Concord, MA : Sister District Project - [Battle Road Walk for Melissa Shusterman](http://sisterdistrictma.com/event/battle-road-walk-for-melissa-shusterman-2018-05-05/)
 
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
