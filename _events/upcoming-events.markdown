@@ -10,7 +10,6 @@ layout: page
 
 ### Click [here](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal) to see events published on Indivisible Acton's Public Facebook page.
 
-
 ### [Check our calendar](http://www.indivisibleacton.org/calendar.html)
 
 ---
@@ -30,6 +29,9 @@ layout: page
 
 
 * April 14, 2018 1p -3p :  [March For Science Boston](https://www.facebook.com/events/189078908364928/)
+
+
+* May 5, 2018 2-5p : Sister District Project - [Battle Road Walk for Melissa Shusterman](http://sisterdistrictma.com/event/battle-road-walk-for-melissa-shusterman-2018-05-05/)
 
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
