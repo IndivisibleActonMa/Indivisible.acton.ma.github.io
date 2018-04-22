@@ -40,8 +40,6 @@ layout: page
 * April 28, 2018 1-3p, Littleton, MA: [3rd District Candidate forum with Dan Koh, Barbara L'Italien, Bopha Malone](https://www.facebook.com/events/573559456341019/)
 
 
-* [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
-
 
 * May 5, 2018 2-5p, Concord, MA : Sister District Project - [Battle Road Walk for Melissa Shusterman](http://sisterdistrictma.com/event/battle-road-walk-for-melissa-shusterman-2018-05-05/)
 
