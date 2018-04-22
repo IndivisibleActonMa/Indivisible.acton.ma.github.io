@@ -29,7 +29,7 @@ layout: page
 
 [A closed Facebook Group to which people post events and news](https://www.facebook.com/groups/indivisibleacton)
 
-[The collaboration tool Slack is used for planning events](indivisibleacton.slack.com)
+[The collaboration tool Slack is used for planning events](https://indivisibleacton.slack.com)
 
 [Twitter introduction](https://drive.google.com/file/d/0BwLIGG6Uwnr_Y0h2a3EwS0hiWTF6dHNkLXR1OUZMOGhibHpr/view)
 
