@@ -31,7 +31,7 @@ layout: page
 * April 14, 2018 1p -3p :  [March For Science Boston](https://www.facebook.com/events/189078908364928/)
 
 
-* April 26, 2018 6:30-8:30p, Concord, MA: \[Meet and greet Rep. Juana Matias\]https://www.facebook.com/events/2055107544761020/)
+* April 26, 2018 6:30-8:30p, Concord, MA: [Meet and greet Rep. Juana Matias](https://www.facebook.com/events/2055107544761020/)
 
 
 * April 27, 2018 6-9p, Berlin, MA: [3rd Congressional District Candidate Forum with Rufus Gifford, Dan Koh, Barbara L'Italien, Juana Matias, and Lori Trahan](https://www.facebook.com/events/1779924995386306/)
