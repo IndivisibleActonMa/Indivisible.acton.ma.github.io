@@ -4,11 +4,13 @@ date: 2018-03-12 23:39:00 -04:00
 layout: page
 ---
 
-### Click [here](/uploads/apr17newsletter.pdf) for the current weekly newsletter.
+### Click [here](/uploads/apr24newsletter.pdf) for the current weekly newsletter.
 
 ---
 
 ### Past Newsletters
+
+* [Newsletter, April 17, 2018](/uploads/apr17newsletter.pdf) 
 
 * [Newsletter, April 10, 2018](/uploads/Apr10Newsletter.pdf)
 
