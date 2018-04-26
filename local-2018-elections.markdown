@@ -7,7 +7,7 @@ date: 2017-12-20 21:38:00 -05:00
 
 [Schedule of upcoming events and locations](https://goo.gl/eFdgnJ).
 
-Video: [3rd Congressional District Candidates Forum 2018](https://vimeo.com/254683036)
+[Video of 3rd Congressional District Candidates Forum 2018](https://vimeo.com/254683036)
 
 ## Governor
 
