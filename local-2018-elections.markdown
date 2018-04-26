@@ -7,6 +7,8 @@ date: 2017-12-20 21:38:00 -05:00
 
 [Schedule of upcoming events and locations](https://goo.gl/eFdgnJ).
 
+Video: [3rd Congressional District Candidates Forum 2018](https://vimeo.com/254683036)
+
 ## Governor
 
 [Presentation by Candidate Bob Massie at Indivisible Acton Anniversary Meeting 2/12/18](https://youtu.be/8S159lWDy6U)
