@@ -7,7 +7,6 @@ date: 2017-12-20 21:38:00 -05:00
 
 [Schedule of upcoming events and locations](https://goo.gl/eFdgnJ).
 
-[Video of 3rd Congressional District Candidates Forum 2018](https://vimeo.com/254683036)
 
 ## Governor
 
@@ -30,6 +29,8 @@ date: 2017-12-20 21:38:00 -05:00
 ## Congressional District MA-3
 
 [An overview document of all the candidates](https://docs.google.com/presentation/d/1U4vfvlHfxJlbSxCuq8muFvahNwaD7yzgzgYcRJjV7gA/edit#slide=id.g2a5734a2c3_0_0)
+
+[Video of 3rd Congressional District Candidates Forum 2018](https://vimeo.com/254683036)
 
 [Presentation by Candidate Tami Gouveia at General Meeting 4/9/18](https://www.youtube.com/watch?v=PMjNN9qfiPA)
 
