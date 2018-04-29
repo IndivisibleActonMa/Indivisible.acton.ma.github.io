@@ -32,8 +32,6 @@ date: 2017-12-20 21:38:00 -05:00
 
 [Video of 3rd Congressional District Candidates Forum 2018](https://vimeo.com/254683036)
 
-[Presentation by Candidate Tami Gouveia at General Meeting 4/9/18](https://www.youtube.com/watch?v=PMjNN9qfiPA)
-
 [Presentation by Candidate Bopha Malone at Forum on 2/21/18](https://youtu.be/cMvyc5yM0cM)
 
 [Presentation by Candidate Alexandra Chandler at Forum on 2/21/18](https://youtu.be/dvdnsjNwZJg)
@@ -51,6 +49,8 @@ date: 2017-12-20 21:38:00 -05:00
 [Presentation by Candidate Alexandra Chandler at General Meeting on 12/11/17](https://youtu.be/HQba51Ncvjo)
 
 ## MA Representative 14th Middlesex
+
+[Presentation by Candidate Tami Gouveia at General Meeting 4/9/18](https://www.youtube.com/watch?v=PMjNN9qfiPA)
 
 [Video Presentation by Candidate Ben Bloomenthal at General Meeting on 12/11/17
 ](https://youtu.be/rBF8WGN0Jp0)
