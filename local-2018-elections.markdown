@@ -30,6 +30,8 @@ date: 2017-12-20 21:38:00 -05:00
 
 [An overview document of all the candidates](https://docs.google.com/presentation/d/1U4vfvlHfxJlbSxCuq8muFvahNwaD7yzgzgYcRJjV7gA/edit#slide=id.g2a5734a2c3_0_0)
 
+[UMass Lowell 3rd District Congressional Debate 2018](https://livestream.com/uml/events/8164980/videos/174150308)
+
 [Video of 3rd Congressional District Candidates Forum 2018](https://vimeo.com/254683036)
 
 [Presentation by Candidate Bopha Malone at Forum on 2/21/18](https://youtu.be/cMvyc5yM0cM)
