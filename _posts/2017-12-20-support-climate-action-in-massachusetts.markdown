@@ -12,7 +12,9 @@ For inquiries contact catherine@indivisbleacton.org.
 
 ## CLEAN ENERGY AND ENVIRONMENTAL JUSTICE LOBBY DAY          
 
-Please sign up to meet with your legislator to promote Clean Energy and Environmental Justice legislation [here](https://docs.google.com/forms/d/e/1FAIpQLSej-Wi3PsSuNKM5cY8kRT_bMUwYRnChmhtJ_4V2dBY7y89cLA/viewform).
+On Thursday, May 10th, we'll be continuing our march for science, by bringing our voices directly to our legislators on Beacon Hill.  That's right:  we're doing a lobby day!!  With the help of our allies in Mass Power Forward, we will continue to push our leaders to respond to our demands concerning clean energy and environmental justice.  
+
+Sign up [here](https://docs.google.com/forms/d/e/1FAIpQLSej-Wi3PsSuNKM5cY8kRT_bMUwYRnChmhtJ_4V2dBY7y89cLA/viewform).
 
 ## THE LATEST CLIMATE ACTION PUSH - IT’S CARBON PRICING WEEK!!                
 
@@ -40,7 +42,7 @@ www.cleanwateraction.org
 Here is the legislation we are fighting for:
 [An Act to Promote a Clean Energy Future](https://drive.google.com/file/d/1rnBqBK7nR9KUvOx-zIq9IPgyR74cZxhp/view?usp=sharing)
 
-**Please call the following people** to tell them you support this legislation: Your own Rep and Senator, [Tom Golden](https://malegislature.gov/Legislators/Profile/TAG1)  (Chair of the Telecommunications, Utilities and Energy (617-722-2263) and Speaker of the House [Robert DeLeo] (https://malegislature.gov/Legislators/Profile/RAD1) (617-722-2500)
+**Please call the following people** to tell them you support this legislation: Your own Rep and Senator, [Tom Golden](https://malegislature.gov/Legislators/Profile/TAG1)  (Chair of the Telecommunications, Utilities, and Energy (617-722-2263) and Speaker of the House [Robert DeLeo] (https://malegislature.gov/Legislators/Profile/RAD1) (617-722-2500)
 
 You can find the phone numbers for your legislators [here](https://malegislature.gov/Search/FindMyLegislator): 
 
@@ -86,12 +88,12 @@ Let's shock the State House with calls on 1/17 to show that we are organized (an
 
 [MA Clean Energy Call in Day Script 1/17/18](https://docs.google.com/document/d/1sW0xRwaU4M-jSEbycjoTSWV4VH4x1X06G8zTnyd35R8/edit?usp=drivesdk)
 
-[Indivisible Acton members customized Clean Energy and Elections Call In Day Script 1/17/18](https://goo.gl/Srj87D)
+[Indivisible Acton members customized Clean Energy and Elections Call-In Day Script 1/17/18](https://goo.gl/Srj87D)
 
 ## Meeting 1/13/18
 [Catherine's Meeting Notes](https://docs.google.com/document/d/1yCiLplcnrtyg0UiTkI1xoEmH9gJmtWwyCqKg7KgS940/edit?usp=sharing)
 
-[Recording of conference call to coordinate the state action on 1/13](https://drive.google.com/open?id=1o4nkgntmrn3lWZ0VedDkjM8nYT7fX-Jp)
+[Recording of the conference call to coordinate the state action on 1/13](https://drive.google.com/open?id=1o4nkgntmrn3lWZ0VedDkjM8nYT7fX-Jp)
 
 [Chat Transcript](https://drive.google.com/open?id=1Ebx1vFKZquNeTgN5rkJsdDWcksAiuzMr)
 
@@ -99,7 +101,7 @@ Call In script that was discussed is above.
 
 [Meeting Agenda](https://docs.google.com/document/d/1OSxATdRkBVBe696hbqdzKfD6qBiGJJMOsWcixfuB18M/edit?usp=drivesdk)
 
-## Meeting with Senator Jamie Eldridge, Mass Power Forward and Indivisible
+## Meeting with Senator Jamie Eldridge, Mass Power Forward, and Indivisible
 
 On 1/5/18 a meeting was held with Senator Jamie Eldridge, a leader on climate legislation, to strategize on how to get climate bills out of committee by the deadline of 2/7/18. Many representatives from Indivisible and Climate Action groups were present.
 
