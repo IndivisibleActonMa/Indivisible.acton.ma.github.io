@@ -10,14 +10,28 @@ main-image: "/uploads/An%20Act%20to%20Promote%20a%20Clean%20Energy%20Future%202.
 
 For inquiries contact catherine@indivisbleacton.org.
 
-### WE AREN’T DONE YET!  WE HAVE TO KEEP THE PRESSURE UP ON OUR LEGISLATORS AND INSIST ON PUBLIC POLICIES THAT REFLECT THE SCIENTIFIC FACTS - NOT THE DEMANDS OF CORPORATE LOBBYISTS.  
+## THE LATEST CLIMATE ACTION PUSH - IT’S CARBON PRICING WEEK!!                
 
-350MA and it’s partners have more actions planned in the next few weeks - a **CALL-IN DAY (April 23rd)** and a **LOBBY DAY (May 10th)** at the State House where they will deliver post cards and meet with lawmakers.  Please join us!!
+Welcome to the MA Campaign for a Clean Energy Future’s Spring Forward Week of Action!  For the week of April 30th - May 6th we’re working to mobilize in every corner of the state with a 3 fold plan of action:
 
-There are bills in the works right now that could make Massachusetts a leader in the fight against climate change. One in particular, the [OMNIBUS CLEAN ENERGY BILL](https://drive.google.com/file/d/1rnBqBK7nR9KUvOx-zIq9IPgyR74cZxhp/view?usp=sharing), would be a crucial step in this direction. But industry lobbyists oppose these bills, so we need to counter them with people power. That’s why we’ve selected a few key days of action.
+1. Send postcards to Governor Baker urging his support for carbon pricing
 
-To sign up for either the Call-In Day or the Lobby Day, use this link:
-Sign up to go [here](https://marchforscienceboston.betterfutureproject.org/sign_up). 
+2. Call and write House members urging support for movement THIS session (see below for names and contact info)
+
+3. Submit letters to the editor to highlight the urgency of carbon pricing NOW
+
+We’ve attached the toolkit that includes sample invites, messages, and letters to make this as simple as possible for our coalition members to speak out.
+
+Grassroots leaders across the state are scheduling house parties and public events to get lots of people involved -- let us know if you have any questions about events in your area or if you’d like to host an event yourself. And share updates about your events as well so we can track progress.
+
+For Info call:
+Cindy Luppi
+New England Director
+Clean Water Action and Clean Water Fund
+88 Broad St.
+Boston, MA 02110
+ph: 617/338-8131 x208
+www.cleanwateraction.org
 
 Here is the legislation we are fighting for:
 [An Act to Promote a Clean Energy Future](https://drive.google.com/file/d/1rnBqBK7nR9KUvOx-zIq9IPgyR74cZxhp/view?usp=sharing)
