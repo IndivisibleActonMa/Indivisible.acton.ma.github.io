@@ -10,6 +10,10 @@ main-image: "/uploads/An%20Act%20to%20Promote%20a%20Clean%20Energy%20Future%202.
 
 For inquiries contact catherine@indivisbleacton.org.
 
+## CLEAN ENERGY AND ENVIRONMENTAL JUSTICE LOBBY DAY          
+
+Please sign up to meet with your legislator to promote Clean Energy and Environmental Justice legislation [here](https://docs.google.com/forms/d/e/1FAIpQLSej-Wi3PsSuNKM5cY8kRT_bMUwYRnChmhtJ_4V2dBY7y89cLA/viewform).
+
 ## THE LATEST CLIMATE ACTION PUSH - IT’S CARBON PRICING WEEK!!                
 
 Welcome to the MA Campaign for a Clean Energy Future’s Spring Forward Week of Action!  For the week of April 30th - May 6th we’re working to mobilize in every corner of the state with a 3 fold plan of action:
