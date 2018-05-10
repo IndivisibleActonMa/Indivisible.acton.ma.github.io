@@ -26,7 +26,7 @@ Welcome to the MA Campaign for a Clean Energy Future’s Spring Forward Week of 
 
 3. Submit letters to the editor to highlight the urgency of carbon pricing NOW
 
-We’ve attached the toolkit that includes sample invites, messages, and letters to make this as simple as possible for our coalition members to speak out.
+[We’ve attached the toolkit](https://drive.google.com/open?id=1ilWYjBSjeGmgSiUrW9b_a-AArYLtzS8b) that includes sample invites, messages, and letters to make this as simple as possible for our coalition members to speak out.
 
 Grassroots leaders across the state are scheduling house parties and public events to get lots of people involved -- let us know if you have any questions about events in your area or if you’d like to host an event yourself. And share updates about your events as well so we can track progress.
 
