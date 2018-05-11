@@ -31,7 +31,7 @@ layout: page
 * ***Please note - this event has been CANCELLED:*** May 12, 2018 11a-12p, Fitchburg, MA : 3rd Congressional District Democratic Candidate Forum - all candidates @Knights of Columbus, 165 Electric Ave, Fitchburg, MA 01420
 
 
-* May 14, 6:30-8:45p, Acton, MA : Indivisible General Monthly Meeting @Acton Memorial Library,  486 Main St, Acton, MA 01720
+* May 14, 6:30-8:45p, Acton, MA : [Indivisible General Monthly Meeting](https://www.facebook.com/events/2083646571921060/) @Acton Memorial Library,  486 Main St, Acton, MA 01720
 
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
