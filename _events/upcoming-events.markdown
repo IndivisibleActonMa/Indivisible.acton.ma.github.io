@@ -28,7 +28,7 @@ layout: page
 * May 9, 2018 5-7p, Fitchburg, MA : [Debate #2 - Democratic Candidates for District 3](http://www.lowellsun.com/todaysheadlines/ci_31773152/3rd-district-dem-hopefuls-join-sun-debates#ixzz5BfgCXSc2)
 
 
-* ***Please note - this event has been CANCELLED:*** May 12, 2018 11a-12p, Fitchburg, MA : 3rd Congressional District Democratic Candidate Forum - all candidates @Knights of Columbus, 165 Electric Ave, Fitchburg, MA 01420
+* May 12, 2018 10a-2p, Fitchburg, MA : 3rd [Congressional District Democratic Candidate Forum - all candidates](https://www.facebook.com/events/1905246742833106/) @Knights of Columbus, 165 Electric Ave, Fitchburg, MA 01420
 
 
 * May 14, 6:30-8:45p, Acton, MA : [Indivisible General Monthly Meeting](https://www.facebook.com/events/2083646571921060/) @Acton Memorial Library,  486 Main St, Acton, MA 01720
