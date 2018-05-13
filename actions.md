@@ -5,6 +5,9 @@ main-image:
 layout: page
 ---
 
+### Contacts
+[Email contacts for our many activities](https://docs.google.com/document/d/167XkAyAtBCJ3HmgjTck0K9iWESpXIHf00uFoKZ8vcck/edit)
+
 ### Getting involved
 
 [Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
@@ -13,17 +16,20 @@ layout: page
 
 ### Find out what's going on
 
-[Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
-
-[The Environment](http://www.indivisibleacton.org/events/the-environment.html)
-
 [Indivisible-Acton Monthly Meetings](http://www.indivisibleacton.org/events/indivisible-acton-monthly-meetings.html)
 
 [Calendar](http://www.indivisibleacton.org/calendar.html)
 
-[Newsletters](http://www.indivisibleacton.org/events/newsletters.html)
+If you join you get our twice weekly newsletter. Newsletter Deadlines:  For Friday's newsletter, deadline is Thursday at 4; for Tuesday's newsletter, deadline is 4pm on Sunday.
+Email: newsletter@indivisibleacton.org
+Slack: post in channel #ia_newsletter
 
 ---
+### Events
+
+[List of steps to organize Events](http://www.indivisibleacton.org/events/organize-an-event.html)
+
+[Video Tutorial: How to announce and share an event on Facebook](https://youtu.be/Pt8IsVoY8ts)
 
 ### Communication
 
@@ -43,11 +49,6 @@ layout: page
 
 [Indivisible National Webinar - Relationship Building](https://drive.google.com/file/d/13Vx9zKUOPpL1O5f60_5iembcwZu2oXr3/view)
 
-### Events
-
-[How to organize Events](http://www.indivisibleacton.org/events/organize-an-event.html)
-
-[Video Tutorial: How to announce and share an event on Facebook](https://youtu.be/Pt8IsVoY8ts)
 
 ---
 
