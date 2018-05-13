@@ -17,7 +17,7 @@ To organize an event not much is needed:
   -) Copy the link from the top browser bar.
   -) Share the post to the group's *private* page
 [https://www.facebook.com/groups/IndivisibleActon/](https://www.facebook.com/groups/IndivisibleActon/)
-  -) Ask to share the post to other groups by emailing facebook@indivisibleacton.org 
+  -) Ask to share the post to other groups by emailing [jeanie@indivisibleacton.org](mailto:jeanie@indivisibleacton.org) 
 
 * Optionally: create a signup with [The Action Network](http://actionnetwork.org) -preferred- OR [Eventbrite](http://eventbrite.com) whatever tool you like.
 
