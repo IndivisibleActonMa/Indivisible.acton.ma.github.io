@@ -1,6 +1,6 @@
 ---
 title: Organize an Event!
-date: 2018-03-02 19:59:00 -05:00
+date: 2018-05-12 19:59:00 -04:00
 layout: post
 ---
 
