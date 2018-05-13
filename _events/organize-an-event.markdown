@@ -8,13 +8,16 @@ layout: post
 
 ---
 
-To organize an event not much is needed:
+To organize an event we wish to reach people in as many ways as possible.
 
+### Basic Organization of your ACTION
 * Decide on a date, time, duration and location
 
 * Provide a title and a description.
 
-* Post about it on Facebook:
+* Optional: If you wish people to sign up: create a signup with [The Action Network](http://actionnetwork.org) -preferred- OR [Eventbrite](http://eventbrite.com) whatever tool you like.
+
+### Facebook
 
 [Video Tutorial: How to announce and share an event on Facebook](https://youtu.be/Pt8IsVoY8ts)
 
@@ -27,14 +30,19 @@ To organize an event not much is needed:
 
   -) Ask to share the post to other groups by emailing [jeanie@indivisibleacton.org](mailto:jeanie@indivisibleacton.org) 
 
-* Optionally: create a signup with [The Action Network](http://actionnetwork.org) -preferred- OR [Eventbrite](http://eventbrite.com) whatever tool you like.
+### Website
 
 * Add the events to the group's calendar by clicking [here](https://docs.google.com/forms/d/e/1FAIpQLSceZqvFrTjQSVDc-NH12WPMV0vHF853zF3NPtmIQCNzIHcqjw/viewform).
 
-The form will ask to include *the link* to your Facebook post or Action Network event. In that way, people can click on the link in the calendar entry for up to date information.
+* The form will ask to include *the link* to your Facebook post or Action Network event. In that way, people can click on the link in the calendar entry for up to date information.
 
-* Post it into the newsletter. 
+* If you are planning a series of actions, ask for website entry, by posting in the #ia_website channel on Slack.
+
+### Newsletter
+* Post your ACTION into the newsletter. 
+
 Preferred: add a blurb the #ia_newsletter channel on IA Slack. Include *the link* above.
 Alternative: send an email to newsletter@indivisibleacton.org.
 
-If you need to update the entry in the calendar email \[Joris\](mailto: Joris@indivisibleacton.org)
+### Help
+If you need help or wish to update an entry in the calendar email the steering committee members. \[Steering\](mailto: Steering@indivisibleacton.org)
