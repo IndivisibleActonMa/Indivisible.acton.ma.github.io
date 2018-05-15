@@ -8,9 +8,20 @@ layout: page
 
 ---
 
+**Newsletter Deadlines:**
+
+* Friday’s newsletter - deadline is Thursday at 4;
+
+* Tuesday’s newsletter - deadline is 4pm on Sunday.
+
+**Email:**  newsletter@indivisibleacton.org
+**Slack:**  post in channel #ia_newsletter
+
+---
+
 ### Past Newsletters
 
-* [Newsletter, May 8](/uploads/may8newsletter.pdf)
+* [Newsletter, May 8, 2018](/uploads/may8newsletter.pdf)
 
 * [Newsletter, May 1, 2018](/uploads/may1newsletter.pdf)
 
