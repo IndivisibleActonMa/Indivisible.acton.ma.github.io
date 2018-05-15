@@ -34,6 +34,9 @@ layout: page
 * May 14, 6:30-8:45p, Acton, MA : [Indivisible General Monthly Meeting](https://www.facebook.com/events/2083646571921060/) @Acton Memorial Library,  486 Main St, Acton, MA 01720
 
 
+* May 22, 7-9p, Acton, MA : Fourth Tuesday Meetup  @Donelan's Cafe, Great Rd., Acton - Terra Friedrichs, Green Party Candidate for MA Secretary of State will introduce herself.
+
+
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
 
 ---
