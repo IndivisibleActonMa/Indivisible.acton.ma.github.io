@@ -6,6 +6,7 @@ layout: page
 ---
 
 ### Contacts
+
 [Email contacts for our many activities](https://docs.google.com/document/d/167XkAyAtBCJ3HmgjTck0K9iWESpXIHf00uFoKZ8vcck/edit)
 
 ### Getting involved
@@ -20,16 +21,19 @@ layout: page
 
 [Calendar](http://www.indivisibleacton.org/calendar.html)
 
-If you [join](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton), you get our twice weekly newsletter. 
+If you [join](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton), you get our twice weekly newsletter.
 
-Newsletter Deadlines:  
+Newsletter Deadlines:
+
 * Friday's newsletter - deadline is Thursday, 4p. at 4p
+
 * Tuesday's newsletter - deadline is Sunday, 4p.
 
-Email:  newsletter@indivisibleacton.org
+Email:  newsletter@indivisibleacton.org 
 Slack:  post in channel #ia_newsletter
 
 ---
+
 ### Events
 
 [List of steps to organize Events](http://www.indivisibleacton.org/events/organize-an-event.html)
@@ -53,7 +57,6 @@ Slack:  post in channel #ia_newsletter
 [Video Tutorial : Slack on App](https://youtu.be/-KHmfHQpXT0)
 
 [Indivisible National Webinar - Relationship Building](https://drive.google.com/file/d/13Vx9zKUOPpL1O5f60_5iembcwZu2oXr3/view)
-
 
 ---
 
