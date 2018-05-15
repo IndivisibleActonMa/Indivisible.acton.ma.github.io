@@ -4,11 +4,13 @@ date: 2018-03-12 23:39:00 -04:00
 layout: page
 ---
 
-### Click [here](/uploads/may8newsletter.pdf) for the current weekly (May 8) newsletter.
+### Click [here](/uploads/may15newsletter.pdf) for the current weekly (May 15) newsletter.
 
 ---
 
 ### Past Newsletters
+
+* [Newsletter, May 8](/uploads/may8newsletter.pdf)
 
 * [Newsletter, May 1, 2018](/uploads/may1newsletter.pdf)
 
