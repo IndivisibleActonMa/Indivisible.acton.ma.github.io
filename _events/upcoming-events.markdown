@@ -31,7 +31,6 @@ layout: page
 * May 12, 2018 10a-2p, Fitchburg, MA : 3rd [Congressional District Democratic Candidate Forum - all candidates](https://www.facebook.com/events/1905246742833106/) @Knights of Columbus, 165 Electric Ave, Fitchburg, MA 01420
 
 
-
 * May 14, 6:30-8:45p, Acton, MA : [Indivisible General Monthly Meeting](https://www.facebook.com/events/2083646571921060/) @Acton Memorial Library,  486 Main St, Acton, MA 01720
 
 
@@ -44,10 +43,8 @@ layout: page
 * May 17, 3p, Boston: Democratic Gubernatorial Debate, Campus Center at UMASS Boston. Click [here](https://www.facebook.com/events/290031621533653/) for more info.
 
 
-* May 17, 7:30-9pm, Brookline: Abby Finkenauer (IA-02) Fundraiser RSVP: [actblue.com/donate/fmaf](https://secure.actblue.com/donate/fmaf).
 
-
-* May 22, 7p, Acton, MA : Terra Friedrichs, Green Party Candidate for MA Secretary of State will stop in to introduce herself at our Fourth Tuesday Meetup  @Donelan's Cafe, Great Rd., Acton
+* May 22, 7p, Acton, MA : Terra Friedrichs, Green Party Candidate for state senate will stop in to introduce herself at our Fourth Tuesday Meetup  @Donelan's Cafe, Great Rd., Acton
 
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
