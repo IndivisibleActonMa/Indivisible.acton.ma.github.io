@@ -20,9 +20,14 @@ layout: page
 
 [Calendar](http://www.indivisibleacton.org/calendar.html)
 
-If you join you get our twice weekly newsletter. Newsletter Deadlines:  For Friday's newsletter, deadline is Thursday at 4; for Tuesday's newsletter, deadline is 4pm on Sunday.
-Email: newsletter@indivisibleacton.org
-Slack: post in channel #ia_newsletter
+If you [join](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton), you get our twice weekly newsletter. 
+
+Newsletter Deadlines:  
+* Friday's newsletter - deadline is Thursday, 4p. at 4p
+* Tuesday's newsletter - deadline is Sunday, 4p.
+
+Email:  newsletter@indivisibleacton.org
+Slack:  post in channel #ia_newsletter
 
 ---
 ### Events
