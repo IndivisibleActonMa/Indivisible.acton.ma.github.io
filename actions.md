@@ -30,6 +30,7 @@ Newsletter Deadlines:
 * Tuesday's newsletter - deadline is Sunday, 4p.
 
 Email:  newsletter@indivisibleacton.org 
+
 Slack:  post in channel #ia_newsletter
 
 ---
