@@ -44,7 +44,7 @@ layout: page
 
 
 
-* May 22, 7p, Acton, MA : Terra Friedrichs, Green Party Candidate for state senate will stop in to introduce herself at our Fourth Tuesday Meetup  @Donelan's Cafe, Great Rd., Acton
+* May 22, 7p, Acton, MA : Terra Friedrichs, Green Party Candidate for State Senator will stop in to introduce herself at our Fourth Tuesday Meetup  @Donelan's Cafe, Great Rd., Acton
 
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
