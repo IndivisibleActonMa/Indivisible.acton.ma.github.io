@@ -4,8 +4,7 @@ date: 2018-01-17 10:41:00 -05:00
 layout: page
 ---
 
-![20180513 Indivisible & Activist Alliance-02bba0.jpg](/uploads/20180513%20Indivisible%20&%20Activist%20Alliance-02bba0.jpg)
-
+![20180513 Indivisible & Activist Alliance.jpg](/uploads/20180513%20Indivisible%20&%20Activist%20Alliance.jpg)
 
 ---
 
