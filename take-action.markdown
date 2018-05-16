@@ -20,6 +20,6 @@ Click [here](https://raiseupma.org) to help fight for: Paid Family and Medical L
 
 ---
 
-### Click [here to Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
+### Click [here](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)  to Join Indivisible Acton!
 
 ---
