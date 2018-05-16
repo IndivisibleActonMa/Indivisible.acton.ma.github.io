@@ -4,7 +4,8 @@ date: 2018-01-17 10:41:00 -05:00
 layout: page
 ---
 
-![20180513 Indivisible & Activist Alliance.jpg](/uploads/20180513%20Indivisible%20&%20Activist%20Alliance.jpg)
+![20180513 Indivisible & Activist Alliance-02bba0.jpg](/uploads/20180513%20Indivisible%20&%20Activist%20Alliance-02bba0.jpg)
+
 
 ---
 
@@ -18,8 +19,6 @@ Click [here](https://www.freedommassachusetts.org)  to show your support for uph
 
 Click [here](https://raiseupma.org) to help fight for: Paid Family and Medical Leave, A $15 Minimum Wage, and The Fair Share Amendment.
 
----
-
-### Click [here](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)  to Join Indivisible Acton!
+Click [here to Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
 
 ---
