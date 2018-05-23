@@ -47,6 +47,12 @@ layout: page
 * May 22, 7p, Acton, MA : Terra Friedrichs, Green Party Candidate for State Senator will stop in to introduce herself at our Fourth Tuesday Meetup  @Donelan's Cafe, Great Rd., Acton
 
 
+* Thursday, May 31, 6:30-8:45pm, Acton: Phone bank to flip the House at the Acton Memorial Library second-floor conference room.
+
+
+* Thursday, May 31, 7-9pm, Harvard: Climate Risk and Resiliency in Harvard at Harvard Town Hall. Come hear local committees, boards, organizations, and others working to protect and sustain our natural and municipal resources -- and how you can help!
+
+
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
 
 ---
