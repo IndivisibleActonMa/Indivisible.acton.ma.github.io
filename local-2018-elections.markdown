@@ -5,7 +5,7 @@ date: 2017-12-20 21:38:00 -05:00
 
 ## Candidate Forums
 
-[Schedule of upcoming events and locations](https://goo.gl/eFdgnJ).
+[Schedule of past forums](https://goo.gl/eFdgnJ).
 
 ---
 
@@ -38,7 +38,7 @@ Website: [​https://www.jimmytingle4mass.com/](%E2%80%8Bhttps://www.jimmytingle
 
 Website: [​https://www.quentinpalfrey.com/](%E2%80%8Bhttps://www.quentinpalfrey.com/)
 
---- 
+---
 
 ## Secretary of State
 
