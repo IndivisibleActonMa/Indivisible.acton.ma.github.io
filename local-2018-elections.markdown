@@ -90,3 +90,11 @@ Website: [http://www.billgalvin.org](http://www.billgalvin.org)
 
 [Video Presentation by Candidate Ben Bloomenthal at General Meeting on 12/11/17
 ](https://youtu.be/rBF8WGN0Jp0)
+
+[Presentation by Candidate Christian Kreuger at General Meeting 5/14/18](https://youtu.be/IrwOE4yCBg8)
+
+[Presentation by Green Party Candidate Daniel Factor at General Meeting 5/14/18](https://youtu.be/BksBWjk8zDM)
+
+### MA Senator
+[Opening of Presentation by Candidate Terra Friedrichs 5/21/18](https://youtu.be/H53vxrRoj2g)
+[Body of Presentation by Candidate Terra Friedrichs 5/21/18](https://youtu.be/7zYergMPENI)
