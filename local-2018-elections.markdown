@@ -95,6 +95,6 @@ Website: [http://www.billgalvin.org](http://www.billgalvin.org)
 
 [Presentation by Green Party Candidate Daniel Factor at General Meeting 5/14/18](https://youtu.be/BksBWjk8zDM)
 
-### MA Senator
+## MA Senator
 [Opening of Presentation by Candidate Terra Friedrichs 5/21/18](https://youtu.be/H53vxrRoj2g)
 [Body of Presentation by Candidate Terra Friedrichs 5/21/18](https://youtu.be/7zYergMPENI)
