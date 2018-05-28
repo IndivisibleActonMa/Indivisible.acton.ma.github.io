@@ -43,8 +43,10 @@ layout: page
 * May 17, 3p, Boston: Democratic Gubernatorial Debate, Campus Center at UMASS Boston. Click [here](https://www.facebook.com/events/290031621533653/) for more info.
 
 
-
 * May 22, 7p, Acton, MA : Terra Friedrichs, Green Party Candidate for State Senator will stop in to introduce herself at our Fourth Tuesday Meetup  @Donelan's Cafe, Great Rd., Acton
+
+
+* May 29, 7-8:30p, Lunenburg, MA : Meet Josh Zakim, Barbara L'Italien, and Russ Gifford @ the Lunenburg Public Library!  Hosted by Lunenburg Democratic Town Committee.  Click [here](https://www.facebook.com/events/2105067179762750/)  for more info.
 
 
 * Thursday, May 31, 6:30-8:45pm, Acton: Phone bank to flip the House at the Acton Memorial Library second-floor conference room.
