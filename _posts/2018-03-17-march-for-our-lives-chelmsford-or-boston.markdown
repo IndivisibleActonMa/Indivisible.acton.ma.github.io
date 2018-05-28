@@ -6,7 +6,6 @@ is featured: true
 main-image: "/uploads/m4ol.jpg"
 ---
 
-## Joris Wils, Indivisible Acton
 
 March for our Lives: we all are going to go, but where: Chelmsford or Boston? Here are some considerations to help you decide.
 
