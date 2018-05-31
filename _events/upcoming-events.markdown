@@ -55,6 +55,9 @@ layout: page
 * Thursday, May 31, 7-9pm, Harvard: Climate Risk and Resiliency in Harvard at Harvard Town Hall. Come hear local committees, boards, organizations, and others working to protect and sustain our natural and municipal resources -- and how you can help!
 
 
+* Sunday, Jun 10, 2-4pm, Lowell: [Forum for Candidates for 3rd Congressional District](http://https://www.facebook.com/events/811884375668116??ti=ia) at Lowell High School.
+
+
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
 
 ---
