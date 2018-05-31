@@ -8,7 +8,7 @@ Indivisible Acton welcomes candidates and their staff. In order to assure produc
 
 [Candidate and Campaign Etiquette and Policy](https://docs.google.com/document/d/1-G3_GKFkz3fC0VDkfGh4DbC820mzi23yyMG1-EqapfE/edit?usp=sharing)
 
-# CANDIDATE RECORDINGS
+# Candidate Recordings
 
 Campaigns: if your candidate is not recorded here, please email a link to a recording of your candidate to joris@indivisibleacton.org. We will put it up here for our members.
 
