@@ -3,19 +3,20 @@ title: Local 2018 Elections
 date: 2017-12-20 21:38:00 -05:00
 ---
 
-## Candidate Forums
+# Candidate and Campaign Policy and Etiquette
+Indivisible Acton welcomes candidates and their staff. In order to assure productive, fair and healthy discourse between campaigns and Indivisible Acton members these policies have been put in place. And questions or concerns should be directed to the membership coordinator Christine B: christine@indivisibleacton.org.
 
-[Schedule of past forums](https://goo.gl/eFdgnJ).
+[Candidate and Campaign Etiquette and Policy](https://docs.google.com/document/d/1-G3_GKFkz3fC0VDkfGh4DbC820mzi23yyMG1-EqapfE/edit?usp=sharing)
 
----
+# CANDIDATE RECORDINGS
+
+Campaigns: if your candidate is not recorded here, please email a link to a recording of your candidate to joris@indivisibleacton.org. We will put it up here for our members.
 
 ## Governor
 
 [Presentation by Candidate Bob Massie at Indivisible Acton Anniversary Meeting 2/12/18](https://youtu.be/8S159lWDy6U)
 
 [Presentation by Candidate Jay Gonzalez at Acton & Boxborough DTC Gubernatorial Forum 1/13/18](https://youtu.be/W04hUE7sVPg)
-
-[Presentation by Candidate Setti Warren at Acton & Boxborough DTC Gubernatorial Forum 1/13/18](https://youtu.be/ooagkrnlkWE)
 
 ---
 
