@@ -1,5 +1,5 @@
 ---
-title: Local 2018 Elections
+title: 2018 Elections
 date: 2017-12-20 21:38:00 -05:00
 ---
 
