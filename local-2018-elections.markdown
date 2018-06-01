@@ -4,9 +4,10 @@ date: 2017-12-20 21:38:00 -05:00
 ---
 
 # Candidate and Campaign Policy and Etiquette
+
 Indivisible Acton welcomes candidates and their staff. In order to assure productive, fair and healthy discourse between campaigns and Indivisible Acton members these policies have been put in place. And questions or concerns should be directed to the membership coordinator Christine B: christine@indivisibleacton.org.
 
-[**Candidate and Campaign Etiquette and Policy**](https://docs.google.com/document/d/1-G3_GKFkz3fC0VDkfGh4DbC820mzi23yyMG1-EqapfE/edit?usp=sharing)
+**[Candidate and Campaign Etiquette and Policy](https://docs.google.com/document/d/1-G3_GKFkz3fC0VDkfGh4DbC820mzi23yyMG1-EqapfE/edit?usp=sharing)**
 
 # Candidate Recordings
 
@@ -17,6 +18,8 @@ Campaigns: if your candidate is not recorded here, please email a link to a reco
 [Presentation by Candidate Bob Massie at Indivisible Acton Anniversary Meeting 2/12/18](https://youtu.be/8S159lWDy6U)
 
 [Presentation by Candidate Jay Gonzalez at Acton & Boxborough DTC Gubernatorial Forum 1/13/18](https://youtu.be/W04hUE7sVPg)
+
+[Dem Candidates Make Their Case for Governor 5/31/18](https://www.wgbh.org/news/politics/2018/05/31/dem-candidates-slam-baker-make-case-for-governor-in-latest-debate)
 
 ---
 
@@ -97,5 +100,6 @@ Website: [http://www.billgalvin.org](http://www.billgalvin.org)
 [Presentation by Green Party Candidate Daniel Factor at General Meeting 5/14/18](https://youtu.be/BksBWjk8zDM)
 
 ## MA Senator
+
 [Opening of Presentation by Candidate Terra Friedrichs 5/21/18](https://youtu.be/H53vxrRoj2g)
 [Body of Presentation by Candidate Terra Friedrichs 5/21/18](https://youtu.be/7zYergMPENI)
