@@ -10,11 +10,11 @@ layout: page
 
 ### Click [here](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal) to see events published on Indivisible Acton's Public Facebook page.
 
-### [Check our calendar](http://www.indivisibleacton.org/calendar.html)
+### [Check our calendar](http://www.indivisibleacton.org/calendar.html) for regularly scheduled events and other events of interest.
 
 ---
 
-## Events
+## Some Events of Interest
 
 * Sunday, Jun 3, 3-5p, Andover: [Meet Democratic Candidates for MA 3rd District](https://www.facebook.com/groups/ATMMV/permalink/450729802047787/)
 
