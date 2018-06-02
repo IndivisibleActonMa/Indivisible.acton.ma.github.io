@@ -11,7 +11,7 @@ layout: page
 
 ### Getting involved
 
-[Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
+[Join Indivisible Acton](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton) and you get our twice weekly newsletter!
 
 ---
 
@@ -21,27 +21,29 @@ layout: page
 
 [Calendar](http://www.indivisibleacton.org/calendar.html)
 
-If you [join](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton), you get our twice weekly newsletter.
+[Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
 
-Newsletter Deadlines:
+---
+
+### Newsletter Deadlines
 
 * Friday's newsletter - deadline is Thursday, 4p. at 4p
 
 * Tuesday's newsletter - deadline is Sunday, 4p.
 
-Email:  newsletter@indivisibleacton.org 
+Email:  newsletter@indivisibleacton.org
 
 Slack:  post in channel #ia_newsletter
 
 ---
 
-### Events
+### Event How To's
 
 [List of steps to organize Events](http://www.indivisibleacton.org/events/organize-an-event.html)
 
 [Video Tutorial: How to announce and share an event on Facebook](https://youtu.be/Pt8IsVoY8ts)
 
-### Communication
+### Communication How To's
 
 [A closed Facebook Group to which people post events and news](https://www.facebook.com/groups/indivisibleacton)
 
