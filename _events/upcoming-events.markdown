@@ -28,6 +28,12 @@ layout: page
 * Sunday, Jun 10, 2-3p Acton: Join Pam Lowell, The Resistance Cookbook with Action Together MA & Orange Door Kitchen.  The Silver Unicorn Bookstore, 12 Spruce St., Acton, MA
 
 
+* Monday, Jun 11, 6:30-8:30p, Acton: Acton Indivisible General Meeting.  Acton Memorial Library, 486 Main St., Acton, MA
+
+
+* Tuesday, Jun 26, 7pm, Concord:  Governor Council Forum, the two Governor Council candidates, Marilyn Devaney and Nick Carter, will speak at the Harvey Wheeler Community Center.
+
+
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
 
 ---
