@@ -27,9 +27,10 @@ layout: page
 
 ### Newsletter Deadlines
 
+Slack:  post in channel #ia_newsletter on IA Slack
+
 Email:  newsletter@indivisibleacton.org
 
-Slack:  post in channel #ia_newsletter
 
 * Friday's newsletter - deadline is Thursday, 4p. at 4p
 
