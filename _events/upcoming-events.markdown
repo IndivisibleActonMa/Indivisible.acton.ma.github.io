@@ -31,6 +31,9 @@ layout: page
 * Monday, Jun 11, 6:30-8:30p, Acton: Acton Indivisible General Meeting.  Acton Memorial Library, 486 Main St., Acton, MA
 
 
+* Wednesday, Jun 13, 6p, Lowell: [CD3 Nonpartisan Congressional Debate](https://www.facebook.com/events/169636493880460/). Christ Church United, UCC, 180 E Merrimack St, Lowell, MA 01852
+
+
 * Tuesday, Jun 26, 7pm, Concord:  Governor Council Forum, the two Governor Council candidates, Marilyn Devaney and Nick Carter, will speak at the Harvey Wheeler Community Center.
 
 
