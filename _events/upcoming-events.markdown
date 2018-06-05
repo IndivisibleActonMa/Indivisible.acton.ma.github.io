@@ -14,12 +14,15 @@ layout: page
 
 ---
 
-## Some Events of Interest
+## Some Events to Consider
 
 * Sunday, Jun 3, 3-5p, Andover: [Meet Democratic Candidates for MA 3rd District](https://www.facebook.com/groups/ATMMV/permalink/450729802047787/)
 
 
 * Tuesday, Jun 5, 10-11:45a, Devens Commerce Center: [3rd District Democratic Candidates Debate](http://www.lowellsun.com/todaysheadlines/ci_31773152/3rd-district-dem-hopefuls-join-sun-debates#ixzz5BfgUB4B4)
+
+
+* Friday, Jun 8, 9:30-11a, Boston: [Walk the Talk on Climate](https://www.eventbrite.com/e/walk-the-talk-on-climate-tickets-46020776381)
 
 
 * Sunday, Jun 10, 2-4pm, Lowell: [Forum for Candidates for 3rd Congressional District](http://https://www.facebook.com/events/811884375668116??ti=ia) at Lowell High School.
