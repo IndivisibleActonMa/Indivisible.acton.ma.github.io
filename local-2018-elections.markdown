@@ -48,8 +48,7 @@ Website: [​https://www.quentinpalfrey.com/](%E2%80%8Bhttps://www.quentinpalfre
 
 ### Candidate Josh Zakim
 
-[Josh Zakim video with Action Together MA](https://www.facebook.com/ActionTogetherMA/videos/629289427419850/?hc_ref=ARTngO-sqbSWq8_LJqOhhfwfQIZbX1aTTdF-tJ52AqeVnKtHn6kiKYUtRwG2nw3ut8w&fref=gs&dti=1858899020991342&hc_location=group)
-
+[Josh Zakim video with Action Together MA - May 2018](https://www.facebook.com/ActionTogetherMA/videos/629289427419850/?hc_ref=ARTngO-sqbSWq8_LJqOhhfwfQIZbX1aTTdF-tJ52AqeVnKtHn6kiKYUtRwG2nw3ut8w&fref=gs&dti=1858899020991342&hc_location=group)
 
 [Presentation by Candidate Josh Zakim at Indivisible Acton Anniversary Meeting 2/12/18](https://youtu.be/3O0kfqPMnhs)
 
