@@ -8,6 +8,8 @@ event-end-date: 2018-05-11 20:45:00 -04:00
 Location: Acton Memorial Library, 486 Main St., Acton, MA 01720
 ---
 
-### Please join us this Monday, May 14 6:30-8:45p at the Acton Memorial Library!  
+### Please join us this Monday, Jun  11, 6:30-8:30p at the Acton Memorial Library!
 
-### Click [here](https://www.facebook.com/events/2083646571921060/) for more info.
+### Here's the [agenda](https://docs.google.com/document/d/1zSdlt5sDjYc5u6WWwNCDsIPSvnb_skjJDIXPmYFazf4).
+
+### Click [here](https://www.facebook.com/events/393463791136361/) for more info.
