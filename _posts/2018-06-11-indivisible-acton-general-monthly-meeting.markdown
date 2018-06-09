@@ -1,9 +1,9 @@
 ---
 title: Indivisible-Acton General Monthly Meeting
-date: 2018-05-11 07:40:00 -04:00
+date: 2018-06-11 18:30:00 -04:00
 is featured: true
-event-start-date: 2018-05-14 18:30:00 -04:00
-event-end-date: 2018-05-11 20:45:00 -04:00
+event-start-date: 2018-06-11 18:30:00 -04:00
+event-end-date: 2018-06-11 20:30:00 -04:00
 Location: Acton Memorial Library, 486 Main St., Acton, MA 01720
 ---
 
