@@ -31,7 +31,7 @@ layout: page
 * Sunday, Jun 10, 2-3p Acton: Join Pam Lowell, The Resistance Cookbook with Action Together MA & Orange Door Kitchen.  The Silver Unicorn Bookstore, 12 Spruce St., Acton, MA
 
 
-* Monday, Jun 11, 6:30-8:30p, Acton: Acton Indivisible General Meeting.  Acton Memorial Library, 486 Main St., Acton, MA
+* Monday, Jun 11, 6:30-8:30p, Acton: Acton Indivisible General Meeting.  Click [here](https://docs.google.com/document/d/1zSdlt5sDjYc5u6WWwNCDsIPSvnb_skjJDIXPmYFazf4/edit?usp=sharing) for the agenda and [here](https://www.facebook.com/events/393463791136361/) for more info.  Acton Memorial Library, 486 Main St., Acton, MA
 
 
 * Wednesday, Jun 13, 6p, Lowell: [CD3 Nonpartisan Congressional Debate](https://www.facebook.com/events/169636493880460/). Christ Church United, UCC, 180 E Merrimack St, Lowell, MA 01852
