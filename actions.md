@@ -72,6 +72,14 @@ Email:  newsletter@indivisibleacton.org
 [Event Record](https://www.actionnetwork.org/forms/leader-event-record)
 
 ---
+### Postcards
+Postcards to Voters are friendly, handwritten reminders from volunteers to targeted voters giving Democrats a winning edge in close, key races coast to coast.
+What started on March 11, 2017 with sharing 5 addresses apiece to 5 volunteers on Facebook so that they could mail postcards to voters in Jon Ossoff’s race grew in one month to 1,200+ volunteers nationwide and over 51,000 postcards mailed.
+
+Now, the group consists of over 20,000+ volunteers in every state (including Alaska and Hawaii) who have written over half a million postcards to voters in dozens of key, close elections.
+
+To take part just go to one of our meet-ups that you can find on our [calendar](http://www.indivisibleacton.org/calendar).
+To become a captain and get your own addresses click "Join Us" on the [Postcards To Voters](https://postcardstovoters.org/) website.
 
 ### Other Helpful Links
 
