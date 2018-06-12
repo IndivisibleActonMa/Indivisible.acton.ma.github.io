@@ -11,7 +11,9 @@ You can become a member by clicking the links below. We provide different channe
 
 ### [Click here to join and get our twice weekly newsletter!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
 
+
 ### [Please join our Facebook Group "Indivisible Acton Area" where all the events and action are posted](https://www.facebook.com/groups/IndivisibleActon/).
+
 
 ## Being a member
 
