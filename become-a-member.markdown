@@ -1,19 +1,19 @@
 ---
-title: Join us!
+title: Become a member
 date: 2017-02-16 22:58:00 -05:00
 position: 5
 layout: page
 ---
 
-## Becoming a member
+## Join us!
 
 You can become a member by clicking the links below. We provide different channels by which you can be reached, which include our newsletter, our google group and our facebook group as people have different preferences. Join one, join all!
 
-### [Click here to join and get our twice weekly newsletter!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
+* [Click here to join](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton) and get our twice weekly newsletter!
 
+* [Please join our Facebook Group "Indivisible Acton Area"](https://www.facebook.com/groups/IndivisibleActon/)  where all the events and action are posted.
 
-### [Please join our Facebook Group "Indivisible Acton Area" where all the events and action are posted](https://www.facebook.com/groups/IndivisibleActon/).
-
+---
 
 ## Being a member
 
