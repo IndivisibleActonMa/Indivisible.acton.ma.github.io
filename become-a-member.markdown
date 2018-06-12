@@ -1,7 +1,6 @@
 ---
 title: Become A Member
 date: 2017-02-16 22:58:00 -05:00
-published: false
 position: 5
 layout: becomeAMember
 ---
