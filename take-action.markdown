@@ -17,6 +17,9 @@ Click [here to learn about Rapid Resist Texting](https://docs.google.com/forms/d
 Click [here to learn about The Open Progress Text Troop](https://www.openprogress.com/text-troop)
 
 
+Click [here to learn about writing postcards to voters](http://www.postcardstovoters.org)
+
+
 Click [here](https://www.freedommassachusetts.org)  to show your support for upholding the dignity and respect for our transgender neighbors in Massachusetts.
 
 Click [here](https://raiseupma.org) to help fight for: Paid Family and Medical Leave, A $15 Minimum Wage, and The Fair Share Amendment.
