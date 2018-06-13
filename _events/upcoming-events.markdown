@@ -40,6 +40,9 @@ layout: page
 * Tuesday, Jun 26, 7pm, Concord:  Governor Council Forum, the two Governor Council candidates, Marilyn Devaney and Nick Carter, will speak at the Harvey Wheeler Community Center.
 
 
+* Tuesday, Jun 26, 6:30-8:30p, Andover: Indivisible Andover has a speaker from the [Environmental Voter Project](https://www.environmentalvoter.org/our-mission).  Click [here](http://indivisibleandoverma.com/event/2018/04/09/indivisible-andover-june-meeting.html) for more info!
+
+ 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
 
 ---
