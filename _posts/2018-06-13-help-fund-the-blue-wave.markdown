@@ -20,4 +20,4 @@ We can spend money on :
 
 * Some federal political spending (not state & local)
 
-Click [here to donate](https://secure.actblue.com/donate/indivisibleama411742968).
+Click [here to donate](https://secure.actblue.com/donate/indivisibleama411742968)!
