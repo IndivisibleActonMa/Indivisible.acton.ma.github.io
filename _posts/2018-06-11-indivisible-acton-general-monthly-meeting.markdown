@@ -1,6 +1,7 @@
 ---
 title: Indivisible-Acton General Monthly Meeting
 date: 2018-06-11 18:30:00 -04:00
+published: false
 is featured: true
 event-start-date: 2018-06-11 18:30:00 -04:00
 event-end-date: 2018-06-11 20:30:00 -04:00
