@@ -2,6 +2,7 @@
 title: Matching Challenge!
 date: 2018-06-13 20:46:00 -04:00
 published: false
+is featured: true
 event-start-date: 2018-06-01 00:00:00 -04:00
 event-end-date: 2018-10-31 23:59:00 -04:00
 ---
