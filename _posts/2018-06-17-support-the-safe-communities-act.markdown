@@ -5,7 +5,8 @@ is featured: true
 layout: page
 ---
 
-From Indivisible Westford:
+*From Indivisible Westford:*
+
 
 We must take a stand in Massachusetts to protect our immigrant residents from ICE targeting.  The best way to do this is to support the Safe Communities Act.  The Safe Community Act is stalled, but the senate did pass 4 provisions in the budget and we are asking the House to do the same.
 
