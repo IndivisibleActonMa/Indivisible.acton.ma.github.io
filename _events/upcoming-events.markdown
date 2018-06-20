@@ -42,7 +42,10 @@ layout: page
 
 * Tuesday, Jun 26, 6:30-8:30p, Andover: Indivisible Andover has a speaker from the [Environmental Voter Project](https://www.environmentalvoter.org/our-mission).  Click [here](http://indivisibleandoverma.com/event/2018/04/09/indivisible-andover-june-meeting.html) for more info!
 
- 
+
+* Monday, Jul 16, 7-9p, Maynard: [Summer Social with the Candidates!](https://www.eventbrite.com/e/indivisible-acton-summer-social-with-candidates-tickets-47115619085)
+
+
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
 
 ---
