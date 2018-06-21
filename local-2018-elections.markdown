@@ -68,7 +68,7 @@ Website: [http://www.billgalvin.org](http://www.billgalvin.org)
 
 [An overview document of all the candidates](https://docs.google.com/presentation/d/1U4vfvlHfxJlbSxCuq8muFvahNwaD7yzgzgYcRJjV7gA/edit#slide=id.g2a5734a2c3_0_0)
 
-[CD3 Nonpartisan Congressional Debate 6/13/2018](http://dracut.vod.castus.tv/vod/?video=beb7f5f2-8fc4-4bdd-ad58-620956e3e58e&nav=recent)
+[Video: CD3 Nonpartisan Congressional Debate 6/13/2018](http://dracut.vod.castus.tv/vod/?video=beb7f5f2-8fc4-4bdd-ad58-620956e3e58e&nav=recent)
 
 [MA CD3 forum questionnaire](https://docs.google.com/document/d/1aHoG2XSpLy7UjyjCa6YcvqynNb2dtDmaMr2TCd43870)
 
