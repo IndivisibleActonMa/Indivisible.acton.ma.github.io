@@ -68,6 +68,8 @@ Website: [http://www.billgalvin.org](http://www.billgalvin.org)
 
 [An overview document of all the candidates](https://docs.google.com/presentation/d/1U4vfvlHfxJlbSxCuq8muFvahNwaD7yzgzgYcRJjV7gA/edit#slide=id.g2a5734a2c3_0_0)
 
+[MA CD3 forum questionnaire](https://docs.google.com/document/d/1aHoG2XSpLy7UjyjCa6YcvqynNb2dtDmaMr2TCd43870)
+
 [UMass Lowell 3rd District Congressional Debate 2018](https://livestream.com/uml/events/8164980/videos/174150308)
 
 [Video of 3rd Congressional District Candidates Forum 2018](https://vimeo.com/254683036)
