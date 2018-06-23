@@ -5,7 +5,7 @@ is featured: true
 main-image: "/uploads/MelissaShustermanFundRaiser.jpg"
 event-start-date: 2018-06-23 18:00:00 -04:00
 event-end-date: 2018-06-23 20:00:00 -04:00
-Location: Please RSVP to get Joes (Acton)' s Address
+Location: Please RSVP to get Joe (Acton)' s Address
 RSVP-link: https://actionnetwork.org/events/acton-2018-06-23-18-00-rec4z8zyyoqp1qoi7
 ---
 
