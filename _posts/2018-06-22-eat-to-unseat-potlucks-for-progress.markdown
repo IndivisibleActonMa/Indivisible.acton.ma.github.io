@@ -1,6 +1,7 @@
 ---
 title: EAT TO UNSEAT - POTLUCKS FOR PROGRESS
 date: 2018-06-22 23:33:00 -04:00
+is featured: true
 main-image: "/uploads/MelissaShustermanFundRaiser.jpg"
 event-start-date: 2018-06-23 18:00:00 -04:00
 event-end-date: 2018-06-23 20:00:00 -04:00
