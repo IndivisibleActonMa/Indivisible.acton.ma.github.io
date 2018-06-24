@@ -1,6 +1,7 @@
 ---
 title: POTLUCKS FOR PROGRESS - Potluck for Mellisa Shusterman
 date: 2018-06-22 23:33:00 -04:00
+published: false
 is featured: true
 main-image: "/uploads/MelissaShustermanFundRaiser.jpg"
 event-start-date: 2018-06-23 18:00:00 -04:00
