@@ -46,6 +46,9 @@ layout: page
 * Saturday, Jun 30, 11a, Boston: [National Day of Action: Families Belong Together](https://act.moveon.org/event/families-belong-together/19872/signup/?akid=&zip=&source=) or click [here](https://act.moveon.org/event/families-belong-together/search/?) to find an event near you.
 
 
+* Sunday, Jul 1, 10a-12p, Lowell: Meet Candidate for Secretary of State Josh Zakim.  Click [here](https://www.facebook.com/events/1559712157487918/) for more info.
+
+
 * Monday, Jul 16, 7-9p, Maynard: [Summer Social with the Candidates!](https://www.eventbrite.com/e/indivisible-acton-summer-social-with-candidates-tickets-47115619085)
 
 
