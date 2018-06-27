@@ -43,7 +43,13 @@ layout: page
 * Tuesday, Jun 26, 6:30-8:30p, Andover: Indivisible Andover has a speaker from the [Environmental Voter Project](https://www.environmentalvoter.org/our-mission).  Click [here](http://indivisibleandoverma.com/event/2018/04/09/indivisible-andover-june-meeting.html) for more info!
 
 
+* Saturday, Jun 30, 11a, Boston: [National Day of Action: Families Belong Together](https://act.moveon.org/event/families-belong-together/19872/signup/?akid=&zip=&source=) or click [here](https://act.moveon.org/event/families-belong-together/search/?) to find an event near you.
+
+
 * Monday, Jul 16, 7-9p, Maynard: [Summer Social with the Candidates!](https://www.eventbrite.com/e/indivisible-acton-summer-social-with-candidates-tickets-47115619085)
+
+
+* Wednesday, July 18, 7-9pm, Acton: Indivisible-Acton is co-hosting a Candidate Forum for the district attorney (DA) and Governor Council races. DA Incumbent Marian Ryan has declined the invitation because they characterize this as a "debate," and Marian is not participating in any "forum" in which both candidates are in the same room. You can hear from her challenger Donna Patalano as well as both the incumbent and challenger for Governor's Council.
 
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
