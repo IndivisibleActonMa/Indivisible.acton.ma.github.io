@@ -28,7 +28,7 @@ layout: page
 * Monday, Jul 16, 7-9p, Maynard: [Summer Social with the Candidates!](https://www.eventbrite.com/e/indivisible-acton-summer-social-with-candidates-tickets-47115619085)
 
 
-* Wednesday, July 18, 7-9pm, Acton: Indivisible-Acton is co-hosting a Candidate Forum for the district attorney (DA) and Governor Council races. DA Incumbent Marian Ryan has declined the invitation because they characterize this as a "debate," and Marian is not participating in any "forum" in which both candidates are in the same room. You can hear from her challenger Donna Patalano as well as both the incumbent and challenger for Governor's Council.
+* Wednesday, Jul 18, 7-9pm, Acton: Indivisible-Acton is co-hosting a Candidate Forum for the district attorney (DA) and Governor Council races. DA Incumbent Marian Ryan has declined the invitation because they characterize this as a "debate," and Marian is not participating in any "forum" in which both candidates are in the same room. You can hear from her challenger Donna Patalano as well as both the incumbent and challenger for Governor's Council.
 
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
