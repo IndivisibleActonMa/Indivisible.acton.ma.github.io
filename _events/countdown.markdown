@@ -5,5 +5,6 @@ timer: '<iframe src="http://free.timeanddate.com/countdown/i6b3s4e3/n43/cf111/cm
   allowTransparency="true" frameborder="0" width="320" height="135"></iframe>
 
 '
+layout: page
 ---
 
