@@ -3,6 +3,10 @@ title: 2018 Elections
 date: 2017-12-20 21:38:00 -05:00
 ---
 
+## *Massachusetts State Primary - Tuesday Sep 4, 2018*
+
+---
+
 # Candidate and Campaign Policy and Etiquette
 
 Indivisible Acton welcomes candidates and their staff. In order to assure productive, fair and healthy discourse between campaigns and Indivisible Acton members these policies have been put in place. And questions or concerns should be directed to the membership coordinator Christine B: christine@indivisibleacton.org.
