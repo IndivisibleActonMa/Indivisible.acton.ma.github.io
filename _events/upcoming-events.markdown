@@ -16,11 +16,13 @@ layout: page
 
 ## Some Events to Consider
 
-
 * Sunday, Jul 1, 10a-12p, Lowell: Meet Candidate for Secretary of State Josh Zakim.  Click [here](https://www.facebook.com/events/1559712157487918/) for more info.
 
 
 * Monday, July 9, 6:30-8:45p, Acton: Phone bank to flip the house! First Floor meeting room, Acton Memorial Library
+
+
+* Sunday, Jul 15, 4-6p, Westford: [Meet the candidates: Zakim, Patalano, Elizabeth Warren campaign](https://www.facebook.com/events/139497656925586/).  Hosted by Indivisible Westford Progressive.
 
 
 * Monday, Jul 16, 7-9p, Maynard: [Summer Social with the Candidates!](https://www.eventbrite.com/e/indivisible-acton-summer-social-with-candidates-tickets-47115619085)
