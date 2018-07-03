@@ -33,5 +33,5 @@ Onward!
 
 Craig S. Altemose
 
-Craig Altemose for \[Better Future Project\]
-http://www.betterfutureproject.org/
+Craig Altemose for [Better Future Project]
+(http://www.betterfutureproject.org/)
