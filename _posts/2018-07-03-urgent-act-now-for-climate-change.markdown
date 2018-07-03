@@ -26,7 +26,7 @@ Here’s our game plan:
 
 2. **Flood the State House with phone calls.** We are going to generate multiple call storms over the course of the next month. We need you to contribute to those call waves, so sign up [here](https://docs.google.com/forms/d/1-zSFePzDOJH2KHHoYSxxnXyMdKDoUM9pfP15prcvU5c/viewform?edit_requested=true). We will provide everything you need in the exact moment.
 
-3. **Canvass in Leadership Districts to help generate more engagement in key communities like Winthrop and Lowell** (home of the Speaker of the House and the House Energy Committee Chair, respectively). Sign up \[here\]       (https://docs.google.com/forms/d/e/1FAIpQLSdYNSxyJ36HkQxYmybrQkRIRtOlO6ZrhCPOZ8bIj7ISQKZRnQ/viewform)!\
+3. **Canvass in Leadership Districts to help generate more engagement in key communities like Winthrop and Lowell** (home of the Speaker of the House and the House Energy Committee Chair, respectively). Sign up [here]       (https://docs.google.com/forms/d/e/1FAIpQLSdYNSxyJ36HkQxYmybrQkRIRtOlO6ZrhCPOZ8bIj7ISQKZRnQ/viewform)!
    I know there’s a lot going on right now, and many things are competing for your attention. But this is probably the most important email I’m going to send this year, so please please do what you can to act on it. This one’s for the future.
 
 Onward!
