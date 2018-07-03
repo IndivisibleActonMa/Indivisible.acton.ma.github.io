@@ -22,6 +22,9 @@ layout: page
 * Monday, July 9, 6:30-8:45p, Acton: Phone bank to flip the house! First Floor meeting room, Acton Memorial Library
 
 
+* Saturday, Jul 14, 12-3p, Lexington: [Campaign Bootcamp](https://massdems.org/2018-campaign-bootcamps/), 13 Depot Square, Lexington, MA
+
+
 * Sunday, Jul 15, 4-6p, Westford: [Meet the candidates: Zakim, Patalano, Elizabeth Warren campaign](https://www.facebook.com/events/139497656925586/).  Hosted by Indivisible Westford Progressive.
 
 
@@ -29,6 +32,9 @@ layout: page
 
 
 * Wednesday, Jul 18, 7-9pm, Acton: Indivisible-Acton is co-hosting a Candidate Forum for the district attorney (DA) and Governor Council races. DA Incumbent Marian Ryan has declined the invitation because they characterize this as a "debate," and Marian is not participating in any "forum" in which both candidates are in the same room. You can hear from her challenger Donna Patalano as well as both the incumbent and challenger for Governor's Council.
+
+
+* Monday, Jul 23, 7-9p, Concord: League of Women Voter's Candidate Forum - MA-3 and 14th Middlesex, Harvey Wheeler, Concord, MA
 
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
