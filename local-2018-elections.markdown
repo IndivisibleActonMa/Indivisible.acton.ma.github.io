@@ -24,9 +24,9 @@ Indivisible Acton welcomes candidates and their staff. In order to assure produc
 
 [An overview document of all the District MA-3 candidates](https://docs.google.com/presentation/d/1U4vfvlHfxJlbSxCuq8muFvahNwaD7yzgzgYcRJjV7gA/edit#slide=id.g2a5734a2c3_0_0)
 
-[Video: CD3 Nonpartisan Congressional Debate 6/13/2018](http://dracut.vod.castus.tv/vod/?video=beb7f5f2-8fc4-4bdd-ad58-620956e3e58e&nav=recent)
-
 [MA CD3 forum questionnaire](https://docs.google.com/document/d/1aHoG2XSpLy7UjyjCa6YcvqynNb2dtDmaMr2TCd43870)
+
+[Video: CD3 Nonpartisan Congressional Debate 6/13/2018](http://dracut.vod.castus.tv/vod/?video=beb7f5f2-8fc4-4bdd-ad58-620956e3e58e&nav=recent)
 
 [UMass Lowell 3rd District Congressional Debate 2018](https://livestream.com/uml/events/8164980/videos/174150308)
 
