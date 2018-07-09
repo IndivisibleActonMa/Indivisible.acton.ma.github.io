@@ -22,7 +22,7 @@ Indivisible Acton welcomes candidates and their staff. In order to assure produc
 
 ## Congressional District MA-3
 
-[An overview document of all the candidates](https://docs.google.com/presentation/d/1U4vfvlHfxJlbSxCuq8muFvahNwaD7yzgzgYcRJjV7gA/edit#slide=id.g2a5734a2c3_0_0)
+[An overview document of all the District MA-3 candidates](https://docs.google.com/presentation/d/1U4vfvlHfxJlbSxCuq8muFvahNwaD7yzgzgYcRJjV7gA/edit#slide=id.g2a5734a2c3_0_0)
 
 [Video: CD3 Nonpartisan Congressional Debate 6/13/2018](http://dracut.vod.castus.tv/vod/?video=beb7f5f2-8fc4-4bdd-ad58-620956e3e58e&nav=recent)
 
