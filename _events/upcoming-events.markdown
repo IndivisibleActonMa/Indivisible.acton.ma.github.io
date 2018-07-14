@@ -39,6 +39,9 @@ layout: page
 
 * Monday, Jul 23, 7-9p, Concord: League of Women Voter's Candidate Forum - MA-3 and 14th Middlesex, Harvey Wheeler, Concord, MA
 
+* Tuesday, Jul 24, 6-10p, Hudson: [3rd Congressional District Democratic Debate](https://www.facebook.com/events/2113639385522963/) Hudson Portuguese Club Office, 
+13 Port St, Hudson, MA 01749
+
 
 * Wednesday, Jul 25, 7-9p, Framingham:  [Quentin Palfrey Meet and Greet](https://www.facebook.com/events/2127807007249184/) 9 Louis W Farley Dr, Framingham, MA 01702
 
