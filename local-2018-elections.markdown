@@ -15,10 +15,13 @@ Indivisible Acton welcomes candidates and their staff. In order to assure produc
 
 **[Candidate and Campaign Etiquette and Policy](https://docs.google.com/document/d/1-G3_GKFkz3fC0VDkfGh4DbC820mzi23yyMG1-EqapfE/edit?usp=sharing)**
 
+## Candidate Contact List
+
+Click [here](https://docs.google.com/spreadsheets/d/1-Ss4hsZxVmYVdSmy9wjNR2vWCALtsWXF9qNwxr4gOKU/edit?usp=sharing) to see a campaign contact list.
+
 # Candidate Recordings
 
 *Campaigns: if your candidate is not recorded here, please email a link to a recording of your candidate to joris@indivisibleacton.org. We will put it up here for our members.*
-
 
 ## Congressional District MA-3
 
