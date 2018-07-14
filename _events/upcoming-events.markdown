@@ -40,6 +40,9 @@ layout: page
 * Monday, Jul 23, 7-9p, Concord: League of Women Voter's Candidate Forum - MA-3 and 14th Middlesex, Harvey Wheeler, Concord, MA
 
 
+* Wednesday, Jul 25, 7-9p, Framingham:  [Quentin Palfrey Meet and Greet](https://www.facebook.com/events/2127807007249184/) 9 Louis W Farley Dr, Framingham, MA 01702
+
+ 
 * Saturday, Jul 28, 12-3p, Waltham: 2018 Mass Dems Campaign Bootcamp - [Register here](https://secure.ngpvan.com/Qq8RBgbcMEi4FfdoqFZ0-Q2).  Waltham Public Library Lecture Hall, 735 Main St, Waltham, MA 02451
 
 
