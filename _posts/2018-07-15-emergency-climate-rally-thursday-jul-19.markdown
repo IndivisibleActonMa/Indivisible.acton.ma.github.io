@@ -4,7 +4,7 @@ date: 2018-07-15 13:44:00 -04:00
 is featured: true
 event-start-date: 2018-07-19 12:00:00 -04:00
 event-end-date: 2018-07-19 17:00:00 -04:00
-Location: MA Statehouse, 24 Beacon St, Boston, MA 02133
+Location: MA State House, 24 Beacon St, Boston, MA 02133
 RSVP-link: https://docs.google.com/forms/d/e/1FAIpQLScbTfC-Dyler1dTUFtXFBKoAkPHT4CkWhZ13CRh57JBzSv3Fw/viewform
 ---
 
