@@ -8,6 +8,12 @@ layout: page
 
 ---
 
+### Time Critical Actions
+
+* [Emergency Climate Rally](https://docs.google.com/forms/d/e/1FAIpQLScbTfC-Dyler1dTUFtXFBKoAkPHT4CkWhZ13CRh57JBzSv3Fw/viewform), Thursday, Jul 19, noon, MA State House
+
+---
+
 Click [here for the list of actions for this week](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?ts=5a5e9634) from our sister organization's weekly newsletter.
 
 Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
@@ -16,9 +22,7 @@ Click [here to learn about Rapid Resist Texting](https://docs.google.com/forms/d
 
 Click [here to learn about The Open Progress Text Troop](https://www.openprogress.com/text-troop)
 
-
 Click [here to learn about writing postcards to voters](http://www.postcardstovoters.org)
-
 
 Click [here](https://www.freedommassachusetts.org)  to show your support for upholding the dignity and respect for our transgender neighbors in Massachusetts.
 
