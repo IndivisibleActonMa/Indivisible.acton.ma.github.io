@@ -10,10 +10,11 @@ RSVP-link: https://docs.google.com/forms/d/e/1FAIpQLScbTfC-Dyler1dTUFtXFBKoAkPHT
 
 # *We need all the help we can get!*
 
-## 1. Come join us at the State House for an Emergency Climate Rally on Thursday, Jul 19
 
-## 2. Share who you're fighting for!
+### 1. Come join us at the State House for an Emergency Climate Rally on Thursday, Jul 19
 
-## 3. Call your Rep if you cannot make the rally!  
+### 2. Share who you're fighting for!
+
+### 3. Call your Rep if you cannot make the rally!
 
 Click [here for more info](https://docs.google.com/forms/d/e/1FAIpQLScbTfC-Dyler1dTUFtXFBKoAkPHT4CkWhZ13CRh57JBzSv3Fw/viewform).
