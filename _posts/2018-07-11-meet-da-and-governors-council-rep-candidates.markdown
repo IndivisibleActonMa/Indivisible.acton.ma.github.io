@@ -11,7 +11,7 @@ RSVP-link: www.eventbrite.com/e/candidate-forum-governors-council-and-da-tickets
 
 The state’s district attorneys and Governor’s Council members play critical roles in administering justice in Massachusetts.
 
-Voters will have an opportunity to learn more about the Democratic candidates vying for these offices at a candidates forum co-sponsored by the Acton and Boxborough Democratic Town Committees on Wednesday, July 18, from 7:00 to 9:00 p.m. at the Sargent Library, 427 Massachusetts Avenue, Boxborough.
+Voters will have an opportunity to learn more about the Democratic candidates vying for these offices at a candidates forum co-sponsored by Indivisible Acton and the Acton and Boxborough Democratic Town Committees on Wednesday, July 18, from 7:00 to 9:00 p.m. at the Sargent Library, 427 Massachusetts Avenue, Boxborough.
 
 Attendees will have the opportunity to meet and talk with: 
 * Donna Patalano, a candidate for Middlesex County District Attorney
