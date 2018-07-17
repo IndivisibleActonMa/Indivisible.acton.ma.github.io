@@ -33,19 +33,21 @@ layout: page
 
 * Wednesday, Jul 18, 7-9pm, Boxborough: Indivisible-Acton is co-hosting a Candidate Forum for the district attorney (DA) and Governor Council races. DA Incumbent Marian Ryan has declined the invitation because they characterize this as a "debate," and Marian is not participating in any "forum" in which both candidates are in the same room. You can hear from her challenger Donna Patalano as well as both the incumbent and challenger for Governor's Council.  [Register here](https://www.eventbrite.com/e/candidate-forum-governors-council-and-da-tickets-47284762999).  Albert J Sargent Memorial Library, 427 Massachusetts Ave, Boxborough, MA 01719
 
+* **Thursday, Jul 19, 12p, Boston**: 350Mass is organizing an **Emergency Climate Rally at the Statehouse** to demonstrate the need for the Mass House to act on climate now! For more info and to RSVP, click [here](https://docs.google.com/forms/d/e/1FAIpQLScbTfC-Dyler1dTUFtXFBKoAkPHT4CkWhZ13CRh57JBzSv3Fw/viewform?link_id=28&can_id=9a7cc198611ac2a74f284fdda8e14f7e).
+
 
 * Sunday, Jul 22, 12:30-5:30p, Natick: Build the Blue Wave MA - Learn, Connect and Win! **The registration deadline is July 16 and space is limited to 200 people.** Click [here](https://docs.google.com/forms/d/e/1FAIpQLSeggbmORpUqjHU97YHlKmmZsS26Z8J5gBaVkz3kxh0maMdZPA) to register.  Check our [calendar](http://www.indivisibleacton.org/calendar.html) for more info.  Hampton Inn Boston-Natick, 319 Speen Street, Natick, MA 01760
 
 
 * Monday, Jul 23, 7-9p, Concord: League of Women Voter's Candidate Forum - MA-3 and 14th Middlesex, Harvey Wheeler, Concord, MA
 
-* Tuesday, Jul 24, 6-10p, Hudson: [3rd Congressional District Democratic Debate](https://www.facebook.com/events/2113639385522963/) Hudson Portuguese Club Office, 
-13 Port St, Hudson, MA 01749
+* Tuesday, Jul 24, 6-10p, Hudson: [3rd Congressional District Democratic Debate](https://www.facebook.com/events/2113639385522963/) Hudson Portuguese Club Office,
+  13 Port St, Hudson, MA 01749
 
 
 * Wednesday, Jul 25, 7-9p, Framingham:  [Quentin Palfrey Meet and Greet](https://www.facebook.com/events/2127807007249184/) 9 Louis W Farley Dr, Framingham, MA 01702
 
- 
+
 * Saturday, Jul 28, 12-3p, Waltham: 2018 Mass Dems Campaign Bootcamp - [Register here](https://secure.ngpvan.com/Qq8RBgbcMEi4FfdoqFZ0-Q2).  Waltham Public Library Lecture Hall, 735 Main St, Waltham, MA 02451
 
 
