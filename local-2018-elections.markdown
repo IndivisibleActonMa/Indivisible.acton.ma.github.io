@@ -7,6 +7,10 @@ date: 2017-12-20 21:38:00 -05:00
 
 ### *Massachusetts State Primary - Tuesday Sep 4, 2018*
 
+[Am I registered to vote?](https://www.sec.state.ma.us/VoterRegistrationSearch/MyVoterRegStatus.aspx)
+
+[Where do I vote?](http://www.sec.state.ma.us/wheredoivotema/bal/MyElectionInfo.aspx)
+
 ---
 
 # Candidate and Campaign Policy and Etiquette
