@@ -1,6 +1,7 @@
 ---
 title: Meet DA and Governor's Council Rep Candidates!
 date: 2018-07-11 21:48:00 -04:00
+published: false
 is featured: true
 event-start-date: 2018-07-18 19:00:00 -04:00
 event-end-date: 2018-07-18 21:00:00 -04:00
