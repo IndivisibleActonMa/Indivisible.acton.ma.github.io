@@ -1,6 +1,7 @@
 ---
 title: Emergency Climate Rally - Thursday, Jul 19
 date: 2018-07-15 13:44:00 -04:00
+published: false
 is featured: true
 event-start-date: 2018-07-19 12:00:00 -04:00
 event-end-date: 2018-07-19 17:00:00 -04:00
