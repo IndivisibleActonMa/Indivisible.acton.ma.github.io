@@ -8,11 +8,6 @@ layout: page
 
 ---
 
-### Time Critical Actions
-
-* [Emergency Climate Rally](https://docs.google.com/forms/d/e/1FAIpQLScbTfC-Dyler1dTUFtXFBKoAkPHT4CkWhZ13CRh57JBzSv3Fw/viewform), Thursday, Jul 19, noon, MA State House
-
----
 
 Click [here for the list of actions for this week](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?ts=5a5e9634) from our sister organization's weekly newsletter.
 
