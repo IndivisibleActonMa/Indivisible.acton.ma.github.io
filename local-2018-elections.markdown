@@ -59,6 +59,9 @@ Click [here](https://docs.google.com/spreadsheets/d/1-Ss4hsZxVmYVdSmy9wjNR2vWCAL
 
 ## MA Representative 14th Middlesex
 
+[Video: League Of Women Voters Candidates Forum: 14th Middlesex District of the MA State Legislature 7/23/18
+](https://www.youtube.com/watch?v=El2hhNoRjH0&feature=youtu.be)
+
 [Presentation by Candidate Tami Gouveia at General Meeting 4/9/18](https://www.youtube.com/watch?v=PMjNN9qfiPA)
 
 [Video Presentation by Candidate Ben Bloomenthal at General Meeting on 12/11/17](https://youtu.be/rBF8WGN0Jp0)
