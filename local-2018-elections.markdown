@@ -33,7 +33,6 @@ Click [here](https://docs.google.com/spreadsheets/d/1-Ss4hsZxVmYVdSmy9wjNR2vWCAL
 
 [MA CD3 forum questionnaire](https://docs.google.com/document/d/1aHoG2XSpLy7UjyjCa6YcvqynNb2dtDmaMr2TCd43870)
 
-
 [Video: CD3 Congressional Debate, Hudson, MA 7/24/2018](https://youtu.be/FtSom8wxTHg)
 
 [Video: CD3 Nonpartisan Congressional Debate 6/13/2018](http://dracut.vod.castus.tv/vod/?video=beb7f5f2-8fc4-4bdd-ad58-620956e3e58e&nav=recent)
@@ -72,6 +71,12 @@ Click [here](https://docs.google.com/spreadsheets/d/1-Ss4hsZxVmYVdSmy9wjNR2vWCAL
 [Presentation by Candidate Christian Kreuger at General Meeting 5/14/18](https://youtu.be/IrwOE4yCBg8)
 
 [Presentation by Green Party Candidate Daniel Factor at General Meeting 5/14/18](https://youtu.be/BksBWjk8zDM)
+
+---
+
+## Middlesex County DA and Governor's Council
+
+[Video: Middlesex County DA and Governor's Council Candidate Debate 7/24/2018](http://acmi.tv/videos/middlesex-county-district-attorney-governers-council-candidate-debate/)
 
 ---
 
