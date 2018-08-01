@@ -16,39 +16,31 @@ layout: page
 
 ## Some Events to Consider
 
-* Sunday, Jul 1, 10a-12p, Lowell: Meet Candidate for Secretary of State Josh Zakim.  Click [here](https://www.facebook.com/events/1559712157487918/) for more info.
+* Wednesday, Aug 1, 5:30-8p, Worcester State University, Student Center - Blue Lounge : Hosted by LWV Massachusetts and LWV Worcester Area, MA Women of Color Coalition, Worcester NAACP, Binienda Center for Civic Engagement. Candidates for Lt. Governor, Quentin Palfrey and Jimmy Tingle will introduce themselves and give the audience the opportunity to ask questions and will share their vision for the future of the Commonwealth. All three candidates for Lieutenant Governor were invited; Lieutenant Governor Karyn Polito is unable to attend. For more information contact The Binienda Center for Civic Engagement, 508.929.8635, wsu_biniendacenter@worcester.edu
 
 
-* Monday, July 9, 6:30-8:45p, Acton: Phone bank to flip the house! First Floor meeting room, Acton Memorial Library
+* Wednesday, Aug 1, 6-9p Boston: Kick-off to Vote Yes on Question 2 at Democracy Brewing: Ice cream, beer, and celebration with special guests Congressman Jim McGovern and Ben Cohen, co-founder of Ben & Jerry’s Ice Cream as People Govern, Not Money and Attorney General Maura Healey start the campaign for a 28th Amendment. Click [here to RSVP](http://www.americanpromise.net/people_govern_not_money_yes_on_2_celebration?link_id=5&can_id=0d5712ce9b810b29d6d5471775001fbd&source=email-weekend-actions-2&email_referrer=&email_subject=weekend-actions&link_id=39&can_id=9a7cc198611ac2a74f284fdda8e14f7e).
 
 
-* Saturday, Jul 14, 12-3p, Lexington: [Campaign Bootcamp](https://massdems.org/2018-campaign-bootcamps/), 13 Depot Square, Lexington, MA
+* Wednesday, Aug 1, 7-9p Maynard:  Meet-up at the Blue Coyote Grille, 137 Main St., Maynard.  Stop by to join in taking action TOGETHER such as canvassing, postcard writing, emailing and texting for candidates, discussing best ways to resist, and more! Bring your laptop, phone, and headphones.
 
 
-* Sunday, Jul 15, 4-6p, Westford: [Meet the candidates: Zakim, Patalano, Elizabeth Warren campaign](https://www.facebook.com/events/139497656925586/).  Hosted by Indivisible Westford Progressive.
+* Saturday, Aug 4, 10a-12p, Acton: Meet-up at Bagels Plus in Acton (upstairs).  Stop by to join in taking action TOGETHER such as canvassing, postcard writing, emailing and texting for candidates, discussing best ways to resist, and more! Bring your laptop, phone, and headphones.
 
 
-* Monday, Jul 16, 7-9p, Maynard: [Summer Social with the Candidates!](https://www.eventbrite.com/e/indivisible-acton-summer-social-with-candidates-tickets-47115619085)
+* Saturday, Aug 4, 1-3p, Hanscom AFB: Stop nuclear war preparation -- walk with nuclear holocaust peace pilgrims. For more info, click [here](http://masspeaceaction.org/event/nuclear-holocaust-peace-pilgrims/?link_id=41&can_id=9a7cc198611ac2a74f284fdda8e14f7e).
 
 
-* Wednesday, Jul 18, 7-9pm, Boxborough: Indivisible-Acton is co-hosting a Candidate Forum for the district attorney (DA) and Governor Council races. DA Incumbent Marian Ryan has declined the invitation because they characterize this as a "debate," and Marian is not participating in any "forum" in which both candidates are in the same room. You can hear from her challenger Donna Patalano as well as both the incumbent and challenger for Governor's Council.  [Register here](https://www.eventbrite.com/e/candidate-forum-governors-council-and-da-tickets-47284762999).  Albert J Sargent Memorial Library, 427 Massachusetts Ave, Boxborough, MA 01719
-
-* **Thursday, Jul 19, 12p, Boston**: 350Mass is organizing an **Emergency Climate Rally at the Statehouse** to demonstrate the need for the Mass House to act on climate now! For more info and to RSVP, click [here](https://docs.google.com/forms/d/e/1FAIpQLScbTfC-Dyler1dTUFtXFBKoAkPHT4CkWhZ13CRh57JBzSv3Fw/viewform?link_id=28&can_id=9a7cc198611ac2a74f284fdda8e14f7e).
+* Monday, Aug 6, 6:30-8p, Littleton: Blue Wave Phone Bank, Couper Room at the Reuben Hoar Library, Littleton
 
 
-* Sunday, Jul 22, 12:30-5:30p, Natick: Build the Blue Wave MA - Learn, Connect and Win! **The registration deadline is July 16 and space is limited to 200 people.** Click [here](https://docs.google.com/forms/d/e/1FAIpQLSeggbmORpUqjHU97YHlKmmZsS26Z8J5gBaVkz3kxh0maMdZPA) to register.  Check our [calendar](http://www.indivisibleacton.org/calendar.html) for more info.  Hampton Inn Boston-Natick, 319 Speen Street, Natick, MA 01760
+* Wednesday, Aug 15 : LAST DAY to register to vote in the MA primary.  [Where do I register to vote?](https://www.sec.state.ma.us/ovr/)
 
 
-* Monday, Jul 23, 7-9p, Concord: League of Women Voter's Candidate Forum - MA-3 and 14th Middlesex, Harvey Wheeler, Concord, MA
-
-* Tuesday, Jul 24, 6-10p, Hudson: [3rd Congressional District Democratic Debate](https://www.facebook.com/events/2113639385522963/) Hudson Portuguese Club Office,
-  13 Port St, Hudson, MA 01749
+* Wednesday, Aug 15, 6-7p, Lowell: UTEC Candidate Forum, 15 Warren St, 3rd Floor, Lowell, MA 01852
 
 
-* Wednesday, Jul 25, 7-9p, Framingham:  [Quentin Palfrey Meet and Greet](https://www.facebook.com/events/2127807007249184/) 9 Louis W Farley Dr, Framingham, MA 01702
-
-
-* Saturday, Jul 28, 12-3p, Waltham: 2018 Mass Dems Campaign Bootcamp - [Register here](https://secure.ngpvan.com/Qq8RBgbcMEi4FfdoqFZ0-Q2).  Waltham Public Library Lecture Hall, 735 Main St, Waltham, MA 02451
+* Wednesday Aug 22, 6-7p, Littleton: Blue Wave Phone Bank, Couper Room at the Reuben Hoar Library, Littleton
 
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
