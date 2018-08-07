@@ -82,7 +82,7 @@ Click [here](https://docs.google.com/spreadsheets/d/1-Ss4hsZxVmYVdSmy9wjNR2vWCAL
 
 ## Governor
 
-[Boston Herald - Radio Debate Democratic Gubernatorial Candidates (8/2018)](http://www.bostonherald.com/news/local_politics/2018/08/democrats_for_massachusetts_governor_spar_over_resumes_hit_baker_hard_in)
+[Boston Herald - Radio Debate Democratic Gubernatorial Candidates 8/2018](http://www.bostonherald.com/news/local_politics/2018/08/democrats_for_massachusetts_governor_spar_over_resumes_hit_baker_hard_in)
 [Presentation by Candidate Bob Massie at Indivisible Acton Anniversary Meeting 2/12/18](https://youtu.be/8S159lWDy6U)
 
 
