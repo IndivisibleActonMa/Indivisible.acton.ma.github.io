@@ -43,6 +43,10 @@ layout: page
 * Wednesday Aug 22, 6-7p, Littleton: Blue Wave Phone Bank, Couper Room at the Reuben Hoar Library, Littleton
 
 
+* Monday, Aug 27, 7-8:30p, Chelmsford: LWV Chelmsford is hosting a MA3 Candidate Forum in the Chelmsford High School theater, 230 North Road, Chelmsford.  Contact Judy Zaunbrecher,
+  LWV – Concord CarlisleVoter Service Chair for more info:  Phone - (978) 371-7466, Email - jzaunbrecher@lwvma.org
+
+
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
 
 ---
