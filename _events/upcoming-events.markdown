@@ -37,7 +37,7 @@ layout: page
 * Wednesday, Aug 15 : LAST DAY to register to vote in the MA primary.  [Where do I register to vote?](https://www.sec.state.ma.us/ovr/)
 
 
-* Wednesday, Aug 15, 6-7p, Lowell: UTEC Candidate Forum, 15 Warren St, 3rd Floor, Lowell, MA 01852
+* Wednesday, Aug 15, 5:30-7p, Lowell: [UTEC Congressional Candidate Forum](https://www.facebook.com/events/2706820095998580/), UTEC Catalyst Center, 15 Warren St, Lowell, MA 01852  
 
 
 * Wednesday Aug 22, 6-7p, Littleton: Blue Wave Phone Bank, Couper Room at the Reuben Hoar Library, Littleton
