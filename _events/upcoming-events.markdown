@@ -40,7 +40,7 @@ layout: page
 * Wednesday, Aug 15, 5:30-7p, Lowell: [UTEC Congressional Candidate Forum](https://www.facebook.com/events/2706820095998580/), UTEC Catalyst Center, 15 Warren St, Lowell, MA 01852  
 
 
-* Wednesday Aug 22, 6-7p, Littleton: Blue Wave Phone Bank, Couper Room at the Reuben Hoar Library, Littleton
+* Wednesday Aug 22, 6-8p, Littleton: Blue Wave Phone Bank, Couper Room at the Reuben Hoar Library, Littleton
 
 
 * Monday, Aug 27, 7-8:30p, Chelmsford: LWV Chelmsford is hosting a MA3 Candidate Forum in the Chelmsford High School theater, 230 North Road, Chelmsford.  Contact Judy Zaunbrecher,
