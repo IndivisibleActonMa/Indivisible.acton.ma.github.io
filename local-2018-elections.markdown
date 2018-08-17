@@ -76,6 +76,8 @@ Click [here](https://docs.google.com/spreadsheets/d/1-Ss4hsZxVmYVdSmy9wjNR2vWCAL
 
 ## Middlesex County DA and Governor's Council
 
+[Video: WGBH Jay Gonzalez & Bob Massie | Gubernatorial Debate](https://www.youtube.com/watch?v=5IURzmUrY64)
+
 [Video: Middlesex County DA and Governor's Council Candidate Debate 7/24/2018](http://acmi.tv/videos/middlesex-county-district-attorney-governers-council-candidate-debate/)
 
 ---
