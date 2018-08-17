@@ -86,9 +86,7 @@ Click [here](https://docs.google.com/spreadsheets/d/1-Ss4hsZxVmYVdSmy9wjNR2vWCAL
 
 [Boston Herald - Radio Debate Democratic Gubernatorial Candidates 8/2018](http://www.bostonherald.com/news/local_politics/2018/08/democrats_for_massachusetts_governor_spar_over_resumes_hit_baker_hard_in)
 
-
 [Presentation by Candidate Bob Massie at Indivisible Acton Anniversary Meeting 2/12/18](https://youtu.be/8S159lWDy6U)
-
 
 [Presentation by Candidate Jay Gonzalez at Acton & Boxborough DTC Gubernatorial Forum 1/13/18](https://youtu.be/W04hUE7sVPg)
 
@@ -120,6 +118,8 @@ Website: [​https://www.quentinpalfrey.com/](%E2%80%8Bhttps://www.quentinpalfre
 ## Secretary of State
 
 ### Candidate Josh Zakim
+
+[Video: WGBH William Gavin & Josh Zakim | Secretary of State Debate](https://www.youtube.com/watch?v=Sw-msCo8Dg4)
 
 [Josh Zakim video with Action Together MA - May 2018](https://www.facebook.com/ActionTogetherMA/videos/629289427419850/?hc_ref=ARTngO-sqbSWq8_LJqOhhfwfQIZbX1aTTdF-tJ52AqeVnKtHn6kiKYUtRwG2nw3ut8w&fref=gs&dti=1858899020991342&hc_location=group)
 
