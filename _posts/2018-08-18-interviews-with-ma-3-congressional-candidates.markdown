@@ -8,3 +8,6 @@ The MA Primary is September 4!  Are you ready?
 
 Learn more about your MA-3 Congressional Candidates by checking out these [video interviews](https://www.youtube.com/channel/UCV93nK968mUZAj7T88ui99A) brought to you by The Concord Citizens Protecting Progress!
 
+Or come to the final [MA-3 Congressional Candidates Forum](https://www.facebook.com/events/1828609237221082/) at the Chelmsford High School Performing Arts Center, 200 Richardson Rd., Chelmsford, MA, 7-8:30p
+
+Be an informed voter!!
