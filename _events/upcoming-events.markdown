@@ -43,6 +43,9 @@ layout: page
 * Wednesday Aug 22, 6-8p, Littleton: Blue Wave Phone Bank, Couper Room at the Reuben Hoar Library, Littleton
 
 
+* Sunday, Aug 26, 1p, Boston: Stop Kavanaugh rally at the NARAL Pro-Choice Massachusetts Offices. For more info and to sign up [click here.](https://act.moveon.org/event/unite-for-justice/21335/signup/)
+
+
 * Monday, Aug 27, 7-8:30p, Chelmsford: The Greater Lowell LWV and Chelmsford LWV are co-hosting a MA3 Candidate Forum in the Chelmsford High School theater, 200 Richardson Rd, Chelmsford.  Click [here for more info.](https://www.facebook.com/events/1828609237221082/)
 
 
