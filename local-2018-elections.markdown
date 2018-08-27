@@ -31,11 +31,13 @@ Click [here](https://docs.google.com/spreadsheets/d/1-Ss4hsZxVmYVdSmy9wjNR2vWCAL
 
 [An overview document of all the District MA-3 candidates](https://docs.google.com/presentation/d/1U4vfvlHfxJlbSxCuq8muFvahNwaD7yzgzgYcRJjV7gA/edit#slide=id.g2a5734a2c3_0_0)
 
-[Video Interviews with MA-3 Congressional Candidates By Concord Citizens Protecting Progress](https://www.youtube.com/channel/UCV93nK968mUZAj7T88ui99A) 
+[Video Interviews with MA-3 Congressional Candidates By Concord Citizens Protecting Progress](https://www.youtube.com/channel/UCV93nK968mUZAj7T88ui99A)
 
 [MA CD3 forum questionnaire](https://docs.google.com/document/d/1aHoG2XSpLy7UjyjCa6YcvqynNb2dtDmaMr2TCd43870)
 
 [Video: CD3 Congressional Debate, Hudson, MA 7/24/2018](https://youtu.be/FtSom8wxTHg)
+
+[Video: Acton Area and Concord Carlisle League of Women Voters Candidates Forum: 3rd Congressional District - Jul 23, 2018](https://www.youtube.com/watch?v=Uatr1i0aSMM)
 
 [Video: CD3 Nonpartisan Congressional Debate 6/13/2018](http://dracut.vod.castus.tv/vod/?video=beb7f5f2-8fc4-4bdd-ad58-620956e3e58e&nav=recent)
 
