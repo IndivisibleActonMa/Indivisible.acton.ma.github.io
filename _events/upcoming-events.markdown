@@ -22,6 +22,9 @@ layout: page
 
 * Wednesday, September 12, 5:30-7:30pm, Boston: Countdown to Election Day Fundraiser in support of The Environmental Voter Project, a nonprofit using the latest behavioral science to get environmentalists to vote. The Bostonian Boston Hotel, 26 North Street (near Faneuil Hall); RSVP [here](https://docs.google.com/forms/d/e/1FAIpQLSdANoTCydWR7ZAqmbLQbQi1jqdmxfgWEoyhbyz24nBp9KnYeQ/viewform?link_id=32). Donate [here](https://secure.ngpvan.com/OWPFfpLrok6yW918gXzUjA2?link_id=33).
 
+* Saturday, September 15, 1-4p, Acton: Indivisible Acton Local Fall Canvassing 19 DAYS OF ACTION!!  Come canvass with us for our Democratic Primary winners!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
+
+
 * Sunday, September 16, 4-6pm, Westford: [All about the Ballot Questions](https://www.facebook.com/events/1898970357074160/) hosted by Indivisible Westford.  First Parish Church United of Westford, 48 Main St., Westford, MA  01886
 
 * Wednesday, September 19, 6:30-8:30pm, Acton: Meet-Up to discuss Ballot Question 2 - Commission on Limiting Election Spending and Corporate Rights.  Drop in or RSVP [here](https://act.indivisible.org/event/attend-local-actions/40588). 
