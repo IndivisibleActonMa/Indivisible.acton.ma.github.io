@@ -31,8 +31,7 @@ layout: page
 
 * Wednesday, September 19, 6:30-8:30pm, Acton: Meet-Up for YES on Ballot Question 2 to establish a citizen's commission on limiting election spending and corporate rights to advance the 28th Amendment to overturn Citizens United; phone banking and other activities. Beverages and small plates available, so drop by after work or RSVP [here](https://act.indivisible.org/event/attend-local-actions/40588) to help make history!! Questions: linda@indivisibleacton.org  
  
-* Saturday-Sunday, September 22-23, 10a, Quincy: [Pride Weekend of Action for Yes on 3]
-(https://secure.freedomma.org/page/s/boston-peca). Help protect the rights of transgender people in MA! Christ Church Episcopal (12 Quincy Ave, Quincy, MA 02169). 
+* Saturday-Sunday, September 22-23, 10a, Quincy: [Pride Weekend of Action for Yes on 3](https://secure.freedomma.org/page/s/boston-peca). Help protect the rights of transgender people in MA! Christ Church Episcopal (12 Quincy Ave, Quincy, MA 02169). 
 
 * Saturday, September 22, 10am-1pm, Lowell:  2018 Campaign Bootcamp.  Hosted by Lowell Democratic City Committee and Greater Lowell Area Democrats.  UMass Lowell Innovation Hub, 110 Cana St., Lowell, MA 01852.  Click [here](https://www.facebook.com/events/461934754291859/) for more info and how to register.
 
