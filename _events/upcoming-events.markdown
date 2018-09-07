@@ -31,6 +31,7 @@ layout: page
 
 * Saturday, September 22, 10am-1pm, Lowell:  2018 Campaign Bootcamp.  Hosted by Lowell Democratic City Committee and Greater Lowell Area Democrats.  UMass Lowell Innovation Hub, 110 Cana St., Lowell, MA 01852.  Click [here](https://www.facebook.com/events/461934754291859/) for more info and how to register.
 
+* Sunday, September 23, 1-4p, Acton: Indivisible Acton Local Fall Canvassing 19 DAYS OF ACTION!!  Come canvass with us for our Democratic Primary winners!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
 
