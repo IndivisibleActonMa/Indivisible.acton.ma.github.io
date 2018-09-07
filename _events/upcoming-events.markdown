@@ -16,38 +16,13 @@ layout: page
 
 ## Some Events to Consider
 
-* Wednesday, Aug 1, 5:30-8p, Worcester State University, Student Center - Blue Lounge : Hosted by LWV Massachusetts and LWV Worcester Area, MA Women of Color Coalition, Worcester NAACP, Binienda Center for Civic Engagement. Candidates for Lt. Governor, Quentin Palfrey and Jimmy Tingle will introduce themselves and give the audience the opportunity to ask questions and will share their vision for the future of the Commonwealth. All three candidates for Lieutenant Governor were invited; Lieutenant Governor Karyn Polito is unable to attend. For more information contact The Binienda Center for Civic Engagement, 508.929.8635, wsu_biniendacenter@worcester.edu
+* Saturday, September 8, 2pm, Boston: [Boston RISE for Climate, Jobs, Justice](https://www.facebook.com/events/307646843315231/): Rally & People's School, American Legion Playground, 25 Glendon St, East Boston. For more info, click [here](https://peoplesclimate.org/rise/?source=tagged&referrer=group-nrdc&link_id=46&can_id=574622f1a89907bdcd11a29daa9a082f&email_referrer=email_407538&email_subject=2018-08-28-indivisible-acton-weekly-newsletter).
 
+* Saturday, September 8, 1pm, Worcester: Rise UP for Climate, Jobs and Justice Rally, Institute Park, 82 Salisbury Street, Worcester.
 
-* Wednesday, Aug 1, 6-9p Boston: Kick-off to Vote Yes on Question 2 at Democracy Brewing: Ice cream, beer, and celebration with special guests Congressman Jim McGovern and Ben Cohen, co-founder of Ben & Jerry’s Ice Cream as People Govern, Not Money and Attorney General Maura Healey start the campaign for a 28th Amendment. Click [here to RSVP](http://www.americanpromise.net/people_govern_not_money_yes_on_2_celebration?link_id=5&can_id=0d5712ce9b810b29d6d5471775001fbd&source=email-weekend-actions-2&email_referrer=&email_subject=weekend-actions&link_id=39&can_id=9a7cc198611ac2a74f284fdda8e14f7e).
+* Wednesday, September 12, 5:30-7:30pm, Boston: Countdown to Election Day Fundraiser in support of The Environmental Voter Project, a nonprofit using the latest behavioral science to get environmentalists to vote. The Bostonian Boston Hotel, 26 North Street (near Faneuil Hall); RSVP [here](https://docs.google.com/forms/d/e/1FAIpQLSdANoTCydWR7ZAqmbLQbQi1jqdmxfgWEoyhbyz24nBp9KnYeQ/viewform?link_id=32). Donate [here](https://secure.ngpvan.com/OWPFfpLrok6yW918gXzUjA2?link_id=33).
 
-
-* Wednesday, Aug 1, 7-9p Maynard:  Meet-up at the Blue Coyote Grille, 137 Main St., Maynard.  Stop by to join in taking action TOGETHER such as canvassing, postcard writing, emailing and texting for candidates, discussing best ways to resist, and more! Bring your laptop, phone, and headphones.
-
-
-* Saturday, Aug 4, 10a-12p, Acton: Meet-up at Bagels Plus in Acton (upstairs).  Stop by to join in taking action TOGETHER such as canvassing, postcard writing, emailing and texting for candidates, discussing best ways to resist, and more! Bring your laptop, phone, and headphones.
-
-
-* Saturday, Aug 4, 1-3p, Hanscom AFB: Stop nuclear war preparation -- walk with nuclear holocaust peace pilgrims. For more info, click [here](http://masspeaceaction.org/event/nuclear-holocaust-peace-pilgrims/?link_id=41&can_id=9a7cc198611ac2a74f284fdda8e14f7e).
-
-
-* Monday, Aug 6, 6:30-8p, Littleton: Blue Wave Phone Bank, Couper Room at the Reuben Hoar Library, Littleton
-
-
-* Wednesday, Aug 15 : LAST DAY to register to vote in the MA primary.  [Where do I register to vote?](https://www.sec.state.ma.us/ovr/)
-
-
-* Wednesday, Aug 15, 5:30-7p, Lowell: [UTEC Congressional Candidate Forum](https://www.facebook.com/events/2706820095998580/), UTEC Catalyst Center, 15 Warren St, Lowell, MA 01852  
-
-
-* Wednesday Aug 22, 6-8p, Littleton: Blue Wave Phone Bank, Couper Room at the Reuben Hoar Library, Littleton
-
-
-* Sunday, Aug 26, 1p, Boston: Stop Kavanaugh rally at the NARAL Pro-Choice Massachusetts Offices. For more info and to sign up [click here.](https://act.moveon.org/event/unite-for-justice/21335/signup/)
-
-
-* Monday, Aug 27, 7-8:30p, Chelmsford: The Greater Lowell LWV and Chelmsford LWV are co-hosting a MA3 Candidate Forum in the Chelmsford High School theater, 200 Richardson Rd, Chelmsford.  Click [here for more info.](https://www.facebook.com/events/1828609237221082/)
-
+* Wednesday, September 19, 6:30-8:30pm, Acton: Meet-Up to discuss Ballot Question 2 - Commission on Limiting Election Spending and Corporate Rights.  Drop in or RSVP [here](https://act.indivisible.org/event/attend-local-actions/40588)  
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
 
