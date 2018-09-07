@@ -29,10 +29,14 @@ layout: page
 
 * Wednesday, September 19, 6:30-8:30pm, Acton: Meet-Up for YES on Ballot Question 2 to establish a citizen's commission on limiting election spending and corporate rights to advance the 28th Amendment to overturn Citizens United; phone banking and other activities. Beverages and small plates available, so drop by after work or RSVP [here](https://act.indivisible.org/event/attend-local-actions/40588) to help make history!! Questions: linda@indivisibleacton.org  
  
+* Saturday-Sunday, September 22-23, 10a, Quincy: [Pride Weekend of Action for Yes on 3]
+(https://secure.freedomma.org/page/s/boston-peca). Help protect the rights of transgender people in MA! Christ Church Episcopal (12 Quincy Ave, Quincy, MA 02169). 
 
 * Saturday, September 22, 10am-1pm, Lowell:  2018 Campaign Bootcamp.  Hosted by Lowell Democratic City Committee and Greater Lowell Area Democrats.  UMass Lowell Innovation Hub, 110 Cana St., Lowell, MA 01852.  Click [here](https://www.facebook.com/events/461934754291859/) for more info and how to register.
 
 * Sunday, September 23, 1-4p, Acton: Indivisible Acton Local Fall 19 DAYS OF ACTION!!  Come canvass with us for our Democratic Primary winners!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
+
+* Thursday, September 27, 6-9p, Boston: Boston Black Pride and Freedom For All Massachusetts will be hosting a Community Assembly to bring together leaders from all Boston LGBTQ organizations to discuss communication strategies for strengthening our coalitions of voters. Click [here](https://www.eventbrite.ca/e/boston-black-pride-community-assembly-a-call-to-defend-transgender-civli-rights-tickets-49308468958) for more info and to register.
 
 * Saturday, September 29, 1-4p, Acton: Indivisible Acton Local Fall 19 DAYS OF ACTION!!  Come canvass with us for our Democratic Primary winners!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
