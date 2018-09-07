@@ -20,6 +20,8 @@ layout: page
 
 * Saturday, September 8, 1pm, Worcester: Rise UP for Climate, Jobs and Justice Rally, Institute Park, 82 Salisbury Street, Worcester.
 
+* **Monday, September 10, 6:30-8:45p, Acton: Indivisible General Meeting** - Acton Memorial Library, 486 Main St., Acton, MA 01720
+
 * Wednesday, September 12, 5:30-7:30pm, Boston: Countdown to Election Day Fundraiser in support of The Environmental Voter Project, a nonprofit using the latest behavioral science to get environmentalists to vote. The Bostonian Boston Hotel, 26 North Street (near Faneuil Hall); RSVP [here](https://docs.google.com/forms/d/e/1FAIpQLSdANoTCydWR7ZAqmbLQbQi1jqdmxfgWEoyhbyz24nBp9KnYeQ/viewform?link_id=32). Donate [here](https://secure.ngpvan.com/OWPFfpLrok6yW918gXzUjA2?link_id=33).
 
 * Saturday, September 15, 1-4p, Acton: Indivisible Acton Local Fall Canvassing 19 DAYS OF ACTION!!  Come canvass with us for our Democratic Primary winners!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
