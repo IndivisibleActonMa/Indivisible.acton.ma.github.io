@@ -27,7 +27,8 @@ layout: page
 
 * Sunday, September 16, 4-6pm, Westford: [All about the Ballot Questions](https://www.facebook.com/events/1898970357074160/) hosted by Indivisible Westford.  First Parish Church United of Westford, 48 Main St., Westford, MA  01886
 
-* Wednesday, September 19, 6:30-8:30pm, Acton: Meet-Up to discuss Ballot Question 2 - Commission on Limiting Election Spending and Corporate Rights.  Drop in or RSVP [here](https://act.indivisible.org/event/attend-local-actions/40588). 
+* Wednesday, September 19, 6:30-8:30pm, Acton: Meet-Up for YES on Ballot Question 2 to establish a citizen's commission on limiting election spending and corporate rights to advance the 28th Amendment to overturn Citizens United; phone banking and other activities. Beverages and small plates available, so drop by after work or RSVP [here](https://act.indivisible.org/event/attend-local-actions/40588) to help make history!! Questions: linda@indivisibleacton.org  
+ 
 
 * Saturday, September 22, 10am-1pm, Lowell:  2018 Campaign Bootcamp.  Hosted by Lowell Democratic City Committee and Greater Lowell Area Democrats.  UMass Lowell Innovation Hub, 110 Cana St., Lowell, MA 01852.  Click [here](https://www.facebook.com/events/461934754291859/) for more info and how to register.
 
