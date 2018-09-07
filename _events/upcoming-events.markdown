@@ -20,7 +20,7 @@ layout: page
 
 * Saturday, September 8, 1pm, Worcester: Rise UP for Climate, Jobs and Justice Rally, Institute Park, 82 Salisbury Street, Worcester.
 
-* **Monday, September 10, 6:30-8:45p, Acton: Indivisible General Meeting** - Acton Memorial Library, 486 Main St., Acton, MA 01720
+* **Monday, September 10, 6:30-8:45p, Acton: Indivisible General Meeting** - We will be discussing our Midterm plans and how you can specifically join in making sure the Blue Wave is a huge wave and not just a splash! There will also be primary election candidates/winners attending.  Acton Memorial Library, 486 Main St., Acton, MA 01720
 
 * Wednesday, September 12, 5:30-7:30pm, Boston: Countdown to Election Day Fundraiser in support of The Environmental Voter Project, a nonprofit using the latest behavioral science to get environmentalists to vote. The Bostonian Boston Hotel, 26 North Street (near Faneuil Hall); RSVP [here](https://docs.google.com/forms/d/e/1FAIpQLSdANoTCydWR7ZAqmbLQbQi1jqdmxfgWEoyhbyz24nBp9KnYeQ/viewform?link_id=32). Donate [here](https://secure.ngpvan.com/OWPFfpLrok6yW918gXzUjA2?link_id=33).
 
