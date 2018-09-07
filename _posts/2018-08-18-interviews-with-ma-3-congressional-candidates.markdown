@@ -1,7 +1,8 @@
 ---
 title: Get to know MA-3  Congressional Candidates!
 date: 2018-08-18 22:13:00 -04:00
-is featured: true
+published: false
+is featured: false
 ---
 
 The MA Primary is September 4!  Are you ready?
