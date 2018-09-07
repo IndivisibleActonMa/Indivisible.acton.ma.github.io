@@ -26,6 +26,9 @@ layout: page
 
 * Wednesday, September 19, 6:30-8:30pm, Acton: Meet-Up to discuss Ballot Question 2 - Commission on Limiting Election Spending and Corporate Rights.  Drop in or RSVP [here](https://act.indivisible.org/event/attend-local-actions/40588)  
 
+* Saturday, September 22, 10am-1pm, Lowell:  2018 Campaign Bootcamp.  Hosted by Lowell Democratic City Committee and Greater Lowell Area Democrats.  UMass Lowell Innovation Hub, 110 Cana St., Lowell, MA 01852.  Click [here](https://www.facebook.com/events/461934754291859/) for more info and how to register.
+
+
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
 
 ---
