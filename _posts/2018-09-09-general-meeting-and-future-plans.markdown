@@ -1,7 +1,7 @@
 ---
 title: General Meeting and Future Plans
 date: 2018-09-09 08:25:00 -04:00
-published: false
+is featured: true
 ---
 
 ### Please attend  Indivisible Acton's General Meeting September 10th.
