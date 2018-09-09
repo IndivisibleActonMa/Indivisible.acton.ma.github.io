@@ -1,31 +1,13 @@
 ---
-title: General Meeting and Future Plans
+title: September General Meeting
 date: 2018-09-09 08:25:00 -04:00
-published: false
-is featured: false
+is featured: true
 ---
 
-### Please attend our General Meeting Monday, Sep 10.
+Indivisible Acton's General Meeting will be September 10th at the Acton Memorial Library 6:30-8:30 PM. 
 
-Where: Acton Memorial Library
-When:  Monday, September 10, 2018, 6:30-8:30p
+During our Social 1/2 Hour we will be joined by Quentin Palfrey, Tami Gouveia, and possibly Jamie Eldridge and Jay Gonzalez. 
 
-* 6:30-7p : New Member Orientation & Social ½ Hour for everyone.  We are expecting Quentin Palfrey, Tami Gouveia to join us - maybe a couple more!
+We'll also have a New Member Orientation as part of the meeting and we will discuss plans for the November election from supporting candidates to ballot questions! 
 
-* 7:00 - 8:30p : Ballot question endorsement, election results and campaign updates. Find out how you can be part of the Blue wave: something for everyone!
-
-### NEW MEETUPS!!
-
-New Meetups at the amazing The Orange Door in West Acton from 6:00-8:30p:
-
-* Wednesday - September 19, October 3 and 17, and
-
-* Monday - October 30
-
-Phone banking and postcards for Ballot Question 2 to overturn Citizens United with the 28th amendment .
-
----
-
-All these actions have a goal:  to win as much of our democracy back on Nov. 6 as possible.
-
-Contact info@indivisibleacton.org for more information on what YOU can do!
+Come find out how you can be part of the Blue wave: something for everyone! Contact monica@indivisibleacton.org for more information on what YOU can do!
