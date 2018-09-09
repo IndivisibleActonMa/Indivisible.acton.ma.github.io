@@ -5,17 +5,27 @@ published: false
 is featured: false
 ---
 
-### Please attend our General Meeting September 10th.
+### Please attend our General Meeting Monday, Sep 10.
+
+Where: Acton Memorial Library
+When:  Monday, September 10, 2018, 6:30-8:30p
 
 * 6:30-7p : New Member Orientation & Social ½ Hour for everyone.  We are expecting Quentin Palfrey, Tami Gouveia to join us - maybe a couple more!
 
-* 7:00 - 8:30p : Ballot question endorsement, election results and campaign updates
+* 7:00 - 8:30p : Ballot question endorsement, election results and campaign updates. Find out how you can be part of the Blue wave: something for everyone!
 
-Acton Memorial Library, 
-### Be part of the BLUE WAVE!!
+### NEW MEETUPS!!
 
-Local headquarters for all Democratic candidates will be Jamie Eldridge’s office in Acton.
+New Meetups at the amazing The Orange Door in West Acton from 6:00-8:30p:
 
-We encourage all members to spend a few hours each weekend working with the campaigns at the Eldridge headquarters. There are tasks for everyone, from canvassing to data entry. And plenty of experienced activists to help train anyone who is new to the task.
+* Wednesday - September 19, October 3 and 17, and
 
-Keep your eye on the [calendar](http://www.indivisibleacton.org/calendar.html), [upcoming events](http://www.indivisibleacton.org/upcoming-events.html) and twice-weekly newsletter for information about regular meet-ups and NEW meet-ups!
+* Monday - October 30
+
+Phone banking and postcards for Ballot Question 2 to overturn Citizens United with the 28th amendment .
+
+---
+
+All these actions have a goal:  to win as much of our democracy back on Nov. 6 as possible.
+
+Contact info@indivisibleacton.org for more information on what YOU can do!
