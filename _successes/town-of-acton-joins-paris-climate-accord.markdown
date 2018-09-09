@@ -1,6 +1,7 @@
 ---
 title: Town of Acton joins Paris Climate Accord
 date: 2017-07-10 19:00:00 -04:00
+published: false
 is featured: false
 main-image: "/uploads/townhallwithgrey.jpg"
 ---
