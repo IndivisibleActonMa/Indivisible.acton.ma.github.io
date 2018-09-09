@@ -1,7 +1,8 @@
 ---
 title: Support the Safe Communities Act
 date: 2018-06-17 22:00:00 -04:00
-is featured: true
+published: false
+is featured: false
 layout: page
 ---
 
