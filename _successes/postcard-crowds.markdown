@@ -1,6 +1,6 @@
 ---
 title: Accomplishments Afoot
-date: 2017-11-26 19:49:00 -05:00
+date: 2018-09-09 10:00:00 -04:00
 is featured: false
 main-image: "/uploads/20171126_131247.jpg"
 ---
