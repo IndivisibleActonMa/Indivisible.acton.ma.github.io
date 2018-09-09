@@ -16,4 +16,4 @@ Local headquarters for all Democratic candidates will be Jamie Eldridge’s offi
 
 We encourage all members to spend a few hours each weekend working with the campaigns at the Eldridge headquarters. There are tasks for everyone, from canvassing to data entry. And plenty of experienced activists to help train anyone who is new to the task.
 
-Keep your eye on the calendar, upcoming events and twice-weekly newsletter for information about regular meet-ups and NEW meet-ups!
+Keep your eye on the [calendar](http://www.indivisibleacton.org/calendar.html), [upcoming events](http://www.indivisibleacton.org/upcoming-events.html) and twice-weekly newsletter for information about regular meet-ups and NEW meet-ups!
