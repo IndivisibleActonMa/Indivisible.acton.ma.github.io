@@ -1,6 +1,7 @@
 ---
 title: Feature Article in Acton Beacon
 date: 2017-06-30 21:46:00 -04:00
+published: false
 is featured: false
 main-image: "/uploads/DSC_0103.JPG"
 ---
