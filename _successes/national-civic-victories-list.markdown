@@ -1,6 +1,7 @@
 ---
 title: National Civic Victories List
 date: 2017-12-20 12:18:00 -05:00
+published: false
 is featured: true
 ---
 
