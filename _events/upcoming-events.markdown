@@ -38,7 +38,7 @@ layout: page
 
 * *2-5p, Acton*: Acton Democratic Town Committee picnic with candidates!  $10pp/$20 per family.  Please bring a non-perishable food item to the picnic to support the AB Food Pantry.  14 Stow St., Acton, MA. 01720
 
-* *4-6p, Westford*: [All about the Ballot Questions](https://www.facebook.com/events/1898970357074160/) hosted by Indivisible Westford.  First Parish Church United of Westford, 48 Main St., Westford, MA  01886
+* *4-6p, Westford*: [All About the Ballot Questions](https://www.facebook.com/events/1898970357074160/) hosted by Indivisible Westford.  First Parish Church United of Westford, 48 Main St., Westford, MA  01886
 
 **Wednesday, September 19**
 
