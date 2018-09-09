@@ -1,6 +1,7 @@
 ---
 title: Registering Voters in Alabama
 date: 2017-11-26 19:52:00 -05:00
+published: false
 is featured: true
 main-image: "/uploads/OpenProgressRegistration-5abd7a.jpg"
 ---
