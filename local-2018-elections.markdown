@@ -91,9 +91,9 @@ Campaign Website: [www.maurahealey.com](www.maurahealey.com)
 
 ---
 
-## Secretary of State
+## Secretary of the Commonwealth
 
-### Bill Gavin
+### [Bill Gavin](https://www.sec.state.ma.us/)
 
 Campaign Website: [www.billgalvin.org](www.billgalvin.org)
 
