@@ -99,7 +99,7 @@ Campaign Website: [www.billgalvin.org](www.billgalvin.org)
 
 ---
 
-## MA Senator
+## State Senator
 
 ### [State Senator Jamie Eldridge](https://www.senatoreldridge.com/)
 
