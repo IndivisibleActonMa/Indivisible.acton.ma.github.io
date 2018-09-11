@@ -8,12 +8,4 @@ layout: post
 
 ---
 
-## Meeting Agendas
-
-Click on the meeting date for the associated agenda.
-
-* ### [April 9](https://docs.google.com/document/d/1-fylkDDLQtLYhLw-QPEOES9ZUSYjsZDcP5wssr7BJgc/edit)
-
-* ### [May 21](https://docs.google.com/document/d/1zyyyhru2tWnqFtuZcnVD2Q1GiIvi_IfKiQoYjCvIiZU/)
-
-* ### [Jun 11](https://docs.google.com/document/d/1zSdlt5sDjYc5u6WWwNCDsIPSvnb_skjJDIXPmYFazf4/)
+## Please note - there will be no General Meeting in November and December.  We will resume General Meetings in January, 2019.
