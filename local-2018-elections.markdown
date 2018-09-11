@@ -101,6 +101,6 @@ Campaign Website: [www.billgalvin.org](www.billgalvin.org)
 
 ## MA Senator
 
-[State Senator Jamie Eldridge](https://www.senatoreldridge.com/)
+### [State Senator Jamie Eldridge](https://www.senatoreldridge.com/)
 
 Campaign Website: [http://www.jamieeldridge.com](http://www.jamieeldridge.com)
