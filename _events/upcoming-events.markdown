@@ -56,6 +56,9 @@ layout: page
 
 **Sunday, September 23**
 
+* *11:30a-1:30p, Concord*: Concord Progressive Activists Afternoon. GET OUT THE VOTE!  Every Sunday through Nov. 4. Click [here](/uploads/ConcordProgressiveActivistAfternoons.png) for more info.
+
+
 * *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing.  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
 **Thursday, September 27**
