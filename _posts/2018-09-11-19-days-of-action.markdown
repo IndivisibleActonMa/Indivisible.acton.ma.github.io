@@ -14,4 +14,4 @@ Actions include canvassing, phone banking, and other opportunities for those who
 
 Location: 130 Main St., Acton, MA 01720
 
-### Sign up [here](https://www.signupgenius.com/go/30e0f4baba72eab9-indivisibleacton)!!
+Check the [calendar](http://www.indivisibleacton.org/calendar.html) and [upcoming events](http://www.indivisibleacton.org/events/upcoming-events.html) for dates and times!
