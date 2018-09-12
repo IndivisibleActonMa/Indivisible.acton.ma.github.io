@@ -42,7 +42,7 @@ layout: page
 
 **Wednesday, September 19**
 
-* *6:30-8:30p*, Acton: Meet-Up for YES on Ballot Question 2 to establish a citizen's commission on limiting election spending and corporate rights to advance the 28th Amendment to overturn Citizens United; phone banking and other activities. Beverages and small plates available, so drop by after work or RSVP [here](https://act.indivisible.org/event/attend-local-actions/40588) to help make history!! Questions: linda@indivisibleacton.org
+* *6:00-8:30p*, Acton: Meet-Up for YES on Ballot Question 2 to establish a citizen's commission on limiting election spending and corporate rights to advance the 28th Amendment to overturn Citizens United; phone banking and other activities. Beverages and small plates available, so drop by after work or RSVP [here](https://act.indivisible.org/event/attend-local-actions/40588) to help make history!! Questions: linda@indivisibleacton.org
 
 **Saturday-Sunday, September 22-23**
 
