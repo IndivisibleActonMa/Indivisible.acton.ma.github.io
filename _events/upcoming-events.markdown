@@ -72,6 +72,10 @@ layout: page
 
 * *12:30-3:30p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
+---
+
+* **NEW!!  Every Sunday 9/23-11/4 - Concord Progressive Activists Afternoon!** 
+
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
 
