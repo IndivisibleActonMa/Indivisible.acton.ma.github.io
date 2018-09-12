@@ -32,9 +32,11 @@ layout: page
 
 **Saturday, September 15**
 
-* *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing.  Come canvass with us for our Democratic Primary winners!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
+* *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing.  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact! We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
 **Sunday, September 16**
+
+* *10a-1p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing.  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
 * *2-5p, Acton*: Acton Democratic Town Committee picnic with candidates!  $10pp/$20 per family.  Please bring a non-perishable food item to the picnic to support the AB Food Pantry.  14 Stow St., Acton, MA. 01720
 
@@ -54,7 +56,7 @@ layout: page
 
 **Sunday, September 23**
 
-* *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing.  Come canvass with us for our Democratic Primary winners!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
+* *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing.  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
 **Thursday, September 27**
 
@@ -62,13 +64,13 @@ layout: page
 
 **Saturday, September 29**
 
-* *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come canvass with us for our Democratic Primary winners!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
+* *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
 **Sunday, September 30**
 
 * *11-2p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Phone Banking!! Come phone bank for our Democratic Primary winners!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
-* *12:30-3:30p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come canvass with us for our Democratic Primary winners!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
+* *12:30-3:30p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
