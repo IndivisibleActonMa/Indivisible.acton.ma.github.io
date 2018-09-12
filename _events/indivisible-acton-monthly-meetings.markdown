@@ -8,4 +8,4 @@ layout: post
 
 ---
 
-## Please note - there will be no General Meeting in November and December.  We will resume General Meetings in January, 2019.
+***Please note - there will be no General Meeting in November and December.  We will resume General Meetings in January, 2019.***
