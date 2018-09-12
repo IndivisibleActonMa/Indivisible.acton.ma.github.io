@@ -6,6 +6,8 @@ is featured: true
 
 ### Let's Get Out The Vote!!
 
+---
+
 Come out and support Dems up and down the ticket!
 
 Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact.
