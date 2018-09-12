@@ -74,7 +74,7 @@ layout: page
 
 ---
 
-* **NEW!!  Every Sunday 9/23-11/4 - Concord Progressive Activists Afternoon!** Click [here](/uploads/Concord%20Progressive%20Activist%20Afternoons\).png) for more info.
+* **NEW!!  Every Sunday 9/23-11/4 - Concord Progressive Activists Afternoon!** Click [here](/uploads/ConcordProgressiveActivistAfternoons.png) for more info.
 
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
