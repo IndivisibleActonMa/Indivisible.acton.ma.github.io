@@ -1,5 +1,5 @@
 ---
-title: Upcoming Events of Interest
+title: Upcoming Events
 date: 2018-02-19 10:07:00 -05:00
 layout: page
 ---
