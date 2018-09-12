@@ -16,4 +16,4 @@ Location: 130 Main St., Acton, MA 01720
 
 Check the [calendar](http://www.indivisibleacton.org/calendar.html) and [upcoming events](http://www.indivisibleacton.org/events/upcoming-events.html) for dates and times.
 
-*Contact **monica@indivisibleacton.org** to find out how you can get involved!!*
+*Contact **monica@indivisibleacton.org** to find out how YOU can get involved!!*
