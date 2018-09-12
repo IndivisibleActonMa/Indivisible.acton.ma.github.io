@@ -1,5 +1,5 @@
 ---
-title: Phone Banks
+title: Phone Banking
 date: 2017-06-02 23:08:00 -04:00
 main-image: "/uploads/Meet-Up%208_22.JPG"
 ---
