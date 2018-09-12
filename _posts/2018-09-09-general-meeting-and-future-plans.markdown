@@ -1,7 +1,8 @@
 ---
 title: September General Meeting
 date: 2018-09-09 08:25:00 -04:00
-is featured: true
+published: false
+is featured: false
 ---
 
 Indivisible Acton's General Meeting will be September 10th at the Acton Memorial Library 6:30-8:30 PM. 
