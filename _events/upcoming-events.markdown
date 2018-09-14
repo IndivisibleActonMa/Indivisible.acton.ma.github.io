@@ -65,6 +65,8 @@ layout: page
 
 * *6-9p, Boston*: Boston Black Pride and Freedom For All Massachusetts will be hosting a Community Assembly to bring together leaders from all Boston LGBTQ organizations to discuss communication strategies for strengthening our coalitions of voters. Click [here](https://www.eventbrite.ca/e/boston-black-pride-community-assembly-a-call-to-defend-transgender-civli-rights-tickets-49308468958) for more info and to register.
 
+* *7:30-8p, Harvard*: FORUM ON BALLOT QUESTION 2.  Learn why you should vote YES on 2 at this local workshop. Bring your questions—and your friends! Click [here](https://www.facebook.com/events/452656018574172/)  for more info.  Harvard Cultural Collaborative, 7 Fairbank St., Harvard, MA.
+
 **Saturday, September 29**
 
 * *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
