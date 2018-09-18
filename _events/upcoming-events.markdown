@@ -49,7 +49,7 @@ layout: page
 
 **Thursday, September 20**
 
-* *5pm, Acton*: Join Team Tami this Thursday for volunteer training and then doorknocking in the District to support and advocate for transgender rights. We meet at 201 Great Road (2nd Flr) in Acton. To RSVP, email emily@tamigouveia.com.
+* *5pm, Acton*: Join Team Tami this Thursday for volunteer training and then doorknocking in the District to support and advocate for transgender rights. We meet EVERY Thursday, 5p until Election Day at 201 Great Road (2nd Flr) in Acton. To RSVP, email emily@tamigouveia.com.
 
 
 **Saturday-Sunday, September 22-23**
@@ -68,6 +68,9 @@ layout: page
 * *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing.  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
 **Thursday, September 27**
+
+* *5pm, Acton*: Join Team Tami doorknocking in the District to support and advocate for transgender rights. We meet EVERY Thursday, 5p until Election Day at 201 Great Road (2nd Flr) in Acton. To RSVP, email emily@tamigouveia.com.
+
 
 * *6-9p, Boston*: Boston Black Pride and Freedom For All Massachusetts will be hosting a Community Assembly to bring together leaders from all Boston LGBTQ organizations to discuss communication strategies for strengthening our coalitions of voters. Click [here](https://www.eventbrite.ca/e/boston-black-pride-community-assembly-a-call-to-defend-transgender-civli-rights-tickets-49308468958) for more info and to register.
 
