@@ -46,6 +46,12 @@ layout: page
 
 * *6:00-8:30p*, Acton: Meet-Up for YES on Ballot Question 2 to establish a citizen's commission on limiting election spending and corporate rights to advance the 28th Amendment to overturn Citizens United; phone banking and other activities. Beverages and small plates available, so drop by after work or RSVP [here](https://act.indivisible.org/event/attend-local-actions/40588) to help make history!! Questions: linda@indivisibleacton.org
 
+
+**Thursday, September 20**
+
+* *5pm, Acton*: Join Team Tami this Thursday for volunteer training and then doorknocking in the District to support and advocate for transgender rights. We meet at 201 Great Road (2nd Flr) in Acton. To RSVP, email emily@tamigouveia.com.
+
+
 **Saturday-Sunday, September 22-23**
 
 * *10a, Quincy*: [Pride Weekend of Action for Yes on 3](https://secure.freedomma.org/page/s/boston-peca). Help protect the rights of transgender people in MA! Christ Church Episcopal (12 Quincy Ave, Quincy, MA 02169).
