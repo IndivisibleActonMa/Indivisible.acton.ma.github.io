@@ -84,6 +84,8 @@ layout: page
 
 * *11-2p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Phone Banking!! Come phone bank for our Democratic Primary winners!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
+*11:30a-2p, Concord*: Concord Progressive Activists Afternoon. GET OUT THE VOTE!  Every Sunday through Nov. 4. Click [here](/uploads/ConcordProgressiveActivistAfternoons-993d55.png) for more info.  Click [here to register](http://bit.ly/2x1jA6a).  
+
 * *12:30-3:30p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
 ---
