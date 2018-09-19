@@ -53,7 +53,7 @@ layout: page
 
 **Friday, September 21**
 
-* 6-9p, Lowell: [Unity Rally in Lowell with Elizabeth Warren](https://www.facebook.com/events/463829587469793/).  Doors open at 6p and event starts at 6:30p
+* *6-9p, Lowell*: [Unity Rally in Lowell with Elizabeth Warren](https://www.facebook.com/events/463829587469793/).  Doors open at 6p and event starts at 6:30p
 
  
 **Saturday-Sunday, September 22-23**
