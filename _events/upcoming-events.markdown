@@ -51,7 +51,11 @@ layout: page
 
 * *5pm, Acton*: Join Team Tami this Thursday for volunteer training and then doorknocking in the District to support and advocate for transgender rights. We meet EVERY Thursday, 5p until Election Day at 201 Great Road (2nd Flr) in Acton. To RSVP, email emily@tamigouveia.com.
 
+**Friday, September 21**
 
+* 6-9p, Lowell: [Unity Rally in Lowell with Elizabeth Warren](https://www.facebook.com/events/463829587469793/).  Doors open at 6p and event starts at 6:30p
+
+ 
 **Saturday-Sunday, September 22-23**
 
 * *10a, Quincy*: [Pride Weekend of Action for Yes on 3](https://secure.freedomma.org/page/s/boston-peca). Help protect the rights of transgender people in MA! Christ Church Episcopal (12 Quincy Ave, Quincy, MA 02169).
