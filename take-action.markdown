@@ -4,7 +4,7 @@ date: 2018-01-17 10:41:00 -05:00
 layout: page
 ---
 
-![20180522 Indivisible & Activist Alliance.jpg](/uploads/20180522%20Indivisible%20&%20Activist%20Alliance.jpg)
+![Screen Shot 2018-09-21 at 9.46.11 PM.png](/uploads/Screen%20Shot%202018-09-21%20at%209.46.11%20PM.png)
 
 ---
 
