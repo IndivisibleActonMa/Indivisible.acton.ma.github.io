@@ -2,7 +2,7 @@
 title: 19 Days of Action!!
 date: 2018-09-11 21:38:00 -04:00
 is featured: true
-main-image: "/uploads/42044393_10156180370254130_6324837980473131008_o.jpg"
+main-image: "/uploads/42044393_10156180370254130_6324837980473131008_o-a3d752.jpg"
 ---
 
 ### Let's Get Out The Vote!!
