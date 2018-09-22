@@ -27,13 +27,7 @@ Click [here](https://docs.google.com/spreadsheets/d/1-Ss4hsZxVmYVdSmy9wjNR2vWCAL
 
 ## Congressional District MA-3
 
-### Candidate Dan Koh
-
-[Video Interview with Dan Koh, MA-3 Congressional Candidates By Concord Citizens Protecting Progress](https://www.youtube.com/watch?v=Li7XnCEdvS0)
-
-Campaign Website: [https://koh2018.com](https://koh2018.com)
-
-### Candidate Lori Trahan
+### Lori Trahan
 
 [Video Interview with Lori Trahan, MA-3 Congressional Candidate By Concord Citizens Protecting Progress](https://www.youtube.com/watch?v=rQH-9jCIk7Y)
 
