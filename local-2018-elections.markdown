@@ -11,6 +11,8 @@ date: 2017-12-20 21:38:00 -05:00
 
 [Where do I vote?](http://www.sec.state.ma.us/wheredoivotema/bal/MyElectionInfo.aspx)
 
+***Voter registration deadline: Oct 17, 2018***
+
 ---
 
 # Candidate and Campaign Policy and Etiquette
