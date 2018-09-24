@@ -4,7 +4,7 @@ date: 2018-01-17 10:41:00 -05:00
 layout: page
 ---
 
-![Screen Shot 2018-09-21 at 9.46.11 PM.png](/uploads/Screen%20Shot%202018-09-21%20at%209.46.11%20PM.png)
+![Blue Wave Action in oct (1).png](/uploads/Blue%20Wave%20Action%20in%20oct%20(1).png)
 
 ---
 
