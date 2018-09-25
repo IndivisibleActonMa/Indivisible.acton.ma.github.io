@@ -92,7 +92,7 @@ layout: page
 
 ---
 
-* **NEW!!  Every Sunday 9/23-11/4 - [Concord Progressive Activists](https://www.facebook.com/VoteBlueNovember/) Afternoon!** Click [here to register](http://bit.ly/2x1jA6a).  Click [here](/uploads/ConcordProgressiveActivistAfternoons-993d55.png) for more info.
+* **NEW!!  Every Sunday 9/23-11/4,, 11:30-2p - [Concord Progressive Activists](https://www.facebook.com/VoteBlueNovember/) Afternoon!** Click [here to register](http://bit.ly/2x1jA6a).  Click [here](/uploads/ConcordProgressiveActivistAfternoons-993d55.png) for more info.
 
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
