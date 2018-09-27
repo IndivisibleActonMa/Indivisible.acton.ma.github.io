@@ -93,7 +93,7 @@ layout: page
 * **NEW!!  Every Sunday 9/23-11/4,, 11:30-2p - [Concord Progressive Activists](https://www.facebook.com/VoteBlueNovember/) Afternoon!** Click [here to register](http://bit.ly/2x1jA6a).  Click [here](/uploads/ConcordProgressiveActivistAfternoons-993d55.png) for more info.
 
 
-* **SAVE THE DATEs - 3 Gubernatorial Debates**: *Tuesday, Oct 9, 8p* - WBZ-TV host Jon Keller as moderator; *Wednesday, Oct 17, 7p* - WGBH debate moderated by Jim Braude and Margery Eagan; *Thursday, Nov 1* - WCVB studios, moderators and time to be determined.  Click [here](https://www.metrowestdailynews.com/news/20180925/first-governor-debate-planned-for-oct-9) for more info.
+* **SAVE THE DATEs - [3 Gubernatorial Debates](http://www.indivisibleacton.org/2018/09/26/3-gubernatorial-debates.html)**
 
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
