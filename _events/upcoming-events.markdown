@@ -46,7 +46,6 @@ layout: page
 
 * *6:00-8:30p*, Acton: Meet-Up for YES on Ballot Question 2 to establish a citizen's commission on limiting election spending and corporate rights to advance the 28th Amendment to overturn Citizens United; phone banking and other activities. Beverages and small plates available, so drop by after work or RSVP [here](https://act.indivisible.org/event/attend-local-actions/40588) to help make history!! Questions: linda@indivisibleacton.org
 
-
 **Thursday, September 20**
 
 * *5pm, Acton*: Join Team Tami this Thursday for volunteer training and then doorknocking in the District to support and advocate for transgender rights. We meet EVERY Thursday, 5p until Election Day at 201 Great Road (2nd Flr) in Acton. To RSVP, email emily@tamigouveia.com.
@@ -55,7 +54,6 @@ layout: page
 
 * *6-9p, Lowell*: [Unity Rally in Lowell with Elizabeth Warren](https://www.facebook.com/events/463829587469793/).  Doors open at 6p and event starts at 6:30p
 
- 
 **Saturday-Sunday, September 22-23**
 
 * *10a, Quincy*: [Pride Weekend of Action for Yes on 3](https://secure.freedomma.org/page/s/boston-peca). Help protect the rights of transgender people in MA! Christ Church Episcopal (12 Quincy Ave, Quincy, MA 02169).
@@ -66,7 +64,7 @@ layout: page
 
 **Sunday, September 23**
 
-* *11:30a-2p, Concord*: Concord Progressive Activists Afternoon. GET OUT THE VOTE!  Every Sunday through Nov. 4. Click [here](/uploads/ConcordProgressiveActivistAfternoons-993d55.png) for more info.  Click [here to register](http://bit.ly/2x1jA6a).  
+* *11:30a-2p, Concord*: Concord Progressive Activists Afternoon. GET OUT THE VOTE!  Every Sunday through Nov. 4. Click [here](/uploads/ConcordProgressiveActivistAfternoons-993d55.png) for more info.  Click [here to register](http://bit.ly/2x1jA6a).
 
 
 * *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing.  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
@@ -86,13 +84,16 @@ layout: page
 
 **Sunday, September 30**
 
-* *11:30a-2p, Concord*: Concord Progressive Activists Afternoon. GET OUT THE VOTE!  Every Sunday through Nov. 4. Click [here](/uploads/ConcordProgressiveActivistAfternoons-993d55.png) for more info.  Click [here to register](http://bit.ly/2x1jA6a).  
+* *11:30a-2p, Concord*: Concord Progressive Activists Afternoon. GET OUT THE VOTE!  Every Sunday through Nov. 4. Click [here](/uploads/ConcordProgressiveActivistAfternoons-993d55.png) for more info.  Click [here to register](http://bit.ly/2x1jA6a).
 
 * *12:30-3:30p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
 ---
 
 * **NEW!!  Every Sunday 9/23-11/4,, 11:30-2p - [Concord Progressive Activists](https://www.facebook.com/VoteBlueNovember/) Afternoon!** Click [here to register](http://bit.ly/2x1jA6a).  Click [here](/uploads/ConcordProgressiveActivistAfternoons-993d55.png) for more info.
+
+
+* **SAVE THE DATEs - 3 Gubernatorial Debates**: *Tuesday, Oct 9, 8p* - WBZ-TV host Jon Keller as moderator; *Wednesday, Oct 17, 7p* - WGBH debate moderated by Jim Braude and Margery Eagan; *Thursday, Nov 1* - WCVB studios, moderators and time to be determined.  Click [here](https://www.metrowestdailynews.com/news/20180925/first-governor-debate-planned-for-oct-9) for more info.
 
 
 * [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
