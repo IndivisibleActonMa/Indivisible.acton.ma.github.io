@@ -29,6 +29,8 @@ Click [here](https://docs.google.com/spreadsheets/d/1-Ss4hsZxVmYVdSmy9wjNR2vWCAL
 
 ### Lori Trahan
 
+[Video Q&A with Lori Trahan and Indivisible Acton](https://www.youtube.com/watch?v=I6NPvkPMdnI&t=29s)
+
 [Video Interview with Lori Trahan, MA-3 Congressional Candidate By Concord Citizens Protecting Progress](https://www.youtube.com/watch?v=rQH-9jCIk7Y)
 
 Campaign Website: [https://loritrahan.com/](https://loritrahan.com/)
