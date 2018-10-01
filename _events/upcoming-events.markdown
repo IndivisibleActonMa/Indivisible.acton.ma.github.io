@@ -16,77 +16,25 @@ layout: page
 
 ## Some Events to Consider
 
-**Saturday, September 8**
+**Wednesday, October 3**
 
-* *2p, Boston*: [Boston RISE for Climate, Jobs, Justice](https://www.facebook.com/events/307646843315231/): Rally & People's School, American Legion Playground, 25 Glendon St, East Boston. For more info, click [here](https://peoplesclimate.org/rise/?source=tagged&referrer=group-nrdc&link_id=46&can_id=574622f1a89907bdcd11a29daa9a082f&email_referrer=email_407538&email_subject=2018-08-28-indivisible-acton-weekly-newsletter).
+* *6-8:30p, Acton*:  Phone banking and other projects for YES on Question 2 to overturn Citizens United with the 28th amendment.  We will help you get set up to phone bank here and at home. Drop by anytime but best to arrive early to set up and maximize phone banking time. Optional food (small plates $5) and coffee, non alcoholic beverages and beer, wine available in a comfortable, beautiful new space. Orange Door Kitchen, 251 Arlington St. W. Acton. 
+RSVP: Lindapiano4953@gmail.com
 
-* *1p, Worcester*: Rise UP for Climate, Jobs and Justice Rally, Institute Park, 82 Salisbury Street, Worcester.
 
-**Monday, September 10**
+**Thursday, October 4** 
 
-* **6:30-8:30p, Acton: Indivisible General Meeting** - We will be discussing our midterm plans and how you can specifically join in making sure the Blue Wave is a huge wave and not just a splash!  There will also be primary election candidates/winners in attendance.  Acton Memorial Library, 486 Main St., Acton, MA 01720
+* *7:15-8:30a, Concord*: Visibility for Lori Trahan!  Concord Center - at the rotary near Helen’s Restaurant, 17 Main St. 
 
-**Wednesday, September 12**
+**Saturday, October 6**
 
-* *5:30-7:30p, Boston*: Countdown to Election Day Fundraiser in support of The Environmental Voter Project, a nonprofit using the latest behavioral science to get environmentalists to vote. The Bostonian Boston Hotel, 26 North Street (near Faneuil Hall); RSVP [here](https://docs.google.com/forms/d/e/1FAIpQLSdANoTCydWR7ZAqmbLQbQi1jqdmxfgWEoyhbyz24nBp9KnYeQ/viewform?link_id=32). Donate [here](https://secure.ngpvan.com/OWPFfpLrok6yW918gXzUjA2?link_id=33).
+* *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
-**Saturday, September 15**
-
-* *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing.  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact! We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
-
-**Sunday, September 16**
-
-* *10a-1p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing.  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
-
-* *2-5p, Acton*: Acton Democratic Town Committee picnic with candidates!  $10pp/$20 per family.  Please bring a non-perishable food item to the picnic to support the AB Food Pantry.  14 Stow St., Acton, MA. 01720
-
-* *4-6p, Westford*: [All About the Ballot Questions](https://www.facebook.com/events/1898970357074160/) hosted by Indivisible Westford.  First Parish Church United of Westford, 48 Main St., Westford, MA  01886
-
-**Wednesday, September 19**
-
-* *6:00-8:30p*, Acton: Meet-Up for YES on Ballot Question 2 to establish a citizen's commission on limiting election spending and corporate rights to advance the 28th Amendment to overturn Citizens United; phone banking and other activities. Beverages and small plates available, so drop by after work or RSVP [here](https://act.indivisible.org/event/attend-local-actions/40588) to help make history!! Questions: linda@indivisibleacton.org
-
-**Thursday, September 20**
-
-* *5pm, Acton*: Join Team Tami this Thursday for volunteer training and then doorknocking in the District to support and advocate for transgender rights. We meet EVERY Thursday, 5p until Election Day at 201 Great Road (2nd Flr) in Acton. To RSVP, email emily@tamigouveia.com.
-
-**Friday, September 21**
-
-* *6-9p, Lowell*: [Unity Rally in Lowell with Elizabeth Warren](https://www.facebook.com/events/463829587469793/).  Doors open at 6p and event starts at 6:30p
-
-**Saturday-Sunday, September 22-23**
-
-* *10a, Quincy*: [Pride Weekend of Action for Yes on 3](https://secure.freedomma.org/page/s/boston-peca). Help protect the rights of transgender people in MA! Christ Church Episcopal (12 Quincy Ave, Quincy, MA 02169).
-
-**Saturday, September 22**
-
-* *10am-1pm, Lowel*l:  2018 Campaign Bootcamp.  Hosted by Lowell Democratic City Committee and Greater Lowell Area Democrats.  UMass Lowell Innovation Hub, 110 Cana St., Lowell, MA 01852.  Click [here](https://www.facebook.com/events/461934754291859/) for more info and how to register.
-
-**Sunday, September 23**
+**Sunday, October 7**
 
 * *11:30a-2p, Concord*: Concord Progressive Activists Afternoon. GET OUT THE VOTE!  Every Sunday through Nov. 4. Click [here](/uploads/ConcordProgressiveActivistAfternoons-993d55.png) for more info.  Click [here to register](http://bit.ly/2x1jA6a).
 
-
-* *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing.  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
-
-**Thursday, September 27**
-
-* *5pm, Acton*: Join Team Tami doorknocking in the District to support and advocate for transgender rights. We meet EVERY Thursday, 5p until Election Day at 201 Great Road (2nd Flr) in Acton. To RSVP, email emily@tamigouveia.com.
-
-
-* *6-9p, Boston*: Boston Black Pride and Freedom For All Massachusetts will be hosting a Community Assembly to bring together leaders from all Boston LGBTQ organizations to discuss communication strategies for strengthening our coalitions of voters. Click [here](https://www.eventbrite.ca/e/boston-black-pride-community-assembly-a-call-to-defend-transgender-civli-rights-tickets-49308468958) for more info and to register.
-
-* *7:30-8:30p, Harvard*: FORUM ON BALLOT QUESTION 2.  Learn why you should vote YES on 2 at this local workshop. Bring your questions—and your friends! Click [here](https://www.facebook.com/events/452656018574172/)  for more info.  Harvard Cultural Collaborative, 7 Fairbank St., Harvard, MA.
-
-**Saturday, September 29**
-
-* *1-3p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
-
-**Sunday, September 30**
-
-* *11:30a-2p, Concord*: Concord Progressive Activists Afternoon. GET OUT THE VOTE!  Every Sunday through Nov. 4. Click [here](/uploads/ConcordProgressiveActivistAfternoons-993d55.png) for more info.  Click [here to register](http://bit.ly/2x1jA6a).
-
-* *12:30-3:30p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
+* *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  Let's GOTV!!
 
 ---
 
