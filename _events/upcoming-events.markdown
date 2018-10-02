@@ -39,7 +39,8 @@ RSVP: Lindapiano4953@gmail.com
 
 **Wednesday, October 10**
 
-* *6:30-8:15p, Littleton*: Educational session on Ballot Questions 2 and 3. Littleton Library, Couper Room, 14 Shattuck St., Littleton.
+* *6:30-8:15p, Littleton*: Educational session on Ballot Questions 2 and 3. Littleton Library, Couper Room, 14 Shattuck St., Littleton. Click [here](http://www.indivisibleacton.org/2018/10/01/learn-about-ballot-questions-2-and-3.html) for more info.
+
 
 **Saturday, October 13**
 
