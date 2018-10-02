@@ -2,7 +2,7 @@
 title: YES on 2!
 date: 2018-09-21 21:50:00 -04:00
 is featured: true
-main-image: "/uploads/Screen%20Shot%202018-10-01%20at%2011.03.53%20PM.png"
+main-image: "/uploads/Screen%20Shot%202018-10-01%20at%2011.06.06%20PM.png"
 ---
 
 ## Vote Big Money OUT of Politics!
