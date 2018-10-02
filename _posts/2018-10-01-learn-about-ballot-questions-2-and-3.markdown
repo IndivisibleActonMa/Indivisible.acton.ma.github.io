@@ -5,7 +5,9 @@ is featured: true
 ---
 
 **What** :  Two educational sessions on Ballot Questions 2 and 3
+
 **When** :  Wednesday, October 10, 6:30-8:15pm
+
 **Where**:  Littleton Library, Couper Room 14 Shattuck St. Littleton MA
 
 **Agenda**:
