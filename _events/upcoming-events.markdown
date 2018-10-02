@@ -21,6 +21,9 @@ layout: page
 * *6-8:30p, Acton*:  Phone banking and other projects for YES on Question 2 to overturn Citizens United with the 28th amendment. Click [here](http://www.indivisibleacton.org/2018/09/21/yes-on-2.html) for more info. Orange Door Kitchen, 251 Arlington St. W. Acton. RSVP: Lindapiano4953@gmail.com
 
 
+* *7p, WGBH*:  Debate between Massachusetts Attorney General Maura Healey and her Republican challenger, Jay McMahon. Hosted by WGBH News. Jim Braude and Margery Eagan will moderate the discussion, which will air on channel 2, WGBH 89.7, and WGBHNews.org.
+
+
 **Thursday, October 4** 
 
 * *7:15-8:30a, Concord*: Visibility for Lori Trahan!  Concord Center - at the rotary near Helen’s Restaurant, 17 Main St. 
