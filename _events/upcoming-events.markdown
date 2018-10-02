@@ -18,8 +18,7 @@ layout: page
 
 **Wednesday, October 3**
 
-* *6-8:30p, Acton*:  Phone banking and other projects for YES on Question 2 to overturn Citizens United with the 28th amendment.  We will help you get set up to phone bank here and at home. Drop by anytime but best to arrive early to set up and maximize phone banking time. Optional food (small plates $5) and coffee, non alcoholic beverages and beer, wine available in a comfortable, beautiful new space. Orange Door Kitchen, 251 Arlington St. W. Acton. 
-RSVP: Lindapiano4953@gmail.com
+* *6-8:30p, Acton*:  Phone banking and other projects for YES on Question 2 to overturn Citizens United with the 28th amendment. Click [here](http://www.indivisibleacton.org/2018/09/21/yes-on-2.html) for more info. Orange Door Kitchen, 251 Arlington St. W. Acton. RSVP: Lindapiano4953@gmail.com
 
 
 **Thursday, October 4** 
@@ -56,8 +55,7 @@ RSVP: Lindapiano4953@gmail.com
 
 * **[Last Day to register to vote](https://www.sec.state.ma.us/VoterRegistrationSearch/MyVoterRegStatus.aspx)**
 
-* *6-8:30p, Acton*:  Phone banking and other projects for YES on Question 2 to overturn Citizens United with the 28th amendment.  We will help you get set up to phone bank here and at home. Drop by anytime but best to arrive early to set up and maximize phone banking time. Optional food (small plates $5) and coffee, non alcoholic beverages and beer, wine available in a comfortable, beautiful new space. Orange Door Kitchen, 251 Arlington St. W. Acton. 
-RSVP: Lindapiano4953@gmail.com
+* *6-8:30p, Acton*:  Phone banking and other projects for YES on Question 2 to overturn Citizens United with the 28th amendment.  Click [here](http://www.indivisibleacton.org/2018/09/21/yes-on-2.html) for more info. Orange Door Kitchen, 251 Arlington St. W. Acton. RSVP: Lindapiano4953@gmail.com
 
 **Saturday, October 20**
 
@@ -72,8 +70,7 @@ RSVP: Lindapiano4953@gmail.com
 
 **Wednesday, October 29**
 
-* *6-8:30p, Acton*:  Phone banking and other projects for YES on Question 2 to overturn Citizens United with the 28th amendment.  We will help you get set up to phone bank here and at home. Drop by anytime but best to arrive early to set up and maximize phone banking time. Optional food (small plates $5) and coffee, non alcoholic beverages and beer, wine available in a comfortable, beautiful new space. Orange Door Kitchen, 251 Arlington St. W. Acton. 
-RSVP: Lindapiano4953@gmail.com
+* *6-8:30p, Acton*:  Phone banking and other projects for YES on Question 2 to overturn Citizens United with the 28th amendment. Click [here](http://www.indivisibleacton.org/2018/09/21/yes-on-2.html) for more info. Orange Door Kitchen, 251 Arlington St. W. Acton. RSVP: Lindapiano4953@gmail.com
 
 
 ---
