@@ -53,6 +53,8 @@ RSVP: Lindapiano4953@gmail.com
  
 **Wednesday, October 17**
 
+* **[Last Day to register to vote](https://www.sec.state.ma.us/VoterRegistrationSearch/MyVoterRegStatus.aspx)**
+
 * *6-8:30p, Acton*:  Phone banking and other projects for YES on Question 2 to overturn Citizens United with the 28th amendment.  We will help you get set up to phone bank here and at home. Drop by anytime but best to arrive early to set up and maximize phone banking time. Optional food (small plates $5) and coffee, non alcoholic beverages and beer, wine available in a comfortable, beautiful new space. Orange Door Kitchen, 251 Arlington St. W. Acton. 
 RSVP: Lindapiano4953@gmail.com
 
