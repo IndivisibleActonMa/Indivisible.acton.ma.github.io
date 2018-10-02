@@ -40,6 +40,10 @@ layout: page
 
 * *6:30-8:15p, Littleton*: Educational session on Ballot Questions 2 and 3. Littleton Library, Couper Room, 14 Shattuck St., Littleton. Click [here](http://www.indivisibleacton.org/2018/10/01/learn-about-ballot-questions-2-and-3.html) for more info.
 
+**Thursday, October 11**
+
+* *4-6p, Boston*: Gubernatorial Forum on Energy and the Environment. Click [here](https://www.eventbrite.com/e/gubernatorial-forum-on-energy-and-the-environment-tickets-50782857895?ref=eios&aff=eios) for more info!
+
 
 **Saturday, October 13**
 
