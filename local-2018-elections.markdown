@@ -25,6 +25,31 @@ Indivisible Acton welcomes candidates and their staff. In order to assure produc
 
 Click [here](https://docs.google.com/spreadsheets/d/1-Ss4hsZxVmYVdSmy9wjNR2vWCALtsWXF9qNwxr4gOKU/edit?usp=sharing) to see a campaign contact list.
 
+
+## Ballot Questions
+
+### Question 1: Patient-to-Nurse Limits
+
+Click [here](http://www.mass.gov/ago/docs/government/2017-petitions/17-07.pdf) to read the full initiative. 
+
+
+Check out this [podcast](https://www.iheart.com/podcast/1002-Nightside-With-Dan-28654279/episode/talk-the-vote-regis-kavanaugh-29919767/) for good information about Question 1 (2nd hour).  As a bonus - the first hour is Maura Healey!
+
+
+### Question 2: Commission on Limiting Election Spending and Corporate Rights
+
+Click [here](http://www.mass.gov/ago/docs/government/2017-petitions/17-03.pdf) to read the full initiative.
+
+
+Click [here](http://www.indivisibleacton.org/2018/09/21/yes-on-2.html) to get involved to vote bit money out of politics!
+
+### Question 3: Transgender Anti-Discrimination
+
+Click [here](http://www.indivisibleacton.org/2018/09/21/yes-on-3.html) to help advocate for transgender rights!!
+
+Click [here](http://www.mafamily.org/wp-content/uploads/2016/09/Referendum-Petition-Ch-134-of-the-Acts-of-2016.pdf) to read the referendum.
+
+
 ## Congressional District MA-3
 
 ### Lori Trahan
