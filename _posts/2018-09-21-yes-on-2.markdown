@@ -2,7 +2,7 @@
 title: YES on 2!
 date: 2018-09-21 21:50:00 -04:00
 is featured: true
-main-image: "/uploads/38806630_544289915990075_731733621169192960_n.png"
+main-image: "/uploads/38806630_544289915990075_731733621169192960_n-b149be.png"
 ---
 
 ## Vote Big Money OUT of Politics!
