@@ -81,8 +81,7 @@ layout: page
 
 **Tuesday, October 30**
 
-* *7:00 - 9:00p, Concord*: Free Film Screening **Dark Money** examines one of the greatest present threats to American democracy: the influence of untraceable corporate money on our elections and elected officials. Jeff Clements, President of American Promise will introduce the film and lead a discussion about the ballot question. He is the major force behind Massachusetts Ballot Question #2 which would help address these dark money issues. First Parish in Concord.
-
+* *7:00 - 9:00p, Concord*: Free Film Screening **Dark Money** examines one of the greatest present threats to American democracy: the influence of untraceable corporate money on our elections and elected officials. Jeff Clements, President of American Promise will introduce the film and lead a discussion about the ballot question. He is the major force behind Massachusetts Ballot Question #2 which would help address these dark money issues. First Parish in Concord. Click [here](https://www.facebook.com/events/284535532150098/?ti=ia) for more info. 
 
 ---
 
