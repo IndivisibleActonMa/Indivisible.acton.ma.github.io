@@ -28,6 +28,10 @@ Click [here](https://docs.google.com/spreadsheets/d/1-Ss4hsZxVmYVdSmy9wjNR2vWCAL
 
 ## Ballot Questions
 
+
+[Video: Arlington Democratic Town Committee Ballot Questions Forum](https://www.facebook.com/adtcma/videos/282731692564374/)
+
+
 ### Question 1: Patient-to-Nurse Limits
 
 Click [here](http://www.mass.gov/ago/docs/government/2017-petitions/17-07.pdf) to read the full initiative. 
