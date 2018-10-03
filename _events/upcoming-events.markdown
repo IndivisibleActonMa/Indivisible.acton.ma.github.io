@@ -26,7 +26,7 @@ layout: page
 
 **Thursday, October 4** 
 
-* *7:15-8:30a, Concord*: Visibility for Lori Trahan!  Concord Center - at the rotary near Helen’s Restaurant, 17 Main St. 
+* *7:15-8:30a, Concord*: Visibility for Lori Trahan!  Concord Center - at the rotary near Helen’s Restaurant, 17 Main St.  RSVP to connor@loritrahan.com
 
 **Saturday, October 6**
 
