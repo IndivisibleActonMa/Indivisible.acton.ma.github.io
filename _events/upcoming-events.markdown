@@ -40,8 +40,7 @@ layout: page
 
 **Tuesday, October 9**
 
-* *8-9p, Boston*: First Gubernatorial Debate.  Hosted by WBZ-TV. Jon Keller as moderator. Debate will be televised. 1170 Soldiers Field Rd., Boston.
-
+* *8-9p, Boston*: First Gubernatorial Debate.  Hosted by WBZ-TV and WSBK-TV. Jon Keller as moderator. Debate will be televised on WSBK-TV and livestream on [CBSBoston.com](https://boston.cbslocal.com). Click [here](https://boston.cbslocal.com/2018/10/02/massachusetts-governors-debate-wbz-charlie-baker-jay-gonalez/) for more info. 1170 Soldiers Field Rd., Boston. 
 
 **Wednesday, October 10**
 
