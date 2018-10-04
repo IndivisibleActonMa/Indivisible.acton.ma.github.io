@@ -71,7 +71,7 @@ layout: page
 
 **Thursday, October 18**
 
-* *7-8:30p, Acton*: Middlesex and Worcester District State Senate Debate - Jamie Eldridge, Margaret Busse, Terra Friedrichs.  Hosted by LWV. Acton Town Hall, 472 Main St., Acton, MA.
+* *7-8:30p, Acton*: Middlesex and Worcester District State Senate Debate - Jamie Eldridge, Margaret Busse, Terra Friedrichs.  Hosted by LWV. Acton Town Hall, Room 204, 472 Main St., Acton, MA.
 
 **Saturday, October 20**
 
