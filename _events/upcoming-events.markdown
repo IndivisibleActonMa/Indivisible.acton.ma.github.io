@@ -38,6 +38,10 @@ layout: page
 
 * *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  **Let's GOTV!!**
 
+**Tuesday, October 9**
+
+* *8-9p, Boston*: First Gubernatorial Debate.  Hosted by WBZ-TV. Jon Keller as moderator. Debate will be televised. 1170 Soldiers Field Rd., Boston.
+
 
 **Wednesday, October 10**
 
@@ -64,6 +68,10 @@ layout: page
 
 * *6-8:30p, Acton*:  Phone banking and other projects for YES on Question 2 to overturn Citizens United with the 28th amendment.  Click [here](http://www.indivisibleacton.org/2018/09/21/yes-on-2.html) for more info. Orange Door Kitchen, 251 Arlington St. W. Acton. RSVP: Lindapiano4953@gmail.com
 
+* *7-8p, Boston*: Second Gubernatorial Debate. Hosted by WGBH. Debate moderated by Jim Braude and Margery Eagan. 1 Guest St., Boston.
+
+
+
 **Saturday, October 20**
 
 * *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  **Let's GOTV!!**
@@ -81,7 +89,8 @@ layout: page
 
 **Tuesday, October 30**
 
-* *7:00 - 9:00p, Concord*: Free Film Screening **Dark Money** examines one of the greatest present threats to American democracy: the influence of untraceable corporate money on our elections and elected officials. Jeff Clements, President of American Promise will introduce the film and lead a discussion about the ballot question. He is the major force behind Massachusetts Ballot Question #2 which would help address these dark money issues. First Parish in Concord. Click [here](https://www.facebook.com/events/284535532150098/?ti=ia) for more info. 
+* *7:00 - 9:00p, Concord*: Free Film Screening **Dark Money** examines one of the greatest present threats to American democracy: the influence of untraceable corporate money on our elections and elected officials. Jeff Clements, President of American Promise will introduce the film and lead a discussion about the ballot question. He is the major force behind Massachusetts Ballot Question #2 which would help address these dark money issues. First Parish in Concord.
+
 
 ---
 
