@@ -18,5 +18,5 @@ Click [here ](https://www.metrowestdailynews.com/news/20180925/first-governor-de
 
 ### Debates hosted by WGBH 
 
-Click [here] (https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_medium=social&utm_term=20181004&utm_content=1815508185&utm_campaign=WGBH) for info about all the debates hosted by WGBH :  Attorney General, Treasurer, Governor, and Lt. Governor. 
+Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_medium=social&utm_term=20181004&utm_content=1815508185&utm_campaign=WGBH) for info about all the debates hosted by WGBH :  Attorney General, Treasurer, Governor, and Lt. Governor. 
 
