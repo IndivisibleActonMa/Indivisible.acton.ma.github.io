@@ -69,7 +69,9 @@ layout: page
 
 * *7-8p, Boston*: Second Gubernatorial Debate. Hosted by WGBH. Debate moderated by Jim Braude and Margery Eagan. 1 Guest St., Boston.
 
+**Thursday, October 18**
 
+* *7-8:30p, Acton*: Middlesex and Worcester District State Senate Debate - Jamie Eldridge, Margaret Busse, Terra Friedrichs.  Hosted by LWV. Acton Town Hall, 472 Main St., Acton, MA.
 
 **Saturday, October 20**
 
