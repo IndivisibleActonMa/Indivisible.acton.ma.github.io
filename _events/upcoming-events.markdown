@@ -86,7 +86,7 @@ layout: page
 
 **Monday, October 29**
 
-* *6-8:30p, Acton*:  Phone banking and other projects for YES on Question 2 to overturn Citizens United with the 28th amendment. Click [here](http://www.indivisibleacton.org/2018/09/21/yes-on-2.html) for more info. Orange Door Kitchen, 251 Arlington St. W. Acton. RSVP: Lindapiano4953@gmail.com
+* *6-8:30p, Acton*:  Phone banking and other projects for YES on Question 2 to overturn Citizens United with the 28th amendment. Click [here](http://www.indivisibleacton.org/2018/09/21/yes-on-2.html) for more info. RSVP for location and questions to: Lindapiano4953@gmail.com
 
 **Tuesday, October 30**
 
