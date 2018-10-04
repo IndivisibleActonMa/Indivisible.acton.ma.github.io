@@ -6,7 +6,7 @@ is featured: true
 
 
 
-* *Tuesday, Oct 9, 8-9p*: Hosted by WBZ-TV. Jon Keller as moderator.  Debate will be televised.  1170 Soldiers Field Rd., Boston. 
+* *Tuesday, Oct 9, 8-9p*: Hosted by WBZ-TV and WSBK-TV. Jon Keller as moderator. Debate will be televised on WSBK-TV and livestream on [CBSBoston.com](https://boston.cbslocal.com). Click [here](https://boston.cbslocal.com/2018/10/02/massachusetts-governors-debate-wbz-charlie-baker-jay-gonalez/) for more info. 1170 Soldiers Field Rd., Boston. 
 
 * *Wednesday, Oct 17, 7-8p*:  Hosted by WGBH. Debate moderated by Jim Braude and Margery Eagan. 1 Guest St., Boston. 
 
