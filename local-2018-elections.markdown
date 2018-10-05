@@ -116,6 +116,9 @@ Campaign Website: [​https://www.quentinpalfrey.com/](%E2%80%8Bhttps://www.quen
 
 Campaign Website: [www.maurahealey.com](www.maurahealey.com)
 
+
+[Video: Healey And McMahon Meet In First AG Debate](https://www.wgbh.org/news/local-news/2018/10/02/maura-healey-jay-mcmahon-to-debate-wednesday?utm_source=FBPAGE&utm_medium=social&utm_term=20181003&utm_content=1814285493&utm_campaign=WGBH)
+
 ---
 
 ## Secretary of the Commonwealth
