@@ -27,3 +27,9 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 * Governor : Republican Governor Charlie Baker and Democratic Candidate Jay Gonzalez.  Wednesday, Oct 17, 7-8p.
 
 * Lt. Governor : Republican Lt. Governor Karyn Polito and Democratic Candidate Quentin Palfrey.  Wednesday, Oct 29, 7-7:30p.
+
+---
+
+### Middlesex and Worcester District State Senate Debate
+
+* Thursday, Oct 18, 7-8:30p: Hosted by LWV - Democrat State Senator Jamie Eldridge, Republican Candidate Margaret Busse, Cooperative Green Economy Candidate Terra Friedrichs.  Acton Town Hall, Room 204, 472 Main St., Acton, MA.
