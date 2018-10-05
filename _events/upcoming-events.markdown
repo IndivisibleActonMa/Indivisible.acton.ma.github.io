@@ -46,6 +46,9 @@ layout: page
 
 * *6:30-8:15p, Littleton*: Educational session on Ballot Questions 2 and 3. Littleton Library, Couper Room, 14 Shattuck St., Littleton. Click [here](http://www.indivisibleacton.org/2018/10/01/learn-about-ballot-questions-2-and-3.html) for more info.
 
+* *8-9p, Andover*: MA-3 Debate, Lori Trahan. WBZ "Talk of the Town" with Dan Rea. MA School of Law, 500 Federal Street, Andover.
+
+
 **Thursday, October 11**
 
 * *4-6p, Boston*: Gubernatorial Forum on Energy and the Environment. Click [here](https://www.eventbrite.com/e/gubernatorial-forum-on-energy-and-the-environment-tickets-50782857895?ref=eios&aff=eios) for more info!
@@ -71,6 +74,8 @@ layout: page
 
 **Thursday, October 18**
 
+* *6:30-8p, Fitchburg*: MA-3 Debate, Lori Trahan.  Hosted by Elect North Central Coalition.  Kent Recital Hall @Fitchburg State University.
+
 * *7-8:30p, Acton*: Middlesex and Worcester District State Senate Debate - Jamie Eldridge, Margaret Busse, Terra Friedrichs.  Hosted by LWV. Acton Town Hall, Room 204, 472 Main St., Acton, MA.
 
 **Saturday, October 20**
@@ -83,6 +88,11 @@ layout: page
 
 * *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  **Let's GOTV!!**
 
+**Tuesday, October 23**
+
+* *6-8p, Haverhill*: MA-3 Debate, Lori Trahan.  Hosted by Eagle Tribute/Merrimack Valley Chamber of Commerce.  NECC Hartleb Center, College Ave., Haverhill, MA
+
+
 **Saturday, October 27** 
 
 * *10a-1p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  **Let's GOTV!!**
@@ -92,6 +102,9 @@ layout: page
 * *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  **Let's GOTV!!**
 
 **Monday, October 29**
+
+* *6-8p, Lowell*: MA-3 Debate, Lori Trahan.  Hosted by Lowell Sun/UMass Lowell.  Moloney Hall at UMass Lowell.
+
 
 * *6-8:30p, Acton*:  Phone banking and other projects for YES on Question 2 to overturn Citizens United with the 28th amendment. Click [here](http://www.indivisibleacton.org/2018/09/21/yes-on-2.html) for more info. RSVP for location and questions to: Lindapiano4953@gmail.com
 
