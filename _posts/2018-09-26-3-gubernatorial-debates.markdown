@@ -30,6 +30,36 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 
 ---
 
+### MA Congressional District 3 Debate, Lori Trahan
+
+**Host**: WBZ "Talk of the Town" with Dan Rea
+**Location**: MA School of Law, 500 Federal Street, Andover
+**Time**: 8-9pm
+**Date**: October 10th
+
+**Host**: WCVB “On The Record”
+**Location**: In Studio
+**Date**: October 18th (to air October 21)
+
+**Host**: Elect North Central Coalition
+**Location**: Kent Recital Hall at Fitchburg State University
+**Time**: 6:30-8pm
+**Date**: October 18th
+
+**Host**: Eagle Tribune/Merrimack Valley Chamber of Commerce
+**Location**: NECC Hartleb Center, College Ave, Haverhill, MA
+**Time**: 6-8pm
+**Date**: October 23rd
+
+**Host**: Lowell Sun/UMass Lowell
+**Location**: Moloney Hall at UMass Lowell
+**Time**: 6-8pm
+**Date**: October 29th
+
+**Contact**: gretchen@loritrahan.com
+
+---
+
 ### Middlesex and Worcester District State Senate Debate
 
 * Thursday, Oct 18, 7-8:30p: Hosted by LWV - Democrat State Senator Jamie Eldridge, Republican Candidate Margaret Busse, Cooperative Green Economy Candidate Terra Friedrichs.  Acton Town Hall, Room 204, 472 Main St., Acton, MA.
