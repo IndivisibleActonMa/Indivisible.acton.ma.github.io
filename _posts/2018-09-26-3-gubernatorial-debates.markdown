@@ -64,6 +64,12 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 
 ---
 
-### Middlesex and Worcester District State Senate Debate
+### Candidate Forum - 14th Middlesex, 37th Middlesex, Middlesex/Worcester State Senate 
 
-* Thursday, Oct 18, 7-8:30p: Hosted by LWV - Democrat State Senator Jamie Eldridge, Republican Candidate Margaret Busse, Cooperative Green Economy Candidate Terra Friedrichs.  Acton Town Hall, Room 204, 472 Main St., Acton, MA.
+**Host**: League of Women Voters in Acton and Concord
+**Location**: Acton Town Hall, Room 204, 471 Main St. Acton
+**When**: Thursday, Oct 18, 7-8:30p
+
+* 7p - 14th Middlesex House - Tami Gouveia, Danny Factor
+* 7:30p - State Senate - Senator Jamie Eldridge, Margaret Busse, Terra Friedrichs
+* 8:15p - 37th Middlesex House - Jennifer Benson
