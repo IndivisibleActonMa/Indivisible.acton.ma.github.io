@@ -32,29 +32,27 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 
 ### MA Congressional District 3 Debate, Lori Trahan
 
-
 **Host**: WBZ "Talk of the Town" with Dan Rea
-**Location**: MA School of Law, 500 Federal Street, Andover
-**Time**: 8-9pm
-**Date**: October 10th
 
+**Location**: MA School of Law, 500 Federal Street, Andover
+
+**Time**: 8-9pm
+
+**Date**: October 10th
 
 **Host**: WCVB “On The Record”
 **Location**: In Studio
 **Date**: October 18th (to air October 21)
-
 
 **Host**: Elect North Central Coalition
 **Location**: Kent Recital Hall at Fitchburg State University
 **Time**: 6:30-8pm
 **Date**: October 18th
 
-
 **Host**: Eagle Tribune/Merrimack Valley Chamber of Commerce
 **Location**: NECC Hartleb Center, College Ave, Haverhill, MA
 **Time**: 6-8pm
 **Date**: October 23rd
-
 
 **Host**: Lowell Sun/UMass Lowell
 **Location**: Moloney Hall at UMass Lowell
@@ -64,12 +62,14 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 
 ---
 
-### Candidate Forum - 14th Middlesex, 37th Middlesex, Middlesex/Worcester State Senate 
+### Candidate Forum - 14th Middlesex, 37th Middlesex, Middlesex/Worcester State Senate
 
 **Host**: League of Women Voters in Acton and Concord
 **Location**: Acton Town Hall, Room 204, 471 Main St. Acton
 **When**: Thursday, Oct 18, 7-8:30p
 
 * 7p - 14th Middlesex House - Tami Gouveia, Danny Factor
+
 * 7:30p - State Senate - Senator Jamie Eldridge, Margaret Busse, Terra Friedrichs
+
 * 8:15p - 37th Middlesex House - Jennifer Benson
