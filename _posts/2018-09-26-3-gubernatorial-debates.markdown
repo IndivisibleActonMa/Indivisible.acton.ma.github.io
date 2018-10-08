@@ -49,8 +49,12 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 **Time**: Tuesday, October 23, 6-8pm
 
 **Host**: Lowell Sun/UMass Lowell
+
 **Location**: Moloney Hall at UMass Lowell
+
 **Time**: Monday, October 29, 6-8pm
+
+
 
 **Contact**: gretchen@loritrahan.com
 
