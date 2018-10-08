@@ -34,27 +34,24 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 
 **Host**: WBZ "Talk of the Town" with Dan Rea
 **Location**: MA School of Law, 500 Federal Street, Andover
-**Time**: 8-9pm
-**Date**: October 10th
+**When**: Wednesday, October 10, 8-9pm
 
 **Host**: WCVB “On The Record”
 **Location**: In Studio
-**Date**: October 18th (to air October 21)
+**When**: October 18th (to air October 21)
 
 **Host**: Elect North Central Coalition
 **Location**: Kent Recital Hall at Fitchburg State University
-**Time**: 6:30-8pm
-**Date**: October 18th
+**When**: Thursday, October 18, 6:30-8pm
 
 **Host**: Eagle Tribune/Merrimack Valley Chamber of Commerce
 **Location**: NECC Hartleb Center, College Ave, Haverhill, MA
-**Time**: 6-8pm
-**Date**: October 23rd
+**When**: Tuesday, October 23, 6-8pm
 
 **Host**: Lowell Sun/UMass Lowell
 **Location**: Moloney Hall at UMass Lowell
-**Time**: 6-8pm
-**Date**: October 29th
+**Time**: Monday, October 29, 6-8pm
+
 **Contact**: gretchen@loritrahan.com
 
 ---
