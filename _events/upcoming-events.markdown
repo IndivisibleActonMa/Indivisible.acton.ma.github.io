@@ -23,8 +23,7 @@ layout: page
 
 * *7p, WGBH*:  Debate between Massachusetts Attorney General Maura Healey and her Republican challenger, Jay McMahon. Hosted by WGBH News. Jim Braude and Margery Eagan will moderate the discussion, which will air on channel 2, WGBH 89.7, and WGBHNews.org.
 
-
-**Thursday, October 4** 
+**Thursday, October 4**
 
 * *7:15-8:30a, Concord*: Visibility for Lori Trahan!  Concord Center - at the rotary near Helen’s Restaurant, 17 Main St.  RSVP to connor@loritrahan.com
 
@@ -40,19 +39,19 @@ layout: page
 
 **Tuesday, October 9**
 
-* *8-9p, Boston*: First Gubernatorial Debate.  Hosted by WBZ-TV and WSBK-TV. Jon Keller as moderator. Debate will be televised on WSBK-TV and livestreamed on [CBSBoston.com](https://boston.cbslocal.com). Click [here](https://boston.cbslocal.com/2018/10/02/massachusetts-governors-debate-wbz-charlie-baker-jay-gonalez/) for more info. 1170 Soldiers Field Rd., Boston. 
+* *8-9p, Boston*: First Gubernatorial Debate.  Hosted by WBZ-TV and WSBK-TV. Jon Keller as moderator. Debate will be televised on WSBK-TV and livestreamed on [CBSBoston.com](https://boston.cbslocal.com). Click [here](https://boston.cbslocal.com/2018/10/02/massachusetts-governors-debate-wbz-charlie-baker-jay-gonalez/) for more info. 1170 Soldiers Field Rd., Boston.
 
 **Wednesday, October 10**
 
 * *6:30-8:15p, Littleton*: Educational session on Ballot Questions 2 and 3. Littleton Library, Couper Room, 14 Shattuck St., Littleton. Click [here](http://www.indivisibleacton.org/2018/10/01/learn-about-ballot-questions-2-and-3.html) for more info.
 
-* *8-9p, Andover*: MA-3 Debate, Lori Trahan. WBZ "Talk of the Town" with Dan Rea. MA School of Law, 500 Federal Street, Andover.
+* *7pm, on WGBH 2*: Treasurer debate, Deb Goldberg vs. Keiko Orrall
 
+* *8-9p, Andover*: MA-3 Debate, Lori Trahan. WBZ "Talk of the Town" with Dan Rea. MA School of Law, 500 Federal Street, Andover.
 
 **Thursday, October 11**
 
 * *4-6p, Boston*: Gubernatorial Forum on Energy and the Environment. Click [here](https://www.eventbrite.com/e/gubernatorial-forum-on-energy-and-the-environment-tickets-50782857895?ref=eios&aff=eios) for more info!
-
 
 **Saturday, October 13**
 
@@ -63,7 +62,12 @@ layout: page
 * *11:30a-2p, Concord*: Concord Progressive Activists Afternoon. GET OUT THE VOTE!  Every Sunday through Nov. 4. Click [here](/uploads/ConcordProgressiveActivistAfternoons-993d55.png) for more info.  Click [here to register](http://bit.ly/2x1jA6a).
 
 * *1-4p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  **Let's GOTV!!**
- 
+
+**Monday, October 15**
+
+* *6:30-8:45, Acton*: Indivisible Acton's general meeting, at the Acton Memorial Library. Come hear about how we can continue to help get out the vote! Speakers include Veronica Martinez, executive director of Mass Dems, and Melanie Levesque with an update on the campaign trail.
+
+
 **Wednesday, October 17**
 
 * **[Last Day to register to vote](https://www.sec.state.ma.us/VoterRegistrationSearch/MyVoterRegStatus.aspx)**
@@ -92,8 +96,7 @@ layout: page
 
 * *6-8p, Haverhill*: MA-3 Debate, Lori Trahan.  Hosted by Eagle Tribute/Merrimack Valley Chamber of Commerce.  NECC Hartleb Center, College Ave., Haverhill, MA
 
-
-**Saturday, October 27** 
+**Saturday, October 27**
 
 * *10a-1p, Acton*: 19 DAYS of ACTION - Indivisible Acton Fall Canvassing!!  Come out and support all the Dems up and down the ticket! Actions include canvassing, phone banking, and other opportunities for those who do not want direct voter contact!  We will meet at Jamie Eldridge's campaign office - 130 Main St., Acton, MA. 01720.  **Let's GOTV!!**
 
@@ -111,7 +114,6 @@ layout: page
 **Tuesday, October 30**
 
 * *7:00 - 9:00p, Concord*: Free Film Screening **Dark Money** examines one of the greatest present threats to American democracy: the influence of untraceable corporate money on our elections and elected officials. Jeff Clements, President of American Promise will introduce the film and lead a discussion about the ballot question. He is the major force behind Massachusetts Ballot Question #2 which would help address these dark money issues. First Parish in Concord.
-
 
 ---
 
