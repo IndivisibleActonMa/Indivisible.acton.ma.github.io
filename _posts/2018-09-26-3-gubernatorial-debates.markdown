@@ -32,9 +32,9 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 
 ### MA Congressional District 3 Debate, Lori Trahan
 
-**Host**: WBZ "Talk of the Town" with Dan Rea
-**Location**: MA School of Law, 500 Federal Street, Andover
-**Time**: Wednesday, October 10, 8-9pm
+**Host**: WBZ "Talk of the Town" with Dan Rea  
+**Location**: MA School of Law, 500 Federal Street, Andover  
+**Time**: Wednesday, October 10, 8-9pm  
 
 **Host**: WCVB “On The Record”
 **Location**: In Studio
