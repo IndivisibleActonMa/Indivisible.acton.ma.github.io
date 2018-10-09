@@ -88,4 +88,13 @@ paginate_path: "/blog/page:num/"
 exclude:
 - Gemfile
 - Gemfile.lock
-google_analytics: UA-127148508-1
+google_analytics: |-
+  <!-- Global site tag (gtag.js) - Google Analytics -->
+  <script async src="https://www.googletagmanager.com/gtag/js?id=UA-127148508-1"></script>
+  <script>
+    window.dataLayer = window.dataLayer || [];
+    function gtag(){dataLayer.push(arguments);}
+    gtag('js', new Date());
+
+    gtag('config', 'UA-127148508-1');
+  </script>
