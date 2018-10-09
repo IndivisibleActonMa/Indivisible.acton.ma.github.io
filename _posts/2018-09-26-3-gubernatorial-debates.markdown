@@ -36,21 +36,21 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 **Location**: MA School of Law, 500 Federal Street, Andover  
 **Time**: Wednesday, October 10, 8-9pm  
 
-**Host**: WCVB “On The Record”
-**Location**: In Studio
-**Time**: October 18th (to air October 21)
+**Host**: WCVB “On The Record”  
+**Location**: In Studio  
+**Time**: October 18th (to air October 21)  
 
-**Host**: Elect North Central Coalition
-**Location**: Kent Recital Hall at Fitchburg State University
-**Time**: Thursday, October 18, 6:30-8pm
+**Host**: Elect North Central Coalition  
+**Location**: Kent Recital Hall at Fitchburg State University  
+**Time**: Thursday, October 18, 6:30-8pm  
 
-**Host**: Eagle Tribune/Merrimack Valley Chamber of Commerce
-**Location**: NECC Hartleb Center, College Ave, Haverhill, MA
-**Time**: Tuesday, October 23, 6-8pm
+**Host**: Eagle Tribune/Merrimack Valley Chamber of Commerce  
+**Location**: NECC Hartleb Center, College Ave, Haverhill, MA  
+**Time**: Tuesday, October 23, 6-8pm  
 
-**Host**: Lowell Sun/UMass Lowell
-**Location**: Moloney Hall at UMass Lowell
-**Time**: Monday, October 29, 6-8pm
+**Host**: Lowell Sun/UMass Lowell  
+**Location**: Moloney Hall at UMass Lowell  
+**Time**: Monday, October 29, 6-8pm  
 
 
 
