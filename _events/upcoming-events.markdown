@@ -10,7 +10,7 @@ layout: page
 
 ### Click [here](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal) to see events published on Indivisible Acton's Public Facebook page.
 
-### [Check our calendar](http://www.indivisibleacton.org/calendar.html) for regularly scheduled events and other events of interest.
+### [Check our calendar](http://www.indivisibleacton.org/calendar.html) for *regularly scheduled events* and other events of interest.
 
 ---
 
