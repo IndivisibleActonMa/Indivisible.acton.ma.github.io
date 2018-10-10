@@ -4,7 +4,7 @@ date: 2018-01-17 10:41:00 -05:00
 layout: page
 ---
 
-![Blue Wave Action in oct (1).png](/uploads/Blue%20Wave%20Action%20in%20oct%20(1).png)
+![voteearlyma.png](/uploads/voteearlyma.png)
 
 ---
 
