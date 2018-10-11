@@ -131,6 +131,16 @@ Campaign Website: [www.maurahealey.com](www.maurahealey.com)
 
 Campaign Website: [www.billgalvin.org](www.billgalvin.org)
 
+
+———
+
+## State Treasurer
+
+### [Deb Goldberg](https://www.mass.gov/orgs/office-of-state-treasurer-and-receiver-general-deborah-b-goldberg)
+
+Campaign website: [http://www.debgoldberg.com/](http://www.debgoldberg.com/)
+
+
 ---
 
 ## State Senator
