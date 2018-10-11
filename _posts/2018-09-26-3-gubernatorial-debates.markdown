@@ -22,7 +22,7 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 
 * Attorney General : Democrat Attorney General Maura Healey and Republican challenger, trial attorney Jay McMahon. [Video here](https://www.wgbh.org/news/local-news/2018/10/02/maura-healey-jay-mcmahon-to-debate-wednesday?utm_source=FBPAGE&utm_medium=social&utm_term=20181003&utm_content=1814285493&utm_campaign=WGBH).
 
-* Treasurer : Democrat Treasurer Deb Goldberg and Republican State Legisaltor Keiko Orrall. Wednesday, Oct 10, 7-7:30p.
+* Treasurer : Democrat Treasurer Deb Goldberg and Republican State Legisaltor Keiko Orrall. Wednesday, Oct 10, 7-7:30p. [Video here](https://www.wgbh.org/news/politics/2018/10/10/goldberg-orrall-face-off-in-first-treasurers-debate). 
 
 * Governor : Republican Governor Charlie Baker and Democratic Candidate Jay Gonzalez.  Wednesday, Oct 17, 7-8p.
 
