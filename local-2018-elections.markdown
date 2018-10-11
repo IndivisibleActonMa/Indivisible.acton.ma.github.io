@@ -138,6 +138,9 @@ Campaign Website: [www.billgalvin.org](www.billgalvin.org)
 
 ### [Deb Goldberg](https://www.mass.gov/orgs/office-of-state-treasurer-and-receiver-general-deborah-b-goldberg)
 
+[Video Treasurer Debate - Oct 10](https://www.wgbh.org/news/politics/2018/10/10/goldberg-orrall-face-off-in-first-treasurers-debate)
+
+
 Campaign website: [http://www.debgoldberg.com/](http://www.debgoldberg.com/)
 
 
