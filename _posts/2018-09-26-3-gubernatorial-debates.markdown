@@ -35,6 +35,8 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 **Host**: WBZ "Talk of the Town" with Dan Rea  
 **Location**: MA School of Law, 500 Federal Street, Andover  
 **Time**: Wednesday, October 10, 8-9pm  
+[Audio here](https://wbznewsradio.iheart.com/featured/nightside-with-dan-rea/content/2018-10-11-ma-3rd-congressional-race/).  
+
 
 **Host**: WCVB “On The Record”  
 **Location**: In Studio  
