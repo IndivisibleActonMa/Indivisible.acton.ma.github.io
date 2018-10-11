@@ -1,6 +1,7 @@
 ---
 title: Learn about Ballot Questions 2 and 3
 date: 2018-10-01 22:02:00 -04:00
+published: false
 is featured: true
 ---
 
