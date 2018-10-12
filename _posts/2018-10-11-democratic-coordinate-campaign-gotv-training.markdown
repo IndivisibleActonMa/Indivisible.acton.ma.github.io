@@ -5,7 +5,7 @@ is featured: true
 main-image: "/uploads/43648596_10156225735399130_2516858063885959168_o.jpg"
 ---
 
-Oct 11 makes us 26 days out from Election Day. 
+Oct 11 makes us 26 days out from Election Day.
 
 **This isn’t a time to slow down – it’s a time to ramp up!!**
 
@@ -13,8 +13,8 @@ We need to keep our momentum strong up until the very last minute. And we need *
 
 Please join us this Sunday, Oct 14 to learn and strategize great ways to make sure we're all prepared for the final weeks ahead!
 
-**When**:  Sunday, Oct 14, 5-7p
-**Where**: The Acton Field Office (Jamie Eldridge's campaign office), 130 Main St, Acton, MA 
+**When**:  Sunday, Oct 14, 5-7p  
+**Where**: The Acton Field Office (Jamie Eldridge's campaign office), 130 Main St, Acton, MA
 
 Here’s what you can expect:
 
@@ -22,8 +22,8 @@ Here’s what you can expect:
 
 * You’ll get an inside view of what our field operation will look like in the final stretch leading to Election Day.
 
-* You’ll learn about the different roles we need for getting out the vote, and how you can be part of our volunteer leadership team in your neighborhoods.  
-  
+* You’ll learn about the different roles we need for getting out the vote, and how you can be part of our volunteer leadership team in your neighborhoods.
+
 … and much more!
 
 [Please RSVP here](https://secure.ngpvan.com/6gbU0vur_k6QTqoKTSnbGQ2).
