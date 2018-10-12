@@ -62,6 +62,9 @@ Click [here](http://www.mafamily.org/wp-content/uploads/2016/09/Referendum-Petit
 
 [Video Interview with Lori Trahan, MA-3 Congressional Candidate By Concord Citizens Protecting Progress](https://www.youtube.com/watch?v=rQH-9jCIk7Y)
 
+[Audio MA-3 Debate - WBZ “Talk of the Town” with Dan Rea ](https://wbznewsradio.iheart.com/featured/nightside-with-dan-rea/content/2018-10-11-ma-3rd-congressional-race/)
+
+
 Campaign Website: [https://loritrahan.com/](https://loritrahan.com/)
 
 ---
