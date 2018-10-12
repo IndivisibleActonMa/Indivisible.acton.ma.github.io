@@ -2,7 +2,7 @@
 title: Democratic Coordinate Campaign GOTV Training!
 date: 2018-10-11 20:25:00 -04:00
 is featured: true
-main-image: "/uploads/Screen%20Shot%202018-10-11%20at%208.47.21%20PM.png"
+main-image: "/uploads/43648596_10156225735399130_2516858063885959168_o-2049ba.jpg"
 ---
 
 Oct 11 makes us 26 days out from Election Day. 
