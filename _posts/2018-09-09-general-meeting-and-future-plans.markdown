@@ -1,14 +1,17 @@
 ---
-title: September General Meeting
+title: October General Meeting
 date: 2018-09-09 08:25:00 -04:00
 published: false
-is featured: false
+is featured: true
+event-start-date: 2018-10-15 18:30:00 -04:00
+event-end-date: 2018-10-15 20:30:00 -04:00
+Location: Acton Memorial Library 486 Main St., Acton, MA 01720
 ---
 
-Indivisible Acton's General Meeting will be September 10th at the Acton Memorial Library 6:30-8:30 PM. 
+Indivisible Acton's General Meeting will be **October 15th at the Acton Memorial Library 6:30-8:30 PM**. 
 
-During our Social 1/2 Hour we will be joined by Quentin Palfrey, Tami Gouveia, and possibly Jamie Eldridge and Jay Gonzalez. 
+Come hear about what we have in store for Indivisible Acton as well as how we can continue to help get out the vote! Speakers include Veronica Martinez, executive director of Mass Dems, and Melanie Levesque with an update on the campaign trail. 
 
-We'll also have a New Member Orientation as part of the meeting and we will discuss plans for the November election from supporting candidates to ballot questions! 
+There won't be a General Meeting until January after this one, so be sure to join us!
 
-Come find out how you can be part of the Blue wave: something for everyone! Contact monica@indivisibleacton.org for more information on what YOU can do!
+Look forward to seeing you!!
