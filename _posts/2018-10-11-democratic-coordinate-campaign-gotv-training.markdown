@@ -1,7 +1,8 @@
 ---
 title: Democratic Coordinate Campaign GOTV Training!
 date: 2018-10-11 20:25:00 -04:00
-is featured: true
+published: false
+is featured: false
 main-image: "/uploads/43648596_10156225735399130_2516858063885959168_o.jpg"
 ---
 
