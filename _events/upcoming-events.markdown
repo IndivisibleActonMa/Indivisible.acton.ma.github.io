@@ -65,7 +65,7 @@ layout: page
 
 **Monday, October 15**
 
-* *6:30-8:45, Acton*: Indivisible Acton's general meeting, at the Acton Memorial Library. Come hear about how we can continue to help get out the vote! Speakers include Veronica Martinez, executive director of Mass Dems, and Melanie Levesque with an update on the campaign trail.
+* *6:30-8:45, Acton*: **Indivisible Acton's general meeting, at the Acton Memorial Library**. Come hear about how we can continue to help get out the vote! Speakers include Veronica Martinez, executive director of Mass Dems, and Melanie Levesque with an update on the campaign trail.
 
 
 **Wednesday, October 17**
