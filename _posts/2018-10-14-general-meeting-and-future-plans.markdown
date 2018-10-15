@@ -1,6 +1,6 @@
 ---
 title: October General Meeting
-date: 2018-09-09 08:25:00 -04:00
+date: 2018-10-14 08:25:00 -04:00
 is featured: true
 event-start-date: 2018-10-15 18:30:00 -04:00
 event-end-date: 2018-10-15 20:30:00 -04:00
