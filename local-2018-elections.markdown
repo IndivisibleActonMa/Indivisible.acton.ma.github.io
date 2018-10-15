@@ -3,7 +3,6 @@ title: 2018 Elections
 date: 2017-12-20 21:38:00 -05:00
 ---
 
-![44055664_2222631484478091_2127634366447222784_o.jpg](/uploads/44055664_2222631484478091_2127634366447222784_o.jpg)
 
 ---
 
@@ -156,3 +155,7 @@ Campaign website: [http://www.debgoldberg.com/](http://www.debgoldberg.com/)
 ### [Jamie Eldridge](https://www.senatoreldridge.com/)
 
 Campaign Website: [http://www.jamieeldridge.com](http://www.jamieeldridge.com)
+
+---
+
+![44055664_2222631484478091_2127634366447222784_o.jpg](/uploads/44055664_2222631484478091_2127634366447222784_o.jpg)
