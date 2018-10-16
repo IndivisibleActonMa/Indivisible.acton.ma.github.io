@@ -60,9 +60,9 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 
 ---
 
-### 14th Middlesex District Candidates and Ballot Question #1 Forum
+### 14th Middlesex District Candidates and Ballot Question #1 Forum. 
 
-**Host**: Co-sponsored by League of Women Voters Acton and Concord-Carlisle. 
-**Location**: Acton Town Hall, Room 204, 471 Main St. Acton. 
-**When**: Thursday, Oct 18, 7-8:30p. 
+**Host**: Co-sponsored by League of Women Voters Acton and Concord-Carlisle.   
+**Location**: Acton Town Hall, Room 204, 471 Main St. Acton.    
+**When**: Thursday, Oct 18, 7-8:30p.    
 
