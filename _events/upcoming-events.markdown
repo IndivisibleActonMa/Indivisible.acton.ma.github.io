@@ -120,7 +120,7 @@ layout: page
 * **NEW!!  Every Sunday 9/23-11/4,, 11:30-2p - [Concord Progressive Activists](https://www.facebook.com/VoteBlueNovember/) Afternoon!** Click [here to register](http://bit.ly/2x1jA6a).  Click [here](/uploads/ConcordProgressiveActivistAfternoons-993d55.png) for more info.
 
 
-* **SAVE THE DATE - 2018 Democracy Party** Come to the Orange Door Kitchen in Acton, Thursday, Nov. 15, 6-8:30p and celebrate all our hard work leading up to the elections! We will be honoring all our volunteers and writing thank you notes to supporters. Appetizers and desserts are provided, and there will be a cash bar. Click [here to RSVP](https://www.facebook.com/events/637668386629030/).  Hope to see you there!!!
+* **SAVE THE DATE - 2018 Democracy Party** - Come to the *Orange Door Kitchen in Acton, Thursday, Nov. 15, 6-8:30p* and celebrate all our hard work leading up to the elections! We will be honoring all our volunteers and writing thank you notes to supporters. Appetizers and desserts are provided, and there will be a cash bar. Click [here to RSVP](https://www.facebook.com/events/637668386629030/).  Hope to see you there!!!
 
 
 
