@@ -60,14 +60,9 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 
 ---
 
-### Candidate Forum - 14th Middlesex, 37th Middlesex, Middlesex/Worcester State Senate
+### 14th Middlesex District Candidates and Ballot Question #1 Forum
 
-**Host**: League of Women Voters in Acton and Concord
-**Location**: Acton Town Hall, Room 204, 471 Main St. Acton
-**When**: Thursday, Oct 18, 7-8:30p
+**Host**: Co-sponsored by League of Women Voters Acton and Concord-Carlisle. 
+**Location**: Acton Town Hall, Room 204, 471 Main St. Acton. 
+**When**: Thursday, Oct 18, 7-8:30p. 
 
-* 7p - 14th Middlesex House - Tami Gouveia, Danny Factor
-
-* 7:30p - State Senate - Senator Jamie Eldridge, Margaret Busse, Terra Friedrichs
-
-* 8:15p - 37th Middlesex House - Jennifer Benson
