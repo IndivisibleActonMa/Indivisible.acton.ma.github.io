@@ -46,7 +46,7 @@ Check out this [podcast](https://www.iheart.com/podcast/1002-Nightside-With-Dan-
 Click [here](http://www.mass.gov/ago/docs/government/2017-petitions/17-03.pdf) to read the full initiative.
 
 
-Click [here](http://www.indivisibleacton.org/2018/09/21/yes-on-2.html) to get involved to vote bit money out of politics!
+Click [here](http://www.indivisibleacton.org/2018/09/21/yes-on-2.html) to get involved to vote big money out of politics!
 
 ### Question 3: Transgender Anti-Discrimination
 
