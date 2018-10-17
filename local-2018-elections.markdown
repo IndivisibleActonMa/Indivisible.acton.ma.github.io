@@ -52,6 +52,7 @@ Click [here](http://www.indivisibleacton.org/2018/09/21/yes-on-2.html) to get in
 
 Click [here](http://www.indivisibleacton.org/2018/09/21/yes-on-3.html) to help advocate for transgender rights!!
 
+[Video: Debate on Question 3](http://www.wbur.org/radioboston/2018/10/16/debate-question-three)
 Click [here](http://www.mafamily.org/wp-content/uploads/2016/09/Referendum-Petition-Ch-134-of-the-Acts-of-2016.pdf) to read the referendum.
 
 
