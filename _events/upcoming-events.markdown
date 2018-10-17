@@ -80,7 +80,7 @@ layout: page
 
 * *6:30-8p, Fitchburg*: MA-3 Debate, Lori Trahan.  Hosted by Elect North Central Coalition.  Kent Recital Hall @Fitchburg State University.
 
-* *7-8:30p, Acton*: 14th Middlesex District Candidates and Ballot Question #1 Forum. Co-hosted by LWV Acton and Concord-Carlisle. Acton Town Hall, Room 204, 472 Main St., Acton, MA.  Click [here](https://my.lwv.org/massachusetts/concord-carlisle/election-town-meeting/state-and-national-election-2018) for more info.
+* *7-8:30p, Acton*: 14th Middlesex District Candidates and Ballot Question #1 Forum. Co-hosted by LWV Acton and Concord-Carlisle. Acton Town Hall, Room 204, 472 Main St., Acton, MA.  Click [here](http://www.lwv-aa.org) for more info.
 
 **Saturday, October 20**
 
