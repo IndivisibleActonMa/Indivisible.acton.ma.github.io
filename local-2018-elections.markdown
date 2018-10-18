@@ -74,8 +74,6 @@ Click [here](http://www.mafamily.org/wp-content/uploads/2016/09/Referendum-Petit
 [Video Interview with Lori Trahan, MA-3 Congressional Candidate By Concord Citizens Protecting Progress](https://www.youtube.com/watch?v=rQH-9jCIk7Y)
 
 
-
-
 Campaign Website: [https://loritrahan.com/](https://loritrahan.com/)
 
 ---
