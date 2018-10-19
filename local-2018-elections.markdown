@@ -65,6 +65,9 @@ Click [here](http://www.mafamily.org/wp-content/uploads/2016/09/Referendum-Petit
 
 ### Lori Trahan
 
+[Video: 3rd Congressional District Debate - Oct 18, Fitchburg State University](https://videoplayer.telvue.com/player/yycCAZPb0NN3zj2o5qio-YFMNC43NjCG/media/388374?autostart=true&showtabssearch=true)
+
+
 [Audio: Radio Boston talks to Lori Trahan](http://www.wbur.org/radioboston/2018/10/17/lori-trahan-third)
 
 
