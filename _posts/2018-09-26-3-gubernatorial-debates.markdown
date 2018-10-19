@@ -42,9 +42,13 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 **Location**: In Studio  
 **Time**: October 18th (to air October 21)  
 
+
 **Host**: Elect North Central Coalition  
 **Location**: Kent Recital Hall at Fitchburg State University  
 **Time**: Thursday, October 18, 6:30-8pm  
+[Video here](https://videoplayer.telvue.com/player/yycCAZPb0NN3zj2o5qio-YFMNC43NjCG/media/388374?autostart=true&showtabssearch=true).   
+
+
 
 **Host**: Eagle Tribune/Merrimack Valley Chamber of Commerce  
 **Location**: NECC Hartleb Center, College Ave, Haverhill, MA  
