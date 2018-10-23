@@ -41,6 +41,7 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 **Host**: WCVB “On The Record”  
 **Location**: In Studio  
 **Time**: October 18th (to air October 21)  
+[Video here](https://www.wcvb.com/article/green-trahan-debate-for-3rd-district-seat-on-the-record/23894582?fbclid=IwAR0hxi9BYtoEoBHg1lP-obs5llM8JmRAHsOObmt7bff9E3oJ0N_-c7_Xygg).  
 
 
 **Host**: Elect North Central Coalition  
