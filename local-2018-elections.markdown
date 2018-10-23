@@ -65,6 +65,10 @@ Click [here](http://www.mafamily.org/wp-content/uploads/2016/09/Referendum-Petit
 
 ### Lori Trahan
 
+
+[Video: WCVB-TV 3rd Congressional District Debate](https://www.wcvb.com/article/green-trahan-debate-for-3rd-district-seat-on-the-record/23894582?fbclid=IwAR0hxi9BYtoEoBHg1lP-obs5llM8JmRAHsOObmt7bff9E3oJ0N_-c7_Xygg). 
+
+
 [Video: 3rd Congressional District Debate - Oct 18, Fitchburg State University](https://videoplayer.telvue.com/player/yycCAZPb0NN3zj2o5qio-YFMNC43NjCG/media/388374?autostart=true&showtabssearch=true)
 
 
