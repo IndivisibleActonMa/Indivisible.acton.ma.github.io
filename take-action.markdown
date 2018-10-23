@@ -8,6 +8,10 @@ layout: page
 
 ---
 
+Find a GOTV event near you [here](https://events.mobilizeamerica.io/massdems/?address=Acton%2C%20MA%2C%20USA&lat=42.4850931&lon=-71.43284). 
+
+
+———
 
 Click [here for the list of actions for this week](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?ts=5a5e9634) from our sister organization's weekly newsletter.
 
