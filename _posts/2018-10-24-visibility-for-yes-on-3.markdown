@@ -8,8 +8,8 @@ event-end-date: 2018-10-29 18:00:00 -04:00
 
 Please join the *Human Rights Campaign* and *Team YES on 3* for a little activism!!
 
-**When:**   Monday, Oct 29, 2018, 4-6p. 
-**Where:**  Kelly's corner (intersection of Routes 27 and 111).  
+**When:**   Monday, Oct 29, 2018, 4-6p.   
+**Where:**  Kelly's corner (intersection of Routes 27 and 111).   
 
 **Details:**   
 
@@ -17,6 +17,6 @@ We have signs, but you are welcome to make your own too.
 
 Afterwards everyone is invited to come join us for some pizza.   
 
-**Please spread the word.**. 
+**Please spread the word.** 
 
 Hoping for at least **10 YESers** on **every** corner on Monday!  
