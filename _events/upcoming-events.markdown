@@ -106,6 +106,9 @@ layout: page
 
 **Monday, October 29**
 
+* *4-6p, Acton*: **YES on 3 Visibility** in Acton at Kelly's Corner (Intersection of Routes 27 and 111).  Please join the Human Rights Campaign and Team YES on 3 to show our support for *YES on 3*!  Please spread the word!! Hoping for 10 YESers on every corner!!
+
+
 * *6-8p, Lowell*: MA-3 Debate, Lori Trahan.  Hosted by Lowell Sun/UMass Lowell.  Moloney Hall at UMass Lowell.
 
 
