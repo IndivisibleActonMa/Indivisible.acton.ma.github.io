@@ -142,6 +142,8 @@ Campaign Website: [​https://www.quentinpalfrey.com/](%E2%80%8Bhttps://www.quen
 
 Campaign Website: [www.maurahealey.com](www.maurahealey.com)
 
+[Video: Mass. Attorney General Candidates Debate 10/24/2018 - WBUR, Boston Globe, UMass Boston](https://www.facebook.com/radioboston/videos/242700626600827/).  
+
 
 [Video: Healey And McMahon Meet In First AG Debate](https://www.wgbh.org/news/local-news/2018/10/02/maura-healey-jay-mcmahon-to-debate-wednesday?utm_source=FBPAGE&utm_medium=social&utm_term=20181003&utm_content=1814285493&utm_campaign=WGBH)
 
