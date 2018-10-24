@@ -54,6 +54,7 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 **Host**: Eagle Tribune/Merrimack Valley Chamber of Commerce  
 **Location**: NECC Hartleb Center, College Ave, Haverhill, MA  
 **Time**: Tuesday, October 23, 6-8pm  
+[Video here](https://www.facebook.com/hcmediahaverhill/videos/202430263869474/?fref=mentions&__xts__[0]=68.ARChdEK4ACsv4dCoz3Gbu9V2RDDQ2VM843at0Egd4iedAkIZSJUiBmS5ZfmmAX4tv-Dun7lM8wTfNWiBErH0vANmTkmBBNp9LHyaQ0UEVNnUq4sGcgM_Z8L34q2VulXGjRs0-KPfkTaMoK0rzwzdm3xGlh5tqh9O_yei5VUV6pVig3R6Xvn6VCBxf6-rjhK08mknJlK5nV3qtnJHgwFC8b_tfKzd1ZJQ0W0NkUFIj0xmuNiRNpMuqhaTBg_CUZ5pFXTlbQ&__tn__=K-R).   
 
 **Host**: Lowell Sun/UMass Lowell  
 **Location**: Moloney Hall at UMass Lowell  
