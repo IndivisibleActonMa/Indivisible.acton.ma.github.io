@@ -8,8 +8,7 @@ layout: page
 
 ---
 
-Find a GOTV event near you [here](https://events.mobilizeamerica.io/massdems/?address=Acton%2C%20MA%2C%20USA&lat=42.4850931&lon=-71.43284). 
-
+### Find a GOTV event near you [here](https://events.mobilizeamerica.io/massdems/?address=Acton%2C%20MA%2C%20USA&lat=42.4850931&lon=-71.43284).
 
 ———
 
@@ -17,7 +16,7 @@ Click [here for the list of actions for this week](https://docs.google.com/docum
 
 Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
 
-Click [here to learn about Rapid Resist Texting](https://docs.google.com/forms/d/e/1FAIpQLSfZeZzukCxzvvDTDALdPk_NGqkbn5c1JLuFnC31f9tOSq7UpA/viewform)
+Click [here to learn all about how to use texting to help mobilize people!](https://docs.google.com/document/d/1PvjgTv0y5wthNdlEJeMkg6K3hE4HOoeRAgTfFO2PSQM)
 
 Click [here to learn about The Open Progress Text Troop](https://www.openprogress.com/text-troop)
 
