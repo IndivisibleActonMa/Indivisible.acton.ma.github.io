@@ -68,7 +68,7 @@ Click [here](http://www.mafamily.org/wp-content/uploads/2016/09/Referendum-Petit
 
 ### Lori Trahan
 
-[Video: 3rd Essex District U.S. Congressional Debate Facebook Live](https://www.facebook.com/hcmediahaverhill/videos/202430263869474/?fref=mentions&__xts__[0]=68.ARChdEK4ACsv4dCoz3Gbu9V2RDDQ2VM843at0Egd4iedAkIZSJUiBmS5ZfmmAX4tv-Dun7lM8wTfNWiBErH0vANmTkmBBNp9LHyaQ0UEVNnUq4sGcgM_Z8L34q2VulXGjRs0-KPfkTaMoK0rzwzdm3xGlh5tqh9O_yei5VUV6pVig3R6Xvn6VCBxf6-rjhK08mknJlK5nV3qtnJHgwFC8b_tfKzd1ZJQ0W0NkUFIj0xmuNiRNpMuqhaTBg_CUZ5pFXTlbQ&__tn__=K-R). 
+[Video: 3rd Essex District U.S. Congressional Debate Facebook Live - 10/23/18](https://www.facebook.com/hcmediahaverhill/videos/202430263869474/?fref=mentions&__xts__[0]=68.ARChdEK4ACsv4dCoz3Gbu9V2RDDQ2VM843at0Egd4iedAkIZSJUiBmS5ZfmmAX4tv-Dun7lM8wTfNWiBErH0vANmTkmBBNp9LHyaQ0UEVNnUq4sGcgM_Z8L34q2VulXGjRs0-KPfkTaMoK0rzwzdm3xGlh5tqh9O_yei5VUV6pVig3R6Xvn6VCBxf6-rjhK08mknJlK5nV3qtnJHgwFC8b_tfKzd1ZJQ0W0NkUFIj0xmuNiRNpMuqhaTBg_CUZ5pFXTlbQ&__tn__=K-R). 
 
 [Video: WCVB-TV 3rd Congressional District Debate - 10/21/18](https://www.wcvb.com/article/green-trahan-debate-for-3rd-district-seat-on-the-record/23894582?fbclid=IwAR0hxi9BYtoEoBHg1lP-obs5llM8JmRAHsOObmt7bff9E3oJ0N_-c7_Xygg). 
 
