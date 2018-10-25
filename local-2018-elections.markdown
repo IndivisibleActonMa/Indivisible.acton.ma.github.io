@@ -38,6 +38,9 @@ Click [here](https://docs.google.com/spreadsheets/d/1-Ss4hsZxVmYVdSmy9wjNR2vWCAL
 Click [here](http://www.mass.gov/ago/docs/government/2017-petitions/17-07.pdf) to read the full initiative. 
 
 
+[Video: Debate in Question 1 - 10/24/18](https://www.nbcboston.com/news/local/NBC10-Boston-and-necn-Present-Half-Hour-Live-Broadcast-on-Question-1-The-Nurse-Staffing-Debate-497819911.html). 
+
+
 Check out this [podcast](https://www.iheart.com/podcast/1002-Nightside-With-Dan-28654279/episode/talk-the-vote-regis-kavanaugh-29919767/) for good information about Question 1 (2nd hour).  As a bonus - the first hour is Maura Healey!
 
 
