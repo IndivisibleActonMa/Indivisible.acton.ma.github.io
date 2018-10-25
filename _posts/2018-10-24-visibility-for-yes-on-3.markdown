@@ -20,3 +20,5 @@ Afterwards everyone is invited to come join us for some pizza.
 **Please spread the word.** 
 
 Hoping for at least **10 YESers** on **every** corner on Monday!  
+
+Click [here](https://docs.google.com/document/d/100zueP3PNi5yRRbVzQL8DEkABSWdr6htqqBXDvg7KAU/) for more info.
