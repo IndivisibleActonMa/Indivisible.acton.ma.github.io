@@ -58,7 +58,8 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 
 **Host**: Lowell Sun/UMass Lowell  
 **Location**: Moloney Hall at UMass Lowell  
-**Time**: Monday, October 29, 6-8pm  
+**Time**: Monday, October 29, 6-8pm   
+**Debate**: Rick Green vs. Mike Mullen vs. Lori Trahan from 7:30 to 8:30pm
 
 
 
