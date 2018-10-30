@@ -107,6 +107,10 @@ Campaign Website: [www.electfactor.org](www.electfactor.org/)
 
 ## US Senate
 
+
+[Video - Debate: Senator Elizabeth Warren, Geoff Diehl - 10/30/18](https://www.bostonglobe.com/news/politics/2018/10/30/watch-live-elizabeth-warren-geoff-diehl-debate/WTooTMMspp0UU92yvxQemI/story.html). 
+
+
 ### [Senator Elizabeth Warren](https://www.warren.senate.gov/)
 
 Campaign Website: [https://elizabethwarren.com](https://elizabethwarren.com)
