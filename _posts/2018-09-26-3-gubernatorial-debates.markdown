@@ -26,7 +26,7 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 
 * Governor : Republican Governor Charlie Baker and Democratic Candidate Jay Gonzalez.  Wednesday, Oct 17, 7-8p.
 
-* Lt. Governor : Republican Lt. Governor Karyn Polito and Democratic Candidate Quentin Palfrey.  Wednesday, Oct 29, 7-7:30p.
+* Lt. Governor : Republican Lt. Governor Karyn Polito and Democratic Candidate Quentin Palfrey.  Wednesday, Oct 29, 7-7:30p. [Video here](https://www.wgbh.org/news/local-news/2018/10/29/the-lieutenant-governors-debate).
 
 ---
 
