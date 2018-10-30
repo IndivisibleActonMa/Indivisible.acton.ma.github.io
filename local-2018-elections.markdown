@@ -131,6 +131,9 @@ Campaign Website: [https://jay4ma.com](https://jay4ma.com)
 
 ### Candidate Quentin Palfrey
 
+[Video - Lt. Governor Debate - 10/29/18](https://www.wgbh.org/news/local-news/2018/10/29/the-lieutenant-governors-debate).   
+
+
 [Presentation by Candidate Quentin Palfrey at General Meeting on 1/8/18](https://youtu.be/qbF5VMtXBXo)
 
 [Completed Questionnaire by Candidate Quentin Palfrey](/uploads/2018_Lt_Governor_of_Massachusetts__Quentin_Palfrey__Questionnaire.pdf)
