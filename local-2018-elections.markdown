@@ -20,20 +20,12 @@ date: 2017-12-20 21:38:00 -05:00
 
 Indivisible Acton welcomes candidates and their staff. In order to assure productive, fair and healthy discourse between campaigns and Indivisible Acton members these policies have been put in place. And questions or concerns should be directed to the membership coordinator Christine B: christine@indivisibleacton.org.
 
-**[Candidate and Campaign Etiquette and Policy](https://docs.google.com/document/d/1-G3_GKFkz3fC0VDkfGh4DbC820mzi23yyMG1-EqapfE/edit?usp=sharing)**
-
-## Candidate Contact List
-
-Click [here](https://docs.google.com/spreadsheets/d/1-Ss4hsZxVmYVdSmy9wjNR2vWCALtsWXF9qNwxr4gOKU/edit?usp=sharing) to see a campaign contact list.
-
-
-## Ballot Questions
-
-
-[Video: Arlington Democratic Town Committee Ballot Questions Forum](https://www.facebook.com/adtcma/videos/282731692564374/)
-
 
 ### Question 1: Patient-to-Nurse Limits
+
+[Video: North Shore Indivisible MA - Question 1 Speakers - Part 1](https://www.youtube.com/watch?v=OFurQZK2ks8)   
+
+[Video: North Shore Indivisible MA - Question 1 Speakers- Part 2](https://www.youtube.com/watch?v=tBdWDoBvXPg)    
 
 Click [here](http://www.mass.gov/ago/docs/government/2017-petitions/17-07.pdf) to read the full initiative. 
 
