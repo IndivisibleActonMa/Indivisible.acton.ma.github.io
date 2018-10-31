@@ -1,7 +1,8 @@
 ---
 title: Visibility for YES ON 3!!
 date: 2018-10-24 14:58:00 -04:00
-is featured: true
+published: false
+is featured: false
 event-start-date: 2018-10-29 16:00:00 -04:00
 event-end-date: 2018-10-29 18:00:00 -04:00
 ---
