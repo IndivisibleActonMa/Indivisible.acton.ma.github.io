@@ -40,6 +40,9 @@ layout: page
 
 * *4-6p, Acton, Kelly's Corner*: Mini Rally in Acton to show our support of YES on Question 3. We have signs, but you are welcome to make your own too. Please spread the word.  
 
+* *6-9p, Maynard*:  Election Eve Rally!!  The final countdown is on!  Join Senator Elizabeth Warren, MA-3 Candidate Lori Trahan and Gubernatorial Candidate Jay Gonzalez in Maynard and get fired up!!!  Fowler School Gym, 3 Tiger Dr, Maynard. Click [here](https://www.facebook.com/events/2007995969315712/?ti=ia) for more info and to RSVP.  
+
+
 **Tuesday, Nov 6 ELECTION DAY**
 
 * *9am, 11am, 2pm, 4:30pm, Acton*: Election Day Canvass and Phone Bank at the Coordinated Campaign Office (Jamie Eldridge campaign headquarters) right here in Acton! 130 Main St. Sign up here. Any questions? Email Monica at monica@indivisibleacton.org.  
