@@ -9,16 +9,16 @@ Location: 130 Main St. Acton, MA 01720
 
 Join us for a Get Out The Vote Rally!!
 
-**When:** Saturday, Nov 3, 12:00 PM   
-**Where:**Coordinated Campaign office, 130 Main Street, Acton   
+**When:**   Saturday, Nov 3, 12:00 PM   
+**Where:**  Coordinated Campaign office, 130 Main Street, Acton   
 
 *    Senator Ed Markey
 
-*    Congressional Candidate Lori Trahan
+*    MA-3 Congressional Candidate Lori Trahan
 
-*    LT Candidate Quentin Palfrey
+*    LT Governonr Candidate Quentin Palfrey
 
 *    Senator Jamie Eldridge
 
-*    State Representative candidate Tami Gouveia
+*    State Representative Candidate Tami Gouveia
 
