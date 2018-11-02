@@ -115,6 +115,7 @@ Campaign Website: [https://elizabethwarren.com](https://elizabethwarren.com)
 
 [Presentation by Candidate Jay Gonzalez at Acton & Boxborough DTC Gubernatorial Forum 1/13/18](https://youtu.be/W04hUE7sVPg)
 
+[Video: Gubernatorial Debate Nov. 1](https://www.youtube.com/watch?v=Wn5NEXNoTR4)  
 
 [Video: Gubernatorial Debate Oct. 9](https://youtu.be/OKrXpZJrOD4)
 
