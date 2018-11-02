@@ -22,6 +22,9 @@ layout: page
 
 * *10a, 1p, 4p, Acton*:  Come canvass and phone bank with us and help GOTV!!! Training provided!  Sign up [here](https://events.mobilizeamerica.io/massdems/?address=Acton,\+MA,\+USA&lat=42.4850931&lon=-71.43284&link_id=0&can_id=0d5712ce9b810b29d6d5471775001fbd&source=email-weekend-gotv-opportunities&email_referrer=email_442419&email_subject=weekend-gotv-opportunities&link_id=39&can_id=9a7cc198611ac2a74f284fdda8e14f7e).  Coordinated Campaign Office (Jamie Eldridge campaign headquarters), 130 Main St., Acton.  Questions?  Email Monica at monica@indivisibleacton.org.
 
+* *12p, Acton*: GOTV Rally with Senator Ed Markey, MA-3 Candidate Lori Trahan, Lt. Governor Candidate Quentin Palfrey, Senator Jamie Eldridge, State Representative Candidate Tami Gouveia!! 130 Main St, Acton  
+
+
 **Sunday, Nov 3**
 
 * *11:30-2p, Concord*: Sunday Activist Afternoons at the First Parish UI Church in Concord at 20 Lexington Rd. Lots of ways to GOTV: Phone banking, texting, postcards, voter registration, canvassing. Bring your laptop, cellphone, and earbuds or your colorful pens. Please contact Kate Kavanagh at 508-397-6507 or katekav@gmail.com for more info.  
