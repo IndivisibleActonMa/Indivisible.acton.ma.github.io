@@ -33,29 +33,29 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 
 ### MA Congressional District 3 Debate, Lori Trahan
 
-**Host**: WBZ "Talk of the Town" with Dan Rea\
-**Location**: MA School of Law, 500 Federal Street, Andover\
-**Time**: Wednesday, October 10, 8-9pm\
+**Host**: WBZ "Talk of the Town" with Dan Rea   
+**Location**: MA School of Law, 500 Federal Street, Andover   
+**Time**: Wednesday, October 10, 8-9pm   
 [Audio here](https://wbznewsradio.iheart.com/featured/nightside-with-dan-rea/content/2018-10-11-ma-3rd-congressional-race/).
 
-**Host**: WCVB “On The Record”\
-**Location**: In Studio\
-**Time**: October 18th (to air October 21)\
+**Host**: WCVB “On The Record”  
+**Location**: In Studio  
+**Time**: October 18th (to air October 21)  
 [Video here](https://www.wcvb.com/article/green-trahan-debate-for-3rd-district-seat-on-the-record/23894582?fbclid=IwAR0hxi9BYtoEoBHg1lP-obs5llM8JmRAHsOObmt7bff9E3oJ0N_-c7_Xygg).
 
-**Host**: Elect North Central Coalition\
-**Location**: Kent Recital Hall at Fitchburg State University\
-**Time**: Thursday, October 18, 6:30-8pm\
+**Host**: Elect North Central Coalition  
+**Location**: Kent Recital Hall at Fitchburg State University  
+**Time**: Thursday, October 18, 6:30-8pm  
 [Video here](https://videoplayer.telvue.com/player/yycCAZPb0NN3zj2o5qio-YFMNC43NjCG/media/388374?autostart=true&showtabssearch=true).
 
-**Host**: Eagle Tribune/Merrimack Valley Chamber of Commerce\
-**Location**: NECC Hartleb Center, College Ave, Haverhill, MA\
-**Time**: Tuesday, October 23, 6-8pm\
+**Host**: Eagle Tribune/Merrimack Valley Chamber of Commerce  
+**Location**: NECC Hartleb Center, College Ave, Haverhill, MA  
+**Time**: Tuesday, October 23, 6-8pm  
 [Video here](https://www.facebook.com/hcmediahaverhill/videos/202430263869474/?fref=mentions&__xts__%5B0%5D=68.ARChdEK4ACsv4dCoz3Gbu9V2RDDQ2VM843at0Egd4iedAkIZSJUiBmS5ZfmmAX4tv-Dun7lM8wTfNWiBErH0vANmTkmBBNp9LHyaQ0UEVNnUq4sGcgM_Z8L34q2VulXGjRs0-KPfkTaMoK0rzwzdm3xGlh5tqh9O_yei5VUV6pVig3R6Xvn6VCBxf6-rjhK08mknJlK5nV3qtnJHgwFC8b_tfKzd1ZJQ0W0NkUFIj0xmuNiRNpMuqhaTBg_CUZ5pFXTlbQ&__tn__=K-R).
 
-**Host**: Lowell Sun/UMass Lowell\
-**Location**: Moloney Hall at UMass Lowell\
-**Time**: Monday, October 29, 6-8pm\
+**Host**: Lowell Sun/UMass Lowell  
+**Location**: Moloney Hall at UMass Lowell  
+**Time**: Monday, October 29, 6-8pm  
 **More info**: Rick Green vs. Mike Mullen vs. Lori Trahan from 7:30 to 8:30p. LTC will broadcast candidate debates live on LTC Channel 99 and LTC.org.
 
 **Contact**: gretchen@loritrahan.com
@@ -64,9 +64,9 @@ Click [here](https://www.wgbh.org/foundation/debates?utm_source=FBPAGE&utm_mediu
 
 ### League of Women Voters Candidates Forum.
 
-**Host**: Co-sponsored by League of Women Voters Acton and Concord-Carlisle.\
-**Location**: Acton Town Hall, Faulkner Room, 471 Main St. Acton.\
-**When**: Thursday, Oct 18, 7-8:30p.\
+**Host**: Co-sponsored by League of Women Voters Acton and Concord-Carlisle.  
+**Location**: Acton Town Hall, Faulkner Room, 471 Main St. Acton.  
+**When**: Thursday, Oct 18, 7-8:30p.  
 **Agenda**:
 
 * 7-7:30p : Middlesex 14th District - Tami Gouveia, Danny Factor
