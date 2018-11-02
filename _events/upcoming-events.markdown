@@ -30,7 +30,7 @@ layout: page
 * *4-6pm, West Concord*: Phone banking for Chris Pappas (NH-01) and Anthony Delgado (NY-19). Host: Ellen Quackenbush, 206 Prairie St., West Concord; please RSVP to equackenbush206@gmail.com.
 
 
-## **Monday, Nov 5**
+**Monday, Nov 5**
 
 * *10a, 1p, 4p, Acton*:  Come canvass and phone bank with us and help GOTV!!! Training provided!  Sign up [here](https://events.mobilizeamerica.io/massdems/?address=Acton,\+MA,\+USA&lat=42.4850931&lon=-71.43284&link_id=0&can_id=0d5712ce9b810b29d6d5471775001fbd&source=email-weekend-gotv-opportunities&email_referrer=email_442419&email_subject=weekend-gotv-opportunities&link_id=39&can_id=9a7cc198611ac2a74f284fdda8e14f7e).  Coordinated Campaign Office (Jamie Eldridge campaign headquarters), 130 Main St., Acton.  Questions?  Email Monica at monica@indivisibleacton.org.  
 
