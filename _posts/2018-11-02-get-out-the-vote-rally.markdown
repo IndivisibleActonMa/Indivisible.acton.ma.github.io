@@ -16,7 +16,7 @@ Join us for a Get Out The Vote Rally!!
 
 * MA-3 Congressional Candidate Lori Trahan
 
-* LT Governonr Candidate Quentin Palfrey
+* LT Governor Candidate Quentin Palfrey
 
 * Senator Jamie Eldridge
 
