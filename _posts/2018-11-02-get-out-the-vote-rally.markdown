@@ -9,7 +9,7 @@ main-image: "/uploads/44055664_2222631484478091_2127634366447222784_o.jpg"
 
 Join us for a Get Out The Vote Rally!!
 
-**When:**   Saturday, Nov 3, 12:00 PM\
+**When:**   Saturday, Nov 3, 12:00 PM   
 **Where:**  Coordinated Campaign office, 130 Main Street, Acton
 
 * Senator Ed Markey
