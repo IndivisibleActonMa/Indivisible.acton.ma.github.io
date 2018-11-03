@@ -22,6 +22,9 @@ layout: page
 
 * *10a, 1p, 4p, Acton*:  Come canvass and phone bank with us and help GOTV!!! Training provided!  Sign up [here](https://events.mobilizeamerica.io/massdems/?address=Acton,\+MA,\+USA&lat=42.4850931&lon=-71.43284&link_id=0&can_id=0d5712ce9b810b29d6d5471775001fbd&source=email-weekend-gotv-opportunities&email_referrer=email_442419&email_subject=weekend-gotv-opportunities&link_id=39&can_id=9a7cc198611ac2a74f284fdda8e14f7e).  Coordinated Campaign Office (Jamie Eldridge campaign headquarters), 130 Main St., Acton.  Questions?  Email Monica at monica@indivisibleacton.org.
 
+
+**Saturday, Nov 2**
+
 * *12p, Acton*: GOTV Rally with Senator Ed Markey, MA-3 Candidate Lori Trahan, Lt. Governor Candidate Quentin Palfrey, Senator Jamie Eldridge, State Representative Candidate Tami Gouveia!! 130 Main St, Acton  
 
 
@@ -39,6 +42,9 @@ layout: page
 
 
 * *4-6p, Acton, Kelly's Corner*: Mini Rally in Acton to show our support of YES on Question 3. We have signs, but you are welcome to make your own too. Please spread the word.  
+
+* *4:15-6:15p, Lowell*: Lowell Get Out the Vote Canvass Kick-off with Elizabeth Warren.  Click [here](https://www.facebook.com/events/2227449184201633/?active_tab=about) for more info and to RSVP.
+
 
 * *6-9p, Maynard*:  Election Eve Rally!!  The final countdown is on!  Join Senator Elizabeth Warren, MA-3 Candidate Lori Trahan and Gubernatorial Candidate Jay Gonzalez in Maynard and get fired up!!!  Fowler School Gym, 3 Tiger Dr, Maynard. Click [here](https://www.facebook.com/events/2007995969315712/?ti=ia) for more info and to RSVP.  
 
