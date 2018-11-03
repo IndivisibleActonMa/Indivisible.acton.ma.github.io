@@ -24,12 +24,12 @@ Join us for a Get Out The Vote Rally!!
 
 ———
 
-### Election Eve Rally
+### Election Eve Rally **NEW LOCATION**
 
 The final countdown is on!  Join Senator Elizabeth Warren, MA-3 Candidate Lori Trahan and Gubernatorial Candidate Jay Gonzalez in Maynard and get fired up!!!   
 
 **When:**  Monday, Nov 5, 6-9p   
-**Where:** Fowler School Gym, 3 Tiger Drive, Maynard.   
+**Where:** Portuguese Club, 13 Port St., Hudson.   
 
 **More Info:**   
 Get more info and RSVP [here](https://www.facebook.com/events/2007995969315712/?ti=ia)
