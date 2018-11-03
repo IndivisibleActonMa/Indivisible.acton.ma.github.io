@@ -51,7 +51,7 @@ layout: page
 
 **Tuesday, Nov 6 ELECTION DAY**
 
-* *9am, 11am, 2pm, 4:30pm, Acton*: Election Day Canvass and Phone Bank at the Coordinated Campaign Office (Jamie Eldridge campaign headquarters) right here in Acton! 130 Main St. Sign up here. Any questions? Email Monica at monica@indivisibleacton.org.  
+* *9am, 11am, 2pm, 4:30pm, Acton*: Election Day Canvass and Phone Bank at the Coordinated Campaign Office (Jamie Eldridge campaign headquarters) right here in Acton! 130 Main St. Sign up [here](https://events.mobilizeamerica.io/massdems/?address=Acton,+MA,+USA&lat=42.4850931&lon=-71.43284&link_id=0&can_id=0d5712ce9b810b29d6d5471775001fbd&source=email-weekend-gotv-opportunities&email_referrer=email_442419&email_subject=weekend-gotv-opportunities&link_id=17&can_id=574622f1a89907bdcd11a29daa9a082f&email_referrer=email_444956&email_subject=2018-10-30-indivisible-acton-weekly-newsletter). Any questions? Email Monica at monica@indivisibleacton.org.  
 
 
 * ***VOTE, VOTE, VOTE!!!***
