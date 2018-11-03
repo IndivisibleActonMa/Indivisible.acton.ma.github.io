@@ -46,7 +46,7 @@ layout: page
 * *4:15-6:15p, Lowell*: Lowell Get Out the Vote Canvass Kick-off with Elizabeth Warren.  Click [here](https://www.facebook.com/events/2227449184201633/?active_tab=about) for more info and to RSVP.
 
 
-* *6-9p, Maynard*:  Election Eve Rally!!  The final countdown is on!  Join Senator Elizabeth Warren, MA-3 Candidate Lori Trahan and Gubernatorial Candidate Jay Gonzalez in Maynard and get fired up!!!  Fowler School Gym, 3 Tiger Dr, Maynard. Click [here](https://www.facebook.com/events/2007995969315712/?ti=ia) for more info and to RSVP.  
+* *6-9p, Hudson*:  Election Eve Rally!!  The final countdown is on!  Join Senator Elizabeth Warren, MA-3 Candidate Lori Trahan and Gubernatorial Candidate Jay Gonzalez in Maynard and get fired up!!!  Portuguese Club, 13 Port St., Hudson. Click [here](https://www.facebook.com/events/2007995969315712/?ti=ia) for more info and to RSVP.  
 
 
 **Tuesday, Nov 6 ELECTION DAY**
