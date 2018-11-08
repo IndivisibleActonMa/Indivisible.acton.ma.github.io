@@ -1,7 +1,8 @@
 ---
 title: YES on 2!
 date: 2018-09-21 21:50:00 -04:00
-is featured: true
+published: false
+is featured: false
 main-image: "/uploads/977B6283-31D6-405A-83CE-90E457843890.jpeg"
 ---
 
