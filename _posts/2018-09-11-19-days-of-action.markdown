@@ -1,7 +1,8 @@
 ---
 title: 19 Days of Action!!
 date: 2018-09-11 21:38:00 -04:00
-is featured: true
+published: false
+is featured: false
 ---
 
 ![canvassing photo with tami and jamie.jpg.png](/uploads/canvassing%20photo%20with%20tami%20and%20jamie.jpg.png)
