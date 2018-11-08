@@ -1,7 +1,8 @@
 ---
 title: Matching Challenge!
 date: 2018-06-13 20:46:00 -04:00
-is featured: true
+published: false
+is featured: false
 ---
 
 From **June through October**, Indivisible National will **MATCH** all funds we raise  **one-for-one** up to a total of **$500**!
