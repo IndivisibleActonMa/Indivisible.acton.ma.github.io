@@ -1,7 +1,8 @@
 ---
 title: YES on 3!
 date: 2018-09-21 22:22:00 -04:00
-is featured: true
+published: false
+is featured: false
 main-image: "/uploads/Screen%20Shot%202018-10-02%20at%209.21.07%20PM.png"
 ---
 
