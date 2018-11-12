@@ -1,6 +1,7 @@
 ---
 title: Democracy Party!
 date: 2018-11-10 20:14:00 -05:00
+published: false
 is featured: true
 event-start-date: 2018-11-15 18:00:00 -05:00
 event-end-date: 2018-11-15 20:00:00 -05:00
