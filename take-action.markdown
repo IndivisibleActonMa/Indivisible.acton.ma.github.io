@@ -4,11 +4,10 @@ date: 2018-01-17 10:41:00 -05:00
 layout: page
 ---
 
-![voteearlyma.png](/uploads/voteearlyma.png)
+![23467017_10159635499965397_8407070291840967214_o.jpg](/uploads/23467017_10159635499965397_8407070291840967214_o.jpg)
 
 ---
 
-### Find a GOTV event near you [here](https://events.mobilizeamerica.io/massdems/?address=Acton%2C%20MA%2C%20USA&lat=42.4850931&lon=-71.43284).
 
 ———
 
@@ -22,9 +21,6 @@ Click [here to learn about The Open Progress Text Troop](https://www.openprogres
 
 Click [here to learn about writing postcards to voters](http://www.postcardstovoters.org)
 
-Click [here](https://www.freedommassachusetts.org)  to show your support for upholding the dignity and respect for our transgender neighbors in Massachusetts.
-
-Click [here](https://raiseupma.org) to help fight for: Paid Family and Medical Leave, A $15 Minimum Wage, and The Fair Share Amendment.
 
 Click [here to Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
 
