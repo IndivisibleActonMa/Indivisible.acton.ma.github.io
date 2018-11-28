@@ -18,7 +18,7 @@ Click [here](https://secure.actblue.com/donate/barrowforsos) to donate to John's
 
 Here's how to sign up to text for John:
 
-Text bank (Hustle) https://goo.gl/forms/lj3i2V4fzlW6m7Lg1 and join the FB group "Texting with the Georgia Democrats in 2018" as they are not using Slack.
+Click [here](https://goo.gl/forms/lj3i2V4fzlW6m7Lg1) to sign up to text bank (Hustle) with Georgia Democrats and join the FB group "Texting with the Georgia Democrats in 2018" as they are not using Slack.
 
 ---
 
