@@ -27,9 +27,10 @@ layout: page
 * Education Secretary Betsy DeVos is proposing changes to Title IX.  The public has 60 days (until Jan 28) to weigh in on the proposal. Read more about it from the Seattle Times [here](https://www.seattletimes.com/education-lab/devos-title-ix-changes-open-for-public-comment-thursday/?fbclid=IwAR08RB8KC15znqMYvAX5qVxEIm5XIQJRaiKco2af8kxOAvX_02EhZ_XGK2E).  Read about the Title IX proposed rule [here](https://www.federalregister.gov/documents/2018/11/29/2018-25314/nondiscrimination-on-the-basis-of-sex-in-education-programs-or-activities-receiving-federal).  Submit your feedback [here](https://www.regulations.gov/document?D=ED-2018-OCR-0064-0001)
 
 ---
+
 ### Save the Date!
 
-* Monday, Jan 7, 2019 - Indivisible Acton Area General Meeting!
+* *Monday, Jan 7, 2019* - Indivisible Acton Area General Meeting!
 
 ---
 
