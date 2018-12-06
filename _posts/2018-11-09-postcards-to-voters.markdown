@@ -4,8 +4,8 @@ date: 2018-11-09 20:24:00 -05:00
 is featured: true
 ---
 
-Feeling like you can't stop persisting?
----
+## Feeling like you can't stop persisting?
+
 Let's help GOTV for **Gwen Collins-Greenup** who is running for Secretary of State in Louisiana!  **Runoff election is Dec 8.**
 
 Click [here](https://www.brproud.com/news/local-news/collins-greenup-talks-about-race-for-secretary-of-state/1639224254?fbclid=IwAR3QyEW0I0x9YLzHki5lK_PAXZI0w3o7o7oB0mfV-5tk17J_v-_FuPxSzB8) to learn more about Gwen.
@@ -30,14 +30,3 @@ Contact Tony The Democrat to get addresses:
 
 ---
 
-### Text
-
-Here's how to sign up to text for John:
-
-Click [here](https://goo.gl/forms/lj3i2V4fzlW6m7Lg1) to sign up to text bank (Hustle) with Georgia Democrats and join the FB group "Texting with the Georgia Democrats in 2018" as they are not using Slack.
-
----
-
-### Make calls
-
-Feel like phone banking?  Contact Monica at **monica@indivisibleacton.org** for the HubDialer link.
