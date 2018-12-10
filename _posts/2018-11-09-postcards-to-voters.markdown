@@ -6,12 +6,6 @@ is featured: true
 
 ## Feeling like you can't stop persisting?
 
-Let's help GOTV for **Gwen Collins-Greenup** who is running for Secretary of State in Louisiana!  **Runoff election is Dec 8.**
-
-Click [here](https://www.brproud.com/news/local-news/collins-greenup-talks-about-race-for-secretary-of-state/1639224254?fbclid=IwAR3QyEW0I0x9YLzHki5lK_PAXZI0w3o7o7oB0mfV-5tk17J_v-_FuPxSzB8) to learn more about Gwen.
-
-Sign up with Resistance Labs [here](https://resistancelabs.com/volunteer/text/) to text for Gwen!
-
 ---
 
 Here's some ways we can help **Christian Worth** who is running for Virginia House of Delegates!!!  **Special election is Dec 18.**
