@@ -37,7 +37,7 @@ layout: page
 
 ### Save the Date!
 
-* *Monday, Jan 7, 2019, 6:30-8:45p* - **Indivisible Acton Area General Meeting!**  Acton Memorial Library, 486 Main St, Acton.
+* *Monday, Jan 14, 2019, 6:30-8:45p* - **Indivisible Acton Area General Meeting!**  Acton Memorial Library, 486 Main St, Acton.
 
 ---
 
