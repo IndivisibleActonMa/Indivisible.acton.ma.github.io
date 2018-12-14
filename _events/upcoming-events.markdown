@@ -18,7 +18,7 @@ layout: page
 
 ## Some Events to Consider
 
-* [Let's GOTV for John Barrow!](http://www.indivisibleacton.org/2018/11/09/postcards-to-voters.html)
+* [Let's GOTV!](http://www.indivisibleacton.org/2018/11/09/postcards-to-voters.html)
 
 
 * Indivisible National as announced a 1-to-1 match (up to $500) for the month of December!  Give between Dec 1 and Dec 31, and the will double the donation!  Donate [here](https://secure.actblue.com/donate/indivisibleama411742968).
