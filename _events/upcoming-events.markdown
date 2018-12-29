@@ -31,13 +31,13 @@ layout: page
 
 ---
 
-* *Monday, Dec 3, 7p - Acton*:  **Special Town Meeting**. Click [here](https://www.acton-ma.gov/ArchiveCenter/ViewFile/Item/10851) to see the Warrant.  Check-in starts at 5:30p in the cafeteria area.  *Attendance is anticipated to be higher than average.*  Acton-Boxborough Regional High School Auditorium, 36 Charter Rd., Acton.
-
----
-
 ### Save the Date!
 
+* *Saturday, Jan 5, 2019, 10a-12p* : **Meet-Up** at Bagels Plus in Acton! We will be writing postcards for Sister District's voter outreach.
+
 * *Monday, Jan 7, 2019, 6:30-8:45p* - **Indivisible Acton Area General Meeting!**  Acton Memorial Library, 486 Main St, Acton.
+
+* *Thursday, Jan 10, 2019, 6-7:30p* : **Meet-Up** at the Couper Room at the Littleton Library.  We will be writing postcards for Sister District's voter outreach.
 
 ---
 
