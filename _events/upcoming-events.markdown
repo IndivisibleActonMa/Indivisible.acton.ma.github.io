@@ -31,7 +31,7 @@ layout: page
 
 ---
 
-* [Let's GOTV!](http://www.indivisibleacton.org/2018/11/09/postcards-to-voters.html).
+* [Let's GOTV!](http://www.indivisibleacton.org/2018/11/09/postcards-to-voters.html)
 
 
 * Time to put a price on carbon!  Learn more about the [Energy Innovation and Carbon Dividend Act](https://energyinnovationact.org/how-it-works/).  This bill has bi-partisan support!
