@@ -27,7 +27,10 @@ layout: page
 * *Monday, Jan 7, 6:30-8:45p* : **Indivisible Acton Area General Meeting!**  Acton Memorial Library, 486 Main St, Acton.
 
 
-* *Thursday, Jan 10, 2019, 6-7:30p* : **Meet-Up** at the Couper Room at the Littleton Library.  We will be writing postcards for Sister District's voter outreach.
+* *Thursday, Jan 10, 6-7:30p* : **Meet-Up** at the Couper Room at the Littleton Library.  We will be writing postcards for Sister District's voter outreach.  
+
+
+* *Sunday, Jan 20, 2-4p* : **Meet the Author, Dr. Steven Levitsk - How Democracies Die**. Click [here](https://prescottscc.org/event/meet-the-author-how-democracies-die/?instance_id=7133&fbclid=IwAR2DSVrxD0x_YTpGmiYBHGw0hFFuEckSR26E4Ju9ya_Rm4hW06FF6p4EErU) for more info.
 
 ---
 
