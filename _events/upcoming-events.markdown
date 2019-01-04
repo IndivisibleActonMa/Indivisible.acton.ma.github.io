@@ -30,6 +30,9 @@ layout: page
 * *Thursday, Jan 10, 6-7:30p* : **Meet-Up** at the Couper Room at the Littleton Library.  We will be writing postcards for Sister District's voter outreach.  
 
 
+* *Saturday, Jan 19* : **2019 Women's March**. Click [here](https://actionnetwork.org/event_campaigns/third-annual-womens-march-womenswave) to find a march near you!
+
+
 * *Sunday, Jan 20, 2-4p* : **Meet the Author, Dr. Steven Levitsk - How Democracies Die**. Click [here](https://prescottscc.org/event/meet-the-author-how-democracies-die/?instance_id=7133&fbclid=IwAR2DSVrxD0x_YTpGmiYBHGw0hFFuEckSR26E4Ju9ya_Rm4hW06FF6p4EErU) for more info.
 
 ---
