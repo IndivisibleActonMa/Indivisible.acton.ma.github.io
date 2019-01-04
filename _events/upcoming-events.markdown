@@ -18,20 +18,26 @@ layout: page
 
 ## Some Events to Consider
 
-* [Let's GOTV!](http://www.indivisibleacton.org/2018/11/09/postcards-to-voters.html)
+* *Saturday, Jan 5, 10a-12p* : **Meet-Up** at Bagels Plus in Acton! We will be writing postcards for Sister District's voter outreach.
+
+
+* *Monday, Jan 7, 5p* : **Open House for Lori Trahan's Lowell Office**  Please RSVP to meaghan@loritrahan.com. Boot Mills, 126 John Street, Suite 12, Lowell, MA.
+
+
+* *Monday, Jan 7, 6:30-8:45p* : **Indivisible Acton Area General Meeting!**  Acton Memorial Library, 486 Main St, Acton.
+
+
+* *Thursday, Jan 10, 2019, 6-7:30p* : **Meet-Up** at the Couper Room at the Littleton Library.  We will be writing postcards for Sister District's voter outreach.
+
+---
+
+* [Let's GOTV!](http://www.indivisibleacton.org/2018/11/09/postcards-to-voters.html).
 
 
 * Time to put a price on carbon!  Learn more about the [Energy Innovation and Carbon Dividend Act](https://energyinnovationact.org/how-it-works/).  This bill has bi-partisan support!
 
 
 * Education Secretary Betsy DeVos is proposing changes to Title IX.  The public has 60 days (until Jan 28) to weigh in on the proposal. Read more about it from the Seattle Times [here](https://www.seattletimes.com/education-lab/devos-title-ix-changes-open-for-public-comment-thursday/?fbclid=IwAR08RB8KC15znqMYvAX5qVxEIm5XIQJRaiKco2af8kxOAvX_02EhZ_XGK2E).  Read about the Title IX proposed rule [here](https://www.federalregister.gov/documents/2018/11/29/2018-25314/nondiscrimination-on-the-basis-of-sex-in-education-programs-or-activities-receiving-federal).  Submit your feedback [here](https://www.regulations.gov/document?D=ED-2018-OCR-0064-0001).
-
-
-* *Saturday, Jan 5, 2019, 10a-12p* : **Meet-Up** at Bagels Plus in Acton! We will be writing postcards for Sister District's voter outreach.
-
-* *Monday, Jan 7, 2019, 6:30-8:45p* - **Indivisible Acton Area General Meeting!**  Acton Memorial Library, 486 Main St, Acton.
-
-* *Thursday, Jan 10, 2019, 6-7:30p* : **Meet-Up** at the Couper Room at the Littleton Library.  We will be writing postcards for Sister District's voter outreach.
 
 ---
 
