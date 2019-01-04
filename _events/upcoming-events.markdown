@@ -21,17 +21,11 @@ layout: page
 * [Let's GOTV!](http://www.indivisibleacton.org/2018/11/09/postcards-to-voters.html)
 
 
-* Indivisible National as announced a 1-to-1 match (up to $500) for the month of December!  Give between Dec 1 and Dec 31, and the will double the donation!  Donate [here](https://secure.actblue.com/donate/indivisibleama411742968).
-
-
 * Time to put a price on carbon!  Learn more about the [Energy Innovation and Carbon Dividend Act](https://energyinnovationact.org/how-it-works/).  This bill has bi-partisan support!
 
 
 * Education Secretary Betsy DeVos is proposing changes to Title IX.  The public has 60 days (until Jan 28) to weigh in on the proposal. Read more about it from the Seattle Times [here](https://www.seattletimes.com/education-lab/devos-title-ix-changes-open-for-public-comment-thursday/?fbclid=IwAR08RB8KC15znqMYvAX5qVxEIm5XIQJRaiKco2af8kxOAvX_02EhZ_XGK2E).  Read about the Title IX proposed rule [here](https://www.federalregister.gov/documents/2018/11/29/2018-25314/nondiscrimination-on-the-basis-of-sex-in-education-programs-or-activities-receiving-federal).  Submit your feedback [here](https://www.regulations.gov/document?D=ED-2018-OCR-0064-0001).
 
----
-
-### Save the Date!
 
 * *Saturday, Jan 5, 2019, 10a-12p* : **Meet-Up** at Bagels Plus in Acton! We will be writing postcards for Sister District's voter outreach.
 
