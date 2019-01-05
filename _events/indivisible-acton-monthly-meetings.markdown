@@ -5,7 +5,7 @@ layout: post
 ---
 
 Indivisible General Monthly Meetings are held at the
-Acton Memorial Library, 486 Main St, Acton, MA 01720, 6:30-8:30p
+Acton Memorial Library, First Floor Meeting Room, 486 Main St, Acton, MA 01720, 6:30-8:30p
 
 ### Monday, January 7
 
