@@ -9,3 +9,4 @@ phone-numbers:
 website: https://trahan.house.gov
 ---
 
+[Email](https://trahan.house.gov/contact/email-me)
