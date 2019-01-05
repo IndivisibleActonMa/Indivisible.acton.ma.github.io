@@ -43,7 +43,7 @@ date: 2019-01-05 15:08:00 -05:00
 
 * **DC Office**: (202) 225-3411
 
-* **Campaign Website**: [https://loritrahan.com](https://loritrahan.com).
+* **Campaign Website**: [https://loritrahan.com](https://loritrahan.com)  
 
 ### State Senator Jamie Eldridge, Middlesex and Worcester
 
