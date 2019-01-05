@@ -4,9 +4,17 @@ date: 2018-03-02 18:41:00 -05:00
 layout: post
 ---
 
-###  Please note - there will be *NO* General Meeting in November and December.  We will resume General Meetings in January, 2019.
+Indivisible General Monthly Meetings are held at the
+Acton Memorial Library, 486 Main St, Acton, MA 01720, 6:30-8:30p
 
+### Monday, January 7
 
-Click [here](http://www.indivisibleacton.org/2018/11/09/postcards-to-voters.html) to help GOTV for Mike Espy, Democrat for US Senate in Mississippi.
+### Monday, February 4
+
+### Monday, March 4
+
+### Monday, April 8
+
+### Monday, May 13
 
 ---
