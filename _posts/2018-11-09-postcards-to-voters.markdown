@@ -1,7 +1,8 @@
 ---
 title: Let's Help GOTV!!
 date: 2018-11-09 20:24:00 -05:00
-is featured: true
+published: false
+is featured: false
 ---
 
 ## Feeling like you can't stop persisting?

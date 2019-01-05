@@ -27,7 +27,7 @@ layout: page
 * *Monday, Jan 7, 6:30-8:45p* : **Indivisible Acton Area General Meeting!**  Acton Memorial Library, 486 Main St, Acton.
 
 
-* *Thursday, Jan 10, 6-7:30p* : **Meet-Up** at the Couper Room at the Littleton Library.  We will be writing postcards for Sister District's voter outreach.  
+* *Thursday, Jan 10, 6-7:30p* : **Meet-Up** at the Couper Room at the Littleton Library.  We will be writing postcards for Sister District's voter outreach.
 
 
 * *Saturday, Jan 19* : **2019 Women's March**. Click [here](https://actionnetwork.org/event_campaigns/third-annual-womens-march-womenswave) to find a march near you!
@@ -37,7 +37,7 @@ layout: page
 
 ---
 
-* [Let's GOTV!](http://www.indivisibleacton.org/2018/11/09/postcards-to-voters.html)
+* [Special State/National Action](http://www.indivisibleacton.org/2019/01/05/special-state-slash-national-action.html)
 
 
 * Time to put a price on carbon!  Learn more about the [Energy Innovation and Carbon Dividend Act](https://energyinnovationact.org/how-it-works/).  This bill has bi-partisan support!
