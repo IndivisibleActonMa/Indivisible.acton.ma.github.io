@@ -67,7 +67,7 @@ date: 2019-01-05 15:08:00 -05:00
 
 * **Lunenburg Office**: 978-582-4146 ext.4
 
-* **Campaign Website**: [www.jenbenson.org](www.jenbenson.org).
+* **Campaign Website**: [www.jenbenson.org](http://www.jenbenson.org)  
 
 ### State Representative Tami Gouvieau, 14th Middlesex
 
