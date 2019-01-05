@@ -5,7 +5,6 @@ phone-numbers:
   Boston Office: " (617) 565-3170"
   Springfield Office: "(413) 788-2690"
   DC Office: "(202) 224-4543"
-  Email: https://www.warren.senate.gov/contact
 website: https://www.warren.senate.gov
 ---
 
