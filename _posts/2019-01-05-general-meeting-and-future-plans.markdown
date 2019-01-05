@@ -2,8 +2,8 @@
 title: January General Meeting!
 date: 2019-01-05 08:25:00 -05:00
 is featured: true
-event-start-date: 2018-10-15 18:30:00 -04:00
-event-end-date: 2018-10-15 20:30:00 -04:00
+event-start-date: 2019-01-07 18:30:00 -05:00
+event-end-date: 2019-01-07 20:30:00 -05:00
 Location: Acton Memorial Library 486 Main St., Acton, MA 01720
 ---
 
