@@ -79,7 +79,7 @@ date: 2019-01-05 15:08:00 -05:00
 
 * **Concord Office**: 978-844-6870
 
-* **Campaign Website**: [www.tamigouveia.com](www.tamigouveia.com)
+* **Campaign Website**: [www.tamigouveia.com](http://www.tamigouveia.com)
 
 ### Governor Charlie Baker
 
