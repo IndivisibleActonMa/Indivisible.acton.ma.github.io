@@ -85,7 +85,9 @@ To become a captain and get your own addresses click "Join Us" on the [Postcards
 
 [MA House Leadership](https://malegislature.gov/Legislators/Leadership)
 
-[Local 2018 Elections](http://www.indivisibleacton.org/local-2018-elections.html)
+[Representatives](http://www.indivisibleacton.org/2018-ma-state-primary.html)    
+
+[Elections](http://www.indivisibleacton.org/local-2018-elections.html)
 
 [Relationships with Specific Issue Organizations - MA Chapters](http://www.indivisibleacton.org/events/relationships-with-issue-organizations.html)
 
