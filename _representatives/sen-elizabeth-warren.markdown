@@ -6,7 +6,6 @@ phone-numbers:
   Boston Office: " (617) 565-3170"
   Springfield Office: "(413) 788-2690"
   DC Office: "(202) 224-4543"
-  Campaign Website: http://www.elizabethwarren.com
 website: https://www.warren.senate.gov
 ---
 
