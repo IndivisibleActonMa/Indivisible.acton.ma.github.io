@@ -5,7 +5,6 @@ phone-numbers:
   Email: James.Eldridge@masenate.gov
   Marlborough  Office: 978-460-8564
   Boston Office: '617-722-1120 '
-  Campaign Website: https://www.senatoreldridge.com/
 website: https://malegislature.gov/Legislators/Profile/JBE0
 ---
 
