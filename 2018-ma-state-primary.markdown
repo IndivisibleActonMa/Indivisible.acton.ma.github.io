@@ -31,7 +31,7 @@ date: 2019-01-05 15:08:00 -05:00
 
 * **DC Office**: 202-224-2742
 
-* **Campaign Website**: [http://www.edmarkey.com/](http://www.edmarkey.com/).
+* **Campaign Website**: [http://www.edmarkey.com/](http://www.edmarkey.com/)  
 
 ### US Congresswoman Lori Trahan, MA 3rd District
 
@@ -90,4 +90,3 @@ date: 2019-01-05 15:08:00 -05:00
 * **Springfield Office**: 413-784-1200
 
 * **Email**:  [https://www.mass.gov/forms/email-the-governors-office](https://www.mass.gov/forms/email-the-governors-office)
-
