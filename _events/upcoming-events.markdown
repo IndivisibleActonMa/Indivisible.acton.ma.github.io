@@ -27,6 +27,9 @@ layout: page
 * *Monday, Jan 7, 6:30-8:45p* : **Indivisible Acton Area General Meeting!**  Acton Memorial Library, 486 Main St, Acton.
 
 
+* *Wednesday, Jan 9, 7-9p* : **Public Info Session on the MA Ballot Initiative Process**, Acton Memorial Library, 486 Main St, Acton.  Come learn more about the Ballot Question process in Massachusetts.  Sponsored by the *[League of Women Voters - Acton Area](http://www.lwv-aa.org/home)*.  Click [here](https://www.facebook.com/events/315833375692840/) for more info.
+
+
 * *Thursday, Jan 10, 6-7:30p* : **Meet-Up** at the Couper Room at the Littleton Library.  We will be writing postcards for Sister District's voter outreach.
 
 
