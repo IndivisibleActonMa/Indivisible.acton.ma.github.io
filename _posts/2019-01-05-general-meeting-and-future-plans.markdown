@@ -1,6 +1,7 @@
 ---
 title: January General Meeting!
 date: 2019-01-05 08:25:00 -05:00
+published: false
 is featured: true
 event-start-date: 2019-01-07 18:30:00 -05:00
 event-end-date: 2019-01-07 20:30:00 -05:00
