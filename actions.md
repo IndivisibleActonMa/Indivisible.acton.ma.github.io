@@ -13,6 +13,10 @@ layout: page
 
 [Join Indivisible Acton](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton) and you get our twice weekly newsletter!
 
+Sign up for Indivisible MA's statewide newsletter [here](https://www.indivisible-ma.org/newsletter-signup).  
+
+Sign up for emails from Indivisible National [here](https://indivisible.org).
+
 ---
 
 ### Find out what's going on
