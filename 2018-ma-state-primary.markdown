@@ -29,7 +29,7 @@ date: 2019-01-05 15:08:00 -05:00
 
 * **YouTube**: [https://www.youtube.com/senelizabethwarren](https://www.youtube.com/senelizabethwarren)
 
-**Committees**: Armed Services; Banking, Housing, and Urban Affair,; Health, Education, Labor and Pensions, Aging
+* **Committees**: Armed Services; Banking, Housing, and Urban Affair,; Health, Education, Labor and Pensions, Aging
 
 ### US Senator Edward Markey
 
@@ -57,7 +57,7 @@ date: 2019-01-05 15:08:00 -05:00
 
 * **Campaign Website**: [http://www.edmarkey.com/](http://www.edmarkey.com/)
 
-**Committees**: Commerce, Science, and Transportation; Environment and Public Works; Foreign Relations; Small Business and Entrepreneurship
+* **Committees**: Commerce, Science, and Transportation; Environment and Public Works; Foreign Relations; Small Business and Entrepreneurship
 
 ### US Congresswoman Lori Trahan, MA 3rd District
 
@@ -130,3 +130,25 @@ date: 2019-01-05 15:08:00 -05:00
 * **Twitter**:  [@MassGovernor](https://twitter.com/MassGovernor)
 
 ---
+
+## Other resources
+
+### Fax legislators for free:
+
+* Representatives:  https://faxzero.com/fax_congress.php
+
+* Senate:  https://faxzero.com/fax_senate.php
+
+### Tool to help you contact your officials 
+
+* [Resistbot](https://resist.bot)
+
+### Have messages hand delivered to your legislators
+
+* [StampsLicked](https://stampslicked.org/)
+
+### Contact the White House
+
+* [https://www.usa.gov/federal-agencies/white-house](https://www.usa.gov/federal-agencies/white-house)
+
+*h/t Rogan's List*
