@@ -13,7 +13,7 @@ date: 2019-01-05 15:08:00 -05:00
 * **Boston Office**: 2400 JFK Federal Building, 15 New Sudbury Street, Boston, MA 02203  
 *Phone*: 617-565-3170
 
-* **Springfield Office**: 1550 Main Street, Suite 406, Springfield, MA 01103
+* **Springfield Office**: 1550 Main Street, Suite 406, Springfield, MA 01103  
 *Phone*: 413-788-2690
 
 * **DC Office**: 317 Hart Senate Office Building, Washington, DC 20510  
