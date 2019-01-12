@@ -41,7 +41,6 @@ date: 2019-01-05 15:08:00 -05:00
 *Phone*: 617-565-8519
 
 * **Springfield Office**: 1550 Main Street, 4th Floor, Springfield, MA 01101  
-
 *Phone*: 413-785-4610
 
 * **Fall River Office**: 222 Milliken Boulevard, Suite 312, Fall River, MA 02721  
