@@ -66,11 +66,11 @@ date: 2019-01-05 15:08:00 -05:00
 
 * **Email**: [https://trahan.house.gov/contact/email-me](https://trahan.house.gov/contact/email-me)
 
-* **Lowell Office**: 126 John Street, Lowell, MA 01852\
-  *Phone*: 978-459-0101
+* **Lowell Office**: 126 John Street, Lowell, MA 01852  
+*Phone*: 978-459-0101
 
-* **DC Office**: 1616 Longworth HOB, Washington, DC 20515-2103\
-  *Phone*: 202-225-3411
+* **DC Office**: 1616 Longworth HOB, Washington, DC 20515-2103  
+*Phone*: 202-225-3411
 
 * **Twitter**:  [@RepLoriTrahan](https://twitter.com/RepLoriTrahan)
 
