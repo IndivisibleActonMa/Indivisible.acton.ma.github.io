@@ -5,7 +5,7 @@ date: 2019-01-05 15:08:00 -05:00
 
 ### US Senator Elizabeth Warren
 
-* **Email**:  [https://www.warren.senate.gov/contact](https://www.warren.senate.gov/contact)\
+* **Email**:  [https://www.warren.senate.gov/contact](https://www.warren.senate.gov/contact)  
   [https://www.warren.senate.gov/contact/shareyouropinion](https://www.warren.senate.gov/contact/shareyouropinion)
 
 * **Website**: [https://www.warren.senate.gov](https://www.warren.senate.gov)
