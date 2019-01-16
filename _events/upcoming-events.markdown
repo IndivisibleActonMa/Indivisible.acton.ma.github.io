@@ -32,10 +32,15 @@ layout: page
 
 * *Thursday, Jan 10, 6-7:30p* : **Meet-Up** at the Couper Room at the Littleton Library.  We will be writing postcards for Sister District's voter outreach.  
 
-* *Tuesday, January 15, 9a-1:30p, Lowell*:  **Lowell Naturalization Ceremony: Help Register New Citizens**.  Come join the League of Women Voters and help up to 1000 new American citizens register to vote; click \[here\]  (https://www.facebook.com/events/350700812153773/) for more info.  Lowell Memorial Auditorium, 50 E Merrimack St, Lowell, Massachusetts 01852  
 
-* *Thursday, Jan 17* : **Boston: Sexual Health Lobby Day**.  Click 
-[here](https://www.aclum.org/en/events/sexual-health-lobby-day) for more info.  
+* *Tuesday, January 15, 9a-1:30p, Lowell*:  **Lowell Naturalization Ceremony: Help Register New Citizens**.  Come join the League of Women Voters and help up to 1000 new American citizens register to vote; click \[here\]  (https://www.facebook.com/events/350700812153773/) for more info.  Lowell Memorial Auditorium, 50 E Merrimack St, Lowell, Massachusetts 01852. 
+
+
+* *Thursday, Jan 17* : **Boston: Sexual Health Lobby Day**.  Click
+  [here](https://www.aclum.org/en/events/sexual-health-lobby-day) for more info. 
+
+
+* *Saturday, Jan 19* : **Meet-Up** at Bagels Plus in Acton! FL Miami-Dad Vote by Mail Enrollment campaign.
 
 * *Saturday, Jan 19* : **2019 Women's March**. Click [here](https://actionnetwork.org/event_campaigns/third-annual-womens-march-womenswave) to find a march near you!  Check our [calendar](http://www.indivisibleacton.org/calendar.html) for information about the march in Lowell.
 
