@@ -1,7 +1,6 @@
 ---
 title: Federal Shutdown Rally
 date: 2018-11-10 12:00:00 -05:00
-published: false
 is featured: true
 event-start-date: 2019-01-17 13:00:00 -05:00
 event-end-date: 2019-01-17 14:00:00 -05:00
