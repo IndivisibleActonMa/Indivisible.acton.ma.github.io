@@ -52,7 +52,9 @@ layout: page
 
 
 
-* *Tuesday, Jan 22, 6:30-8:30p* : **Meet-Up** at the Couper Room at the Littleton Library.  We will be writing postcards for Sister District's voter outreach.  *Bring your laptop and learn how to text bank!*
+* *Tuesday, Jan 22, 6:30-8:30p* : **Meet-Up** at the Couper Room at the Littleton Library.  We will be writing postcards for Sister District's voter outreach.  *Bring your laptop and learn how to text bank!*. 
+
+* *Thursday, Jan 24, 10:30a-2:30p* : **First lobby day of 2019! Justice & Renewable Energy for All**. Click [here](https://www.facebook.com/events/2281484028801937/) for more info.  
 
 ---
 
