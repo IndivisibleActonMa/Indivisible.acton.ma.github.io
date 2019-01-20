@@ -8,12 +8,13 @@ layout: page
 
 ---
 
-
-———
-
 Click [here for the list of actions for this week](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?ts=5a5e9634) from our sister organization's weekly newsletter.
 
 Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
+
+---
+
+### TOOLS
 
 Click [here to learn all about how to use texting to help mobilize people!](https://docs.google.com/document/d/1PvjgTv0y5wthNdlEJeMkg6K3hE4HOoeRAgTfFO2PSQM)
 
@@ -21,7 +22,6 @@ Click [here to learn about The Open Progress Text Troop](https://www.openprogres
 
 Click [here to learn about writing postcards to voters](http://www.postcardstovoters.org)
 
+---
 
 Click [here to Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
-
----
