@@ -5,7 +5,7 @@ date: 2017-12-20 21:38:00 -05:00
 
 ---
 
-# Candidate and Campaign Policy and Etiquette
+### Candidate and Campaign Policy and Etiquette
 
 Indivisible Acton welcomes candidates and their staff. In order to assure productive, fair and healthy discourse between campaigns and Indivisible Acton members these policies have been put in place. Please see our [Candidate and Campaign Etiquette and Policy](https://docs.google.com/document/d/1-G3_GKFkz3fC0VDkfGh4DbC820mzi23yyMG1-EqapfE/edit) document.
 
