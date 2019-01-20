@@ -1,5 +1,5 @@
 ---
-title: Take Action
+title: Take Action!
 date: 2018-01-17 10:41:00 -05:00
 layout: page
 ---
@@ -14,7 +14,7 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
 ---
 
-### TOOLS
+**TOOLS**
 
 Click [here to learn all about how to use texting to help mobilize people!](https://docs.google.com/document/d/1PvjgTv0y5wthNdlEJeMkg6K3hE4HOoeRAgTfFO2PSQM)
 
