@@ -14,7 +14,9 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
 ---
 
-## TOOLS
+### Tools
+
+Here are some helpful tools that help share actions and news.
 
 ### Text
 
@@ -25,7 +27,6 @@ Click [here to learn about The Open Progress Text Troop](https://www.openprogres
 ### Postcards
 
 Click [here to learn about writing postcards to voters](http://www.postcardstovoters.org)
-
 
 ### Twitter
 
