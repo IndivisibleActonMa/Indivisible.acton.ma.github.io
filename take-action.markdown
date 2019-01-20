@@ -14,13 +14,25 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
 ---
 
-**TOOLS**
+## TOOLS
+
+### Text
 
 Click [here to learn all about how to use texting to help mobilize people!](https://docs.google.com/document/d/1PvjgTv0y5wthNdlEJeMkg6K3hE4HOoeRAgTfFO2PSQM)
 
 Click [here to learn about The Open Progress Text Troop](https://www.openprogress.com/text-troop)
 
+### Postcards
+
 Click [here to learn about writing postcards to voters](http://www.postcardstovoters.org)
+
+### Twitter
+
+Use Twitter to follow Indivisible Acton (@IndActonMA) and help spread the word!  Click [here](https://drive.google.com/file/d/0BwLIGG6Uwnr_Y0h2a3EwS0hiWTF6dHNkLXR1OUZMOGhibHpr/view) for an  introduction to twitter.
+
+### Facebook
+
+Become a member of [Indivisible Acton-Area on Facebook](https://www.facebook.com/groups/indivisibleacton) to find out about events, share ideas, stay informed.
 
 ---
 
