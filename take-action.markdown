@@ -26,6 +26,7 @@ Click [here to learn about The Open Progress Text Troop](https://www.openprogres
 
 Click [here to learn about writing postcards to voters](http://www.postcardstovoters.org)
 
+
 ### Twitter
 
 Use Twitter to follow Indivisible Acton (@IndActonMA) and help spread the word!  Click [here](https://drive.google.com/file/d/0BwLIGG6Uwnr_Y0h2a3EwS0hiWTF6dHNkLXR1OUZMOGhibHpr/view) for an  introduction to twitter.
