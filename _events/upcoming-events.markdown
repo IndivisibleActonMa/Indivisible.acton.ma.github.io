@@ -66,7 +66,7 @@ layout: page
 
 ### Thursday, Jan 24
 
-* **10:30a-2:30p** : ***First lobby day of 2019! Justice & Renewable Energy for All***. Click [here](https://www.facebook.com/events/2281484028801937/) for more info.
+* **10:30a-2:30p** : ***2019 Campaign Launch Day! Justice & Renewable Energy for All***. Click [here](https://www.facebook.com/events/2281484028801937/) for more info.  Click [here](https://docs.google.com/forms/d/e/1FAIpQLSfYLojgKNwjkzm-Nsju8oGAdKl23cIb44vWt608q927ku3xhw/viewform?fbclid=IwAR0gU16YfAm3HVq1roWwOwXkAhpBlwGjjhbqCt0Z2fmm9ZkIb7wqYngvzOw) to RSVP.
 
 ### Tuesday, Jan 29
 
