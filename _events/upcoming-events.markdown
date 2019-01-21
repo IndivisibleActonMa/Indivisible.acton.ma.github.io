@@ -42,6 +42,7 @@ layout: page
 * **9a-1:30p, Lowell**:  ***Lowell Naturalization Ceremony: Help Register New Citizens***.  Come join the League of Women Voters and help up to 1000 new American citizens register to vote; click \[here\]  (https://www.facebook.com/events/350700812153773/) for more info.  Lowell Memorial Auditorium, 50 E Merrimack St, Lowell, Massachusetts 01852.
 
 ### Thursday, Jan 17
+
 * ***Boston: Sexual Health Lobby Day***.  Click  [here](https://www.aclum.org/en/events/sexual-health-lobby-day) for more info.
 
 ### Saturday, Jan 19
@@ -77,6 +78,9 @@ layout: page
 * **1-3p** : ***Safe Communities Lobby Day*** Hosted by [MIRA](http://www.miracoalition.org) - Massachusetts Immigrant & Refugee Advocacy Coalition  Click [here](https://www.facebook.com/events/243045716596390/) for more info.
 
 ---
+
+* **BAN THE BAG ACTON** : A group of Acton residents are proposing a town bylaw for the April 2019 Town Meeting warrant that will prohibit the use of thin-film, single-use plastic checkout bags in Acton, and encourage people to bring their own reusable bags for shopping, joining 88 other MA towns (including Concord, Lincoln, Sudbury and Westford) that already have bag bans. Click [here](/uploads/plastic.bag.flier.11.24.18.pdf) for more info.
+
 
 * [Special State/National Action](http://www.indivisibleacton.org/2019/01/05/special-state-slash-national-action.html)
 
