@@ -33,8 +33,6 @@ Sign up for emails from Indivisible National [here](https://indivisible.org).
 
 ### Newsletter Deadlines
 
-Slack:  post in channel #ia_newsletter on IA Slack
-
 Email:  newsletter@indivisibleacton.org
 
 * Friday's newsletter - deadline is Thursday, 4p. at 4p
