@@ -65,6 +65,11 @@ layout: page
 
 * **6:30-8:30p** : ***Meet-Up*** at the Couper Room at the Littleton Library.  We will be writing postcards for Sister District's voter outreach.  *Bring your laptop and learn how to text bank!*.
 
+
+### Wednesday, Jan 23
+
+* **10:45a-2:45p** : ***Lobby Day for Medicare for All***  Mass-Care, the statewide coalition for Single Payer, is coordinating this event. Click [here](https://www.facebook.com/events/2188237104826873/) for more info.
+
 ### Thursday, Jan 24
 
 * **10:30a-2:30p** : ***2019 Campaign Launch Day! Justice & Renewable Energy for All***. Click [here](https://www.facebook.com/events/2281484028801937/) for more info.  Click [here](https://docs.google.com/forms/d/e/1FAIpQLSfYLojgKNwjkzm-Nsju8oGAdKl23cIb44vWt608q927ku3xhw/viewform?fbclid=IwAR0gU16YfAm3HVq1roWwOwXkAhpBlwGjjhbqCt0Z2fmm9ZkIb7wqYngvzOw) to RSVP.
