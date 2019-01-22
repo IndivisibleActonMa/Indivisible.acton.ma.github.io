@@ -68,7 +68,7 @@ layout: page
 
 ### Wednesday, Jan 23
 
-* **10:45a-2:45p** : ***Lobby Day for Medicare for All***  Mass-Care, the statewide coalition for Single Payer, is coordinating this event. Click [here](https://www.facebook.com/events/2188237104826873/) for more info.
+* **10:45a-2:45p** : ***Lobby Day for Medicare for All***.  Mass-Care, the statewide coalition for Single Payer, is coordinating this event. Click [here](https://www.facebook.com/events/2188237104826873/) for more info.
 
 ### Thursday, Jan 24
 
