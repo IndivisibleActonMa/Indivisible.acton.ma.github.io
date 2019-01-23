@@ -12,7 +12,7 @@ Click [here for the list of actions for this week](https://docs.google.com/docum
 
 Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
 
----
+Click [here](http://www.indivisibleacton.org/2019/01/12/call-to-action.html) for more ways to take action!
 
 ### Tools
 
