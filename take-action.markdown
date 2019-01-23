@@ -14,6 +14,8 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
 Click [here](http://www.indivisibleacton.org/2019/01/12/call-to-action.html) for more ways to take action!
 
+---
+
 ### Tools
 
 Here are some helpful tools that help share actions and news.
