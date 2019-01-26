@@ -1,7 +1,6 @@
 ---
 title: February General Meeting!
-date: 2019-01-20 08:25:00 -05:00
-published: false
+date: 2019-01-26 08:25:00 -05:00
 is featured: true
 event-start-date: 2019-02-04 18:30:00 -05:00
 event-end-date: 2019-02-04 20:30:00 -05:00
