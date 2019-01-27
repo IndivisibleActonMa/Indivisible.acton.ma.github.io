@@ -55,4 +55,4 @@ Newsletter Deadlines:
 
 ### Help
 
-If you need help or wish to update an entry in the calendar, email the steering committee. \[Steering\](mailto: Steering@indivisibleacton.org)
+If you need help or wish to update an entry in the calendar, email the steering committee at: steering@indivisibleacton.org
