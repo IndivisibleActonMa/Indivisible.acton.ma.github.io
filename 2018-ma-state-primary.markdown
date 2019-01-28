@@ -135,9 +135,9 @@ date: 2019-01-05 15:08:00 -05:00
 
 ### Fax legislators for free:
 
-* Representatives:  https://faxzero.com/fax_congress.php
+* Representatives:  [https://faxzero.com/fax_congress.php](https://faxzero.com/fax_congress.php)
 
-* Senate:  https://faxzero.com/fax_senate.php
+* Senate:  [https://faxzero.com/fax_senate.php](https://faxzero.com/fax_senate.php)
 
 ### Tool to help you contact your officials 
 
