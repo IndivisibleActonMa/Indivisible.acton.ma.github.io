@@ -38,6 +38,11 @@ Use Twitter to follow Indivisible Acton (@IndActonMA) and help spread the word! 
 
 Become a member of [Indivisible Acton-Area on Facebook](https://www.facebook.com/groups/indivisibleacton) to find out about events, share ideas, stay informed.
 
+
+### Representantives
+
+Need to communicate with your Representatives?  Click [here](http://www.indivisibleacton.org/2018-ma-state-primary.html) for contact info, and other tools for contacting your officials!
+
 ---
 
 Click [here to Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
