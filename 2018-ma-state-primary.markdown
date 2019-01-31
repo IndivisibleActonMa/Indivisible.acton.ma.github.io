@@ -63,7 +63,7 @@ date: 2019-01-05 15:08:00 -05:00
 
 * **Website**: [https://trahan.house.gov](https://trahan.house.gov)
 
-* **Email**: [https://trahan.house.gov/contact/email-me](https://trahan.house.gov/contact/email-me)
+* **Email**: [https://trahan.house.gov/contact/email-me](https://trahan.house.gov/contact/)
 
 * **Lowell Office**: 126 John Street, Lowell, MA 01852  
 *Phone*: 978-459-0101
