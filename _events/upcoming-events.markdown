@@ -18,83 +18,25 @@ layout: page
 
 ## Some Events to Consider
 
-### Saturday, Jan 5, 10a-12p
+### Saturday, Feb 2
 
-* ***Meet-Up*** at Bagels Plus in Acton! We will be writing postcards for Sister District's voter outreach.
+* **10a-12p**, Acton: ***Meet-Up at Bagels Plus*** - (upstairs) postcard writing
+  12pm-2pm, Cambridge: Luncheon Panel Celebrating Newly-Elected Asian-American Trailblazers; 625 Massachusetts Ave, Cambridge; for more info and to RSVP, click [here](https://www.eventbrite.com/e/luncheon-panel-celebrating-newly-elected-aapi-women-tickets-54044963942?link_id=36&can_id=9a7cc198611ac2a74f284fdda8e14f7e).
 
-### Monday, Jan 7, 5p
+### Monday, Feb 4
 
-* **5p**: ***Open House for Lori Trahan's Lowell Office***  Please RSVP to meaghan@loritrahan.com. Boot Mills, 126 John Street, Suite 12, Lowell, MA.
+* **6:30-8:45p**, Acton : ***Indivisible Acton Area General Meeting!***  Acton Memorial Library, 486 Main St, Acton.
 
+### Tuesday, Feb 5
 
-* **6:30-8:45p** : ***Indivisible Acton Area General Meeting!***  Acton Memorial Library, 486 Main St, Acton.
+* **5-7p**, Cambridge : ***Resist Howard Schultz Peaceful Protest*** - join this peaceful protest outside Howard Schultz's book signing at the Brattle Theater event to tell him that his self-funded vanity run as an Independent for President will assure that Donald Trump is re-elected to a second term. It will split the opposition to the Trump presidency, allowing Trump’s hardcore supporters to return him to office with the support of only a minority of all voters. For more info, click [here](https://www.eventbrite.com/e/resist-howard-schultz-peaceful-protest-cambridge-tickets-55541178159?aff=efbeventtix&fbclid=IwAR3YrjjWSmr-AjxUzCJsvkU6KI_-jKcWx4UUZeLJ85fdr318psvi9nGDw4s).
 
-### Wednesday, Jan 9
+### Saturday, Feb 9
 
-* **7-9p** : ***Public Info Session on the MA Ballot Initiative Process***, Acton Memorial Library, 486 Main St, Acton.  Come learn more about the Ballot Question process in Massachusetts.  Sponsored by the *[League of Women Voters - Acton Area](http://www.lwv-aa.org/home)*.  Click [here](https://www.facebook.com/events/315833375692840/) for more info.  Click [here](https://drive.google.com/file/d/1M6hONThbQFIveevCqpp6nXkq5EmCpNlD/view) to view the slide presentation.
+* **10a-2:30p**, Westford : ***Campaign Training with Mass Alliance*** - this highly recommended training introduces progressive candidates and campaign workers (paid or volunteer) to the theory and practice behind successful grassroots campaigning. First Parish Church United of Westford; click [here](https://docs.google.com/forms/d/e/1FAIpQLSdwuNSt0BxFNbeyTQ7H1hgyJGLW4j0Ini4ymHMZlQSAaeJ1Mw/viewform?fbclid=IwAR3enH7wJDfKFHTN6-0A1x_vbNBTe7thOr9hY1toOrGbo7VyWZ2zYm-Yupo&link_id=41&can_id=9a7cc198611ac2a74f284fdda8e14f7e) to RSVP. Don't miss out on this great opportunity as these trainings don't happen often!
 
-### Thursday, Jan 10
+### Tuesday, Feb 26
 
-* **6-7:30p** : ***Meet-Up*** at the Couper Room at the Littleton Library.  We will be writing postcards for Sister District's voter outreach.
-
-### Tuesday, Jan 15
-
-* **9a-1:30p, Lowell**:  ***Lowell Naturalization Ceremony: Help Register New Citizens***.  Come join the League of Women Voters and help up to 1000 new American citizens register to vote; click \[here\]  (https://www.facebook.com/events/350700812153773/) for more info.  Lowell Memorial Auditorium, 50 E Merrimack St, Lowell, Massachusetts 01852.
-
-### Thursday, Jan 17
-
-* ***Boston: Sexual Health Lobby Day***.  Click  [here](https://www.aclum.org/en/events/sexual-health-lobby-day) for more info.
-
-### Saturday, Jan 19
-
-* **10a-12p** : ***Meet-Up*** at Bagels Plus in Acton! FL Miami-Dad Vote by Mail Enrollment campaign.
-
-* ***2019 Women's March***. Click [here](https://actionnetwork.org/event_campaigns/third-annual-womens-march-womenswave) to find a march near you!  Check our [calendar](http://www.indivisibleacton.org/calendar.html) for information about the march in Lowell.
-
-### Sunday, Jan 20
-
-* **2-4p** : ***Meet the Author, Dr. Steven Levitsky - How Democracies Die***. Click [here](https://prescottscc.org/event/meet-the-author-how-democracies-die/?instance_id=7133&fbclid=IwAR2DSVrxD0x_YTpGmiYBHGw0hFFuEckSR26E4Ju9ya_Rm4hW06FF6p4EErU) for more info.
-
-### Monday, Jan 21
-
-* **8:30-11a** : ***Martin Luther King, Jr. Breakfast Program***.  The 17th Annual Martin Luther King, Jr. Breakfast Program is hosted by Na'aseh, the social justice committee of CBE.  Congregation Beth Elohim is located at 133 Prospect Street, Acton, MA.  Click [here](https://www.bethelohim.org/event/special-mlk-breakfast.html) for more info.
-
-### Tuesday, Jan 22
-
-* **9:30a-1:30p** : ***Lowell Naturalization Ceremony: Help Register New Citizens***.  Come join the League of Women Voters and help up to 1000 new American citizens register to vote; click [here](https://www.facebook.com/events/290454704988158/) for more info.
-
-* **6:30-8:30p** : ***Meet-Up*** at the Couper Room at the Littleton Library.  We will be writing postcards for Sister District's voter outreach.  *Bring your laptop and learn how to text bank!*.
-
-
-### Wednesday, Jan 23
-
-* **10:45a-2:45p** : ***Lobby Day for Medicare for All***.  Mass-Care, the statewide coalition for Single Payer, is coordinating this event. Click [here](https://www.facebook.com/events/2188237104826873/) for more info.
-
-### Thursday, Jan 24
-
-* **10:30a-2:30p** : ***2019 Campaign Launch Day! Justice & Renewable Energy for All***. Click [here](https://www.facebook.com/events/2281484028801937/) for more info.  Click [here](https://docs.google.com/forms/d/e/1FAIpQLSfYLojgKNwjkzm-Nsju8oGAdKl23cIb44vWt608q927ku3xhw/viewform?fbclid=IwAR0gU16YfAm3HVq1roWwOwXkAhpBlwGjjhbqCt0Z2fmm9ZkIb7wqYngvzOw) to RSVP.
-
-### Tuesday, Jan 29
-
-* **11a-1p** : ***Bridge the Senior Healthcare Gap with MSAC***  Join [Mass Senior Action Council](http://www.masssenioraction.org) in the fight for equitable and affordable healthcare for seniors!  Click [here](https://www.facebook.com/events/270048277197436/) for more info.
-
-### Wednesday, Jan 30
-
-* **1-3p** : ***Safe Communities Lobby Day*** Hosted by [MIRA](http://www.miracoalition.org) - Massachusetts Immigrant & Refugee Advocacy Coalition  Click [here](https://www.facebook.com/events/243045716596390/) for more info.
+* **7-9p**, Wayland : ***Protecting Our Immigrant Neighbors: A Conversation with Legislatures(including Sen. Eldridge)*** - learn about the Safe Communities legislation and how you can support humane immigration policies. All are welcome. First Parish in Wayland, 50 Cochituate Rd.
 
 ---
-
-* **BAN THE BAG ACTON** : A group of Acton residents are proposing a town bylaw for the April 2019 Town Meeting warrant that will prohibit the use of thin-film, single-use plastic checkout bags in Acton, and encourage people to bring their own reusable bags for shopping, joining 88 other MA towns (including Concord, Lincoln, Sudbury and Westford) that already have bag bans. Click [here](/uploads/plastic.bag.flier.11.24.18.pdf) for more info.
-
-
-* [Special State/National Action](http://www.indivisibleacton.org/2019/01/05/special-state-slash-national-action.html)
-
-
-* Time to put a price on carbon!  Learn more about the [Energy Innovation and Carbon Dividend Act](https://energyinnovationact.org/how-it-works/).  This bill has bi-partisan support!
-
-
-* Education Secretary Betsy DeVos is proposing changes to Title IX.  The public has 60 days (until Jan 28) to weigh in on the proposal. Read more about it from the Seattle Times [here](https://www.seattletimes.com/education-lab/devos-title-ix-changes-open-for-public-comment-thursday/?fbclid=IwAR08RB8KC15znqMYvAX5qVxEIm5XIQJRaiKco2af8kxOAvX_02EhZ_XGK2E).  Read about the Title IX proposed rule [here](https://www.federalregister.gov/documents/2018/11/29/2018-25314/nondiscrimination-on-the-basis-of-sex-in-education-programs-or-activities-receiving-federal).  Submit your feedback [here](https://www.regulations.gov/document?D=ED-2018-OCR-0064-0001).
-
----
-
-Click [here](http://www.indivisibleacton.org/events/organize-an-event.html) for tips on organizing an event!
