@@ -12,7 +12,24 @@ Click [here for the list of actions for this week](https://docs.google.com/docum
 
 Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
 
-Click [here](http://www.indivisibleacton.org/2019/01/12/call-to-action.html) for more ways to take action!
+---
+
+### Local/State
+
+* **BAN THE BAG ACTON** : A group of Acton residents are proposing a town bylaw for the April 2019 Town Meeting warrant that will prohibit the use of thin-film, single-use plastic checkout bags in Acton, and encourage people to bring their own reusable bags for shopping, joining 88 other MA towns (including Concord, Lincoln, Sudbury and Westford) that already have bag bans. Click [here](/uploads/plastic.bag.flier.11.24.18.pdf) for more info.  
+
+
+* Email your MA state legislators and **demand that they lead on immigrant rights and equity**. MIRA (MA Immigrant and Refugee Advocacy Coalition) has put together a [comprehensive list](https://mailchi.mp/miracoalition/action-alert-lets-build-momentum-for-our-2019-priority-bills?e=baa65bb0e1&link_id=16&can_id=9a7cc198611ac2a74f284fdda8e14f7e) of all of the bills that support immigration and refugee rights and has made it super easy to [email your legislators to support these bills](https://p2a.co/96apnIc?link_id=17&can_id=9a7cc198611ac2a74f284fdda8e14f7e).
+
+### National
+
+* Call your Democratic MoC today and tell them: **vote “yes” on an addendum to the House Rules for the 116th Congress to establish the Select Committee For A Green New Deal**. If they are already supporting the Green New Deal, thank them. Click [here](https://act.indivisible.org/call/green-new-deal/?link_id=21&can_id=9a7cc198611ac2a74f284fdda8e14f7e) to be connected.  
+
+
+* **Call 855-751-5024 and tell your representative to cosponsor Medicare for All**. In just a few short weeks, Congresswoman Pramila Jayapal will be introducing a Medicare for All bill in the House of Representatives. This year the House has the best chance in our nation's history of passing Medicare for All. The number of original co-sponsors will determine how seriously Medicare for All is taken by Congress, the media, and the public, so we need to get to work now.  If your representative is **Lori Trahan** email her [here](https://trahan.house.gov/contact/) and say how you hope she will support this progressive plan that a majority of the public supports.  
+
+
+* Time to put a price on carbon!  Learn more about the [Energy Innovation and Carbon Dividend Act](https://energyinnovationact.org/how-it-works/).  This bill has bi-partisan support!
 
 ---
 
@@ -37,7 +54,6 @@ Use Twitter to follow Indivisible Acton (@IndActonMA) and help spread the word! 
 ### Facebook
 
 Become a member of [Indivisible Acton-Area on Facebook](https://www.facebook.com/groups/indivisibleacton) to find out about events, share ideas, stay informed.
-
 
 ### Representantives
 
