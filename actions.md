@@ -5,9 +5,7 @@ main-image:
 layout: page
 ---
 
-### Contacts
 
-[Email contacts for our many activities](https://docs.google.com/document/d/167XkAyAtBCJ3HmgjTck0K9iWESpXIHf00uFoKZ8vcck/edit)
 
 ### Getting involved
 
@@ -18,6 +16,8 @@ layout: page
 Sign up for Indivisible MA's statewide newsletter [here](https://www.indivisible-ma.org/newsletter-signup).
 
 Sign up for emails from Indivisible National [here](https://indivisible.org).
+
+Questions?  Email us at *info@indivisibleacton.org* 
 
 ---
 
@@ -33,9 +33,9 @@ Sign up for emails from Indivisible National [here](https://indivisible.org).
 
 ### Newsletter Deadlines
 
-Email:  newsletter@indivisibleacton.org
+Email:  *newsletter@indivisibleacton.org*
 
-* Friday's newsletter - deadline is Thursday, 4p. at 4p
+* Friday's newsletter - deadline is Thursday, 4p.
 
 * Tuesday's newsletter - deadline is Sunday, 4p.
 
