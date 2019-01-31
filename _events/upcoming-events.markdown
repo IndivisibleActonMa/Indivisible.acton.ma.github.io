@@ -40,3 +40,5 @@ layout: page
 * **7-9p**, Wayland : ***Protecting Our Immigrant Neighbors: A Conversation with Legislatures(including Sen. Eldridge)*** - learn about the Safe Communities legislation and how you can support humane immigration policies. All are welcome. First Parish in Wayland, 50 Cochituate Rd.
 
 ---
+
+Click [here](http://www.indivisibleacton.org/take-action.html) for other ways to take action.
