@@ -1,7 +1,8 @@
 ---
 title: February General Meeting!
 date: 2019-01-26 08:25:00 -05:00
-is featured: true
+published: false
+is featured: false
 event-start-date: 2019-02-04 18:30:00 -05:00
 event-end-date: 2019-02-04 20:30:00 -05:00
 Location: Acton Memorial Library 486 Main St., Acton, MA 01720
