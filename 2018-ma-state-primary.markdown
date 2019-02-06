@@ -75,6 +75,9 @@ date: 2019-01-05 15:08:00 -05:00
 
 * **Campaign Website**: [https://loritrahan.com](https://loritrahan.com)
 
+* **Most recent Town Hall**: [Sep 29, 2018](https://www.youtube.com/watch?v=I6NPvkPMdnI)  
+
+
 ### State Senator Jamie Eldridge, Middlesex and Worcester
 
 * **Website**: [https://malegislature.gov/Legislators/Profile/JBE0](https://malegislature.gov/Legislators/Profile/JBE0)
