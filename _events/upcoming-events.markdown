@@ -57,6 +57,12 @@ layout: page
 
 * **3-5p**, Littleton: ***Fund Our Future Forum*** - Educators, Administrators, Students and Community members are all encouraged to attend to take part in a discussion about the importance of full funding legislation for public schools across the state. *Jamie Eldridge* will be speaking at the event. Click [here](https://massteacher.org/current-initiatives/fund-our-future/what-is-fund-our-future?link_id=51&can_id=9a7cc198611ac2a74f284fdda8e14f7e) for more info.
 
+
+### Sunday, Mar 3
+
+* **3-5p**, Acton: ***Crossing the Southern Border Forum*** - Hosted by Beth Elohim.  Experts and eye witnesses share their knowledge and experiences at the southern border and the humanitarian impact of the US policies.  Click [here](https://www.bethelohim.org/event/naaseh-border-forum.html?fbclid=IwAR3bK-dY8pV0ZegyuANCwzn625lwsWsF388KBO1IxyWDpu__q6bSgeJQ6GM) for more info.  
+
+
 ### Monday, Mar 4
 
 * **10a-12p**, Boston: ***Immigrants' Day at the State House 2019*** - Join us for Immigrants’ Day, the biggest lobbying day of the year for immigrants, refugees and allies. Click [here](https://www.eventbrite.com/e/immigrants-day-at-the-state-house-2019-tickets-54927627011?aff=efbevent&fbclid=IwAR1V8M8pJgwMU8v6wLXWKG6B58sEHZD2k_jmNGhcxuvz47RdEBeKs4-8pAI&link_id=52&can_id=9a7cc198611ac2a74f284fdda8e14f7e) to RSVP and for more info.
