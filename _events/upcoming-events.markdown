@@ -35,9 +35,33 @@ layout: page
 
 * **10a-2:30p**, Westford : ***Campaign Training with Mass Alliance*** - this highly recommended training introduces progressive candidates and campaign workers (paid or volunteer) to the theory and practice behind successful grassroots campaigning. First Parish Church United of Westford; click [here](https://docs.google.com/forms/d/e/1FAIpQLSdwuNSt0BxFNbeyTQ7H1hgyJGLW4j0Ini4ymHMZlQSAaeJ1Mw/viewform?fbclid=IwAR3enH7wJDfKFHTN6-0A1x_vbNBTe7thOr9hY1toOrGbo7VyWZ2zYm-Yupo&link_id=41&can_id=9a7cc198611ac2a74f284fdda8e14f7e) to RSVP. Don't miss out on this great opportunity as these trainings don't happen often!
 
+* **11a**, Lawrence: ***Elizabeth Warren will be making a big announcement about her 2020 plans***. Everett Mills, 15 Union Street, Lawrence, MA 01840
+
+### Tuesday, Feb 12
+
+* **1-3:30p**, Boston: ***Civics Education Lobby Day*** - Last session the legislature passed the civics education bill to fanfare and cheers. But the Governor's proposed 2020 budget does not include the necessary funding for the Civics Project Trust Fund, which would implement that legislation. [RSVP here](https://docs.google.com/forms/d/e/1FAIpQLSdV2-HUDsiaQeW33oMXBe1HMOdOJ-lGQRrLJkih4xXU9S3u5A/viewform?vc=0&c=0&w=1&link_id=46&can_id=9a7cc198611ac2a74f284fdda8e14f7e).
+
+### Wednesday, Feb 13
+
+* **9a-1:30p**, Lowell: Lowell Naturalization Ceremony - ***Help Register New Citizens***! Click [here](https://www.facebook.com/events/550688542113887/) for more info.
+
 ### Tuesday, Feb 26
 
 * **7-9p**, Wayland : ***Protecting Our Immigrant Neighbors: A Conversation with Legislatures(including Sen. Eldridge)*** - learn about the Safe Communities legislation and how you can support humane immigration policies. All are welcome. First Parish in Wayland, 50 Cochituate Rd.
+
+---
+
+## Save the Date
+
+### Friday, Mar 1
+
+* **3-5p**, Littleton: ***Fund Our Future Forum*** - Educators, Administrators, Students and Community members are all encouraged to attend to take part in a discussion about the importance of full funding legislation for public schools across the state. *Jamie Eldridge* will be speaking at the event. Click [here](https://massteacher.org/current-initiatives/fund-our-future/what-is-fund-our-future?link_id=51&can_id=9a7cc198611ac2a74f284fdda8e14f7e) for more info.
+
+### Monday, Mar 4
+
+* **10a-12p**, Boston: ***Immigrants' Day at the State House 2019*** - Join us for Immigrants’ Day, the biggest lobbying day of the year for immigrants, refugees and allies. Click [here](https://www.eventbrite.com/e/immigrants-day-at-the-state-house-2019-tickets-54927627011?aff=efbevent&fbclid=IwAR1V8M8pJgwMU8v6wLXWKG6B58sEHZD2k_jmNGhcxuvz47RdEBeKs4-8pAI&link_id=52&can_id=9a7cc198611ac2a74f284fdda8e14f7e) to RSVP and for more info.
+
+* **6:30-8:30p**, Acton: ***Indivisible Acton-Area General Meeting!***  Acton Memorial Library, 486 Main St, Acton.
 
 ---
 
