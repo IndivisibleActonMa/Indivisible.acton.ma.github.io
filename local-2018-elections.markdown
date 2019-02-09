@@ -17,12 +17,13 @@ Any questions or concerns should be directed to the membership coordinator Chris
 
 There will be two vacant seats on the Board.
 
-* Jim Snyder-Grant - website: [https://jimforacton.info/]( https://jimforacton.info/)  
+* Jim Snyder-Grant - website: [https://jimforacton.info/](https://jimforacton.info/)
 
-* David Martin - website: [http://www.martinforacton.com/](http://www.martinforacton.com/)  
+* David Martin - website: [http://www.martinforacton.com/](http://www.martinforacton.com/)
 
 * Dean Charter - no website yet.
 
+Click [HERE](https://www.acton-ma.gov/598/Elections) for more information and voting locations.  
 
 ---
 
