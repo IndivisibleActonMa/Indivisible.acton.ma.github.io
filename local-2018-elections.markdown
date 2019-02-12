@@ -15,13 +15,21 @@ Any questions or concerns should be directed to the membership coordinator Chris
 
 ### Acton Town Elections - Tuesday, Mar 26, 7a-8p.
 
-There will be two vacant seats on the Board.
+There are three candidates for two seats on the Board.
 
 * Jim Snyder-Grant - website: [https://jimforacton.info/](https://jimforacton.info/)
 
 * David Martin - website: [http://www.martinforacton.com/](http://www.martinforacton.com/)
 
-* Dean Charter - no website yet.
+* Dean Charter - no website yet (Phone: 978.263.8997). 
+
+
+There are three candidates for two slots on the School Committee:
+
+* Ginny Kremer [gkremer@abschools.org] (incumbent)
+* John Petersen [john.s.petersen@verizon.net]
+* Eileen Zhang [ezhang@abschools.org] (incumbent). 
+
 
 Click [HERE](https://www.acton-ma.gov/598/Elections) for more information and voting locations.  
 
