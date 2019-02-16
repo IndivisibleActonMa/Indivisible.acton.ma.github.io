@@ -45,6 +45,10 @@ layout: page
 
 * **9a-1:30p**, Lowell: Lowell Naturalization Ceremony - ***Help Register New Citizens***! Click [here](https://www.facebook.com/events/550688542113887/) for more info.
 
+**Monday, Feb 18**
+
+* Join Indivisible, MoveOn, Win Without War, CREDO, and more at an [event near you](https://u1584542.ct.sendgrid.net/mpss/c/AAE/ni0YAA/t.2p5/Ps-H0agNQbSNsOMxSgMSuw/h8/gs7T9cL6446RHrKZfB9qSAJilusQudPTwgD0pFpxz-2Fg8wNG8ExCvQePpuk-2BRJEvSWDOx0ljtUbcP21rFjP1tTQuCzAzCmchRh1eB4r85H4Mpe-2FvMck-2BO7X9IrGHy6i4o8tlOlO6zxUdjbWz3wcZNP-2FWqwYXfuL2RTXHw3rqWqUFqQEriDQ1fQdMxS2LH2wU2lxvo45fCMsutJ6fLJ3O658Po9mk5Kv-2FMbLPxSZ0V3lJuZAYEfGjHSVYYH2GbKaN-2F61-2FW8Je5zfSlA1nbHgkSEJSx67F7EuKsNhVbxMh6EqF40CdNbUTm-2FI7j-2Bw6BT5oDsJQk0ek6gYBJFeKro9L5eeLdkaVMg9s4DLhNs9VPsoWDcN9N9N4X1yq3kKSEfX88) to call on Congress to put an end to Trump’s fake national emergency.
+
 ### Tuesday, Feb 26
 
 * **7-9p**, Wayland : ***Protecting Our Immigrant Neighbors: A Conversation with Legislatures(including Sen. Eldridge)*** - learn about the Safe Communities legislation and how you can support humane immigration policies. All are welcome. First Parish in Wayland, 50 Cochituate Rd.
@@ -57,11 +61,9 @@ layout: page
 
 * **3-5p**, Littleton: ***Fund Our Future Forum*** - Educators, Administrators, Students and Community members are all encouraged to attend to take part in a discussion about the importance of full funding legislation for public schools across the state. *Jamie Eldridge* will be speaking at the event. Click [here](https://massteacher.org/current-initiatives/fund-our-future/what-is-fund-our-future?link_id=51&can_id=9a7cc198611ac2a74f284fdda8e14f7e) for more info.
 
-
 ### Sunday, Mar 3
 
-* **3-5p**, Acton: ***Crossing the Southern Border Forum*** - Hosted by Beth Elohim.  Experts and eye witnesses share their knowledge and experiences at the southern border and the humanitarian impact of the US policies.  Click [here](https://www.bethelohim.org/event/naaseh-border-forum.html?fbclid=IwAR3bK-dY8pV0ZegyuANCwzn625lwsWsF388KBO1IxyWDpu__q6bSgeJQ6GM) for more info.  
-
+* **3-5p**, Acton: ***Crossing the Southern Border Forum*** - Hosted by Beth Elohim.  Experts and eye witnesses share their knowledge and experiences at the southern border and the humanitarian impact of the US policies.  Click [here](https://www.bethelohim.org/event/naaseh-border-forum.html?fbclid=IwAR3bK-dY8pV0ZegyuANCwzn625lwsWsF388KBO1IxyWDpu__q6bSgeJQ6GM) for more info.
 
 ### Monday, Mar 4
 
