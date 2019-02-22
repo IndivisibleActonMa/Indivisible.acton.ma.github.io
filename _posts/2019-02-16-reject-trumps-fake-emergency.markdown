@@ -1,7 +1,8 @@
 ---
 title: Reject Trump's Fake Emergency!
 date: 2019-02-16 08:20:00 -05:00
-is featured: true
+published: false
+is featured: false
 ---
 
 1. [Sign up to take action this Monday](https://u1584542.ct.sendgrid.net/mpss/c/AAE/ni0YAA/t.2p5/Ps-H0agNQbSNsOMxSgMSuw/h0/gs7T9cL6446RHrKZfB9qSAJilusQudPTwgD0pFpxz-2Fg8wNG8ExCvQePpuk-2BRJEvSWDOx0ljtUbcP21rFjP1tTQuCzAzCmchRh1eB4r85H4Mpe-2FvMck-2BO7X9IrGHy6i4o8tlOlO6zxUdjbWz3wcZNP-2FWqwYXfuL2RTXHw3rqWqUFqQEriDQ1fQdMxS2LH2wU2lxvo45fCMsutJ6fLJ3O654iwkS2vnG4uYgDGNVGEY7LO-2B1LARfG4zsRLJneGM9ws5FjOOaOQf1h1LKP9BA3Qxxps-2BQVMj25db-2F6MjmIm630DiXvS9okMY03VNcpdyLgP-2B5wR5Z3TucjpqqWA9oOAA-2Fb8VzQ8FafSYzL4VdHD79g9g-2BG4jcGe89dtowECOmNk).  Join Indivisible, MoveOn, Win Without War, CREDO, and more at an event near you to call on Congress to put an end to Trump’s fake national emergency.  **You can also text “MOBILIZE” to 977-79 to get updates and the national event map when it’s live!**
