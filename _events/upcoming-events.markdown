@@ -71,7 +71,7 @@ layout: page
 
 ### Friday, Mar 1
 
-* **3-5p**, Littleton: ***Fund Our Future Forum*** - Educators, Administrators, Students and Community members are all encouraged to attend to take part in a discussion about the importance of full funding legislation for public schools across the state. *Jamie Eldridge* will be speaking at the event. Click [here](https://massteacher.org/current-initiatives/fund-our-future/what-is-fund-our-future?link_id=51&can_id=9a7cc198611ac2a74f284fdda8e14f7e) for more info.
+* **3-5p**, Littleton: ***Fund Our Future Forum*** - Educators, Administrators, Students and Community members are all encouraged to attend to take part in a discussion about the importance of full funding legislation for public schools across the state. *Jamie Eldridge* will be speaking at the event. Click [HERE](https://massteacher.org/current-initiatives/fund-our-future/what-is-fund-our-future?link_id=51&can_id=9a7cc198611ac2a74f284fdda8e14f7e) for more info.
 
 
 ### Saturday, Mar 2
