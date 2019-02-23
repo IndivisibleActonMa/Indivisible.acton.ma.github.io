@@ -73,6 +73,11 @@ layout: page
 
 * **3-5p**, Littleton: ***Fund Our Future Forum*** - Educators, Administrators, Students and Community members are all encouraged to attend to take part in a discussion about the importance of full funding legislation for public schools across the state. *Jamie Eldridge* will be speaking at the event. Click [here](https://massteacher.org/current-initiatives/fund-our-future/what-is-fund-our-future?link_id=51&can_id=9a7cc198611ac2a74f284fdda8e14f7e) for more info.
 
+
+### Saturday, Mar 2
+
+* **1-3p**, West Concord: ***Ranked Choice Voting Town Hall*** - Learn about Ranked Choice Voting and attend US Rep Lori Trahan's Town Hall!  Click [HERE](https://www.voterchoicema.org/rcv_town_hall_ma3) for more info and to RSVP. Harvey Wheeler Community Center, 1276 Main St, West Concord.  
+  
 ### Sunday, Mar 3
 
 * **3-5p**, Acton: ***Crossing the Southern Border Forum*** - Hosted by Beth Elohim.  Experts and eye witnesses share their knowledge and experiences at the southern border and the humanitarian impact of the US policies.  Click [HERE](https://www.bethelohim.org/event/naaseh-border-forum.html?fbclid=IwAR3bK-dY8pV0ZegyuANCwzn625lwsWsF388KBO1IxyWDpu__q6bSgeJQ6GM) for more info.
