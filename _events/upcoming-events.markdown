@@ -59,7 +59,7 @@ layout: page
 
 ### Tuesday, Feb 26
 
-* **6:30-8:30p**, Littleton : ***Meet-Up*** - where we will be writing postcards and perhaps text banking. We will be writing to encourage Democratic voter in Tennessee to get to the polls on March 12 and vote for Democrat Eric Coleman to be their State Senator. TN District 32 is holding a special election on March 12 and we can help to Get Out the Vote! This Meet-Up will take place in the Small Meeting Room at the Littleton Library. (The Small Meeting room is also easiest to reach from the back parking lot. Go past the Couper room and turn left when you are inside the library.)   \\
+* **6:30-8:30p**, Littleton : ***Meet-Up*** - where we will be writing postcards and perhaps text banking. We will be writing to encourage Democratic voter in Tennessee to get to the polls on March 12 and vote for Democrat Eric Coleman to be their State Senator. TN District 32 is holding a special election on March 12 and we can help to Get Out the Vote! This Meet-Up will take place in the Small Meeting Room at the Littleton Library. (The Small Meeting room is also easiest to reach from the back parking lot. Go past the Couper room and turn left when you are inside the library.)  
 
 * **7-9p**, Wayland : ***Protecting Our Immigrant Neighbors: A Conversation with Legislatures(including Sen. Eldridge)*** - learn about the Safe Communities legislation and how you can support humane immigration policies. All are welcome. First Parish in Wayland, 50 Cochituate Rd.
 
