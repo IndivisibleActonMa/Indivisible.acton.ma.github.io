@@ -45,11 +45,11 @@ layout: page
 
 * **9a-1:30p**, Lowell: Lowell Naturalization Ceremony - ***Help Register New Citizens***! Click [here](https://www.facebook.com/events/550688542113887/) for more info.
 
-**Monday, Feb 18**
+### Monday, Feb 18
 
 * Join Indivisible, MoveOn, Win Without War, CREDO, and more at an [event near you](https://u1584542.ct.sendgrid.net/mpss/c/AAE/ni0YAA/t.2p5/Ps-H0agNQbSNsOMxSgMSuw/h8/gs7T9cL6446RHrKZfB9qSAJilusQudPTwgD0pFpxz-2Fg8wNG8ExCvQePpuk-2BRJEvSWDOx0ljtUbcP21rFjP1tTQuCzAzCmchRh1eB4r85H4Mpe-2FvMck-2BO7X9IrGHy6i4o8tlOlO6zxUdjbWz3wcZNP-2FWqwYXfuL2RTXHw3rqWqUFqQEriDQ1fQdMxS2LH2wU2lxvo45fCMsutJ6fLJ3O658Po9mk5Kv-2FMbLPxSZ0V3lJuZAYEfGjHSVYYH2GbKaN-2F61-2FW8Je5zfSlA1nbHgkSEJSx67F7EuKsNhVbxMh6EqF40CdNbUTm-2FI7j-2Bw6BT5oDsJQk0ek6gYBJFeKro9L5eeLdkaVMg9s4DLhNs9VPsoWDcN9N9N4X1yq3kKSEfX88) to call on Congress to put an end to Trump’s fake national emergency.
 
-**Tuesday, Feb 19**
+### Tuesday, Feb 19
 
 * **1p**, Burlington: ***Jericho Walk*** - Burlington ICE office, 1000 District Avenue, sponsored by Burlington Area Clergy. For more info, click [here](https://u1584542.ct.sendgrid.net/mpss/c/AAE/ni0YAA/t.2p5/Ps-H0agNQbSNsOMxSgMSuw/h9/HE2UYZIDTZxfLuJ8qHDFiKcv9QeqMGLDJ3IrF8dj2B1sElwX-2BgRm7L6sO-2Fx12pvvKel0pvihNgpE9xXZwtMC-2FvkeylC3hhZp-2FLQaNt-2BZ-2FtvZyKcdJd8jJymEWrtwLoIw3CxikBsNTtl-2FYGFUeHPAA5NzicRTyXtnQ-2B38Ahze2EUWmcsWbhepu7NwcSmb2Wc34gFRo9511DU0P8UKl9Cv2MYdQIPsZtTy8I59UfqyI2eihgnkKOGcX2mc2v7y33alCwLnD3fdAMjEQMjtxVXaAUCvJYeZkaQJRJ-2B9S55qBPc-3D).
 
