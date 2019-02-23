@@ -21,7 +21,7 @@ There are three candidates for two seats on the Board.
 
 * David Martin - website: [http://www.martinforacton.com/](http://www.martinforacton.com/)
 
-* Dean Charter - no website yet (Phone: 978.263.8997). 
+* Dean Charter - website: [http://www.deancharter.com](http://www.deancharter.com). 
 
 
 There are three candidates for two slots on the School Committee:
