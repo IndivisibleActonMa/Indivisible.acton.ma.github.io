@@ -46,7 +46,7 @@ layout: page
 
 ### Sunday, Mar 31
 
-*  **2-4p**, Sudbury: ***Bystander Intervention Training*** - This 90-minute course is designed to teach people skills to safely intervene when witnessing public harassment.  Click [HERE](http://bethelsudbury.org/bystander-training/) for more info.  Congregation Beth El, 105 Hudson Rd, Sudbury, MA 01776. 
+*  **2-4p**, Sudbury: ***Bystander Intervention Training*** - This 90-minute course is designed to teach people skills to safely intervene when witnessing public harassment.  Note - Registration is required.  Click [HERE](http://bethelsudbury.org/bystander-training/) for more info.  Congregation Beth El, 105 Hudson Rd, Sudbury, MA 01776. 
 
 ---
 
