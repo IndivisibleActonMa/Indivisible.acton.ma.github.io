@@ -44,6 +44,10 @@ layout: page
 
 * **4-6p**, Concord: ***Support HR-1, Protect Democracy!***  Come hear *Alexandra Chandler*, Former Candidate for Congress MA-3, talk to us about House Bill HR-1, For the People Act of 2019, the impact of money in politics and her own experiences in running for Congress.  First Parish in Concord, 20 Lexington Rd, Concord, MA 01742
 
+### Sunday, Mar 31
+
+*  **2-4p**, Sudbury: ***Bystander Intervention Training*** - This 90-minute course is designed to teach people skills to safely intervene when witnessing public harassment.  Click [HERE](http://bethelsudbury.org/bystander-training/) for more info.  Congregation Beth El, 105 Hudson Rd, Sudbury, MA 01776. 
+
 ---
 
 ## Save the Date!
