@@ -14,12 +14,16 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
 ---
 
+### Take Action for Immigration
+
+* Click [HERE](https://docs.google.com/document/d/e/2PACX-1vTMqS6yDQZAGNdad1FYd6cMwj0EoEzDvkqgVPN0GzKX9UpMEaH1U9QmAhTwB-JOiw8MruJaYHj0VNf9/pub) to learn how you can contribute time and/or money to organizations which support immigrant justice.
+
 ### Local/State
 
 * **BAN THE BAG ACTON** : A group of Acton residents are proposing a town bylaw for the April 2019 Town Meeting warrant that will prohibit the use of thin-film, single-use plastic checkout bags in Acton, and encourage people to bring their own reusable bags for shopping, joining 88 other MA towns (including Concord, Lincoln, Sudbury and Westford) that already have bag bans. Click [here](/uploads/plastic.bag.flier.11.24.18.pdf) for more info.
 
 
-* Email your MA state legislators and **demand that they lead on immigrant rights and equity**. MIRA (MA Immigrant and Refugee Advocacy Coalition) has put together a [comprehensive list](https://mailchi.mp/miracoalition/action-alert-lets-build-momentum-for-our-2019-priority-bills?e=baa65bb0e1&link_id=16&can_id=9a7cc198611ac2a74f284fdda8e14f7e) of all of the bills that support immigration and refugee rights and has made it super easy to [email your legislators to support these bills](https://p2a.co/96apnIc?link_id=17&can_id=9a7cc198611ac2a74f284fdda8e14f7e).  
+* Email your MA state legislators and **demand that they lead on immigrant rights and equity**. MIRA (MA Immigrant and Refugee Advocacy Coalition) has put together a [comprehensive list](https://mailchi.mp/miracoalition/action-alert-lets-build-momentum-for-our-2019-priority-bills?e=baa65bb0e1&link_id=16&can_id=9a7cc198611ac2a74f284fdda8e14f7e) of all of the bills that support immigration and refugee rights and has made it super easy to [email your legislators to support these bills](https://p2a.co/96apnIc?link_id=17&can_id=9a7cc198611ac2a74f284fdda8e14f7e).
 
 
 * Meet the candidates on the Acton Town Ballot! Hosted by the League ov Women on Saturday, March 16 , 1p at Conant School Cafeteria to meet all the candidates on the March 26 Acton Town ballot. This event will use a "speed dating format" so candidates can spend 10 minutes at each table for Q & A with voters. [Read the press release](https://drive.google.com/open?id=1Pa9gIRiM2FMH_NEDY1KTEeJ2CGJqy-yv).
