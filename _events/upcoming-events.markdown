@@ -40,13 +40,15 @@ layout: page
 
 * **7:30a-10:3a**, Boston: ***The Future of Offshore Wind*** - Join the [Environmental League of Massachusetts](https://www.environmentalleague.org/) for a timely discussion of the questions and opportunities at the heart of our offshore wind future. Governor Baker is the Keynote Speaker. Click [HERE](https://www.eventbrite.com/e/the-future-of-offshore-wind-tickets-55874320597) for tickets and more info.  MCLE New England, 4751, 10 Winter Pl, Boston, MA 02108
 
+* **7-8:30p**, The Gallery at Villageworks (525 Massachusetts Ave), Acton: **Free Screening of the Documentary *A Plastic Ocean*** - A Plastic Ocean lays bare the extent of the plastic waste that's killing our previously pristine oceans, and raises worrisome implications for our future. See what plastic pollution is doing globally, and then, let’s think about steps we can take locally. More information at BantheBagActon@gmail.com or [HERE](https://www.westactonvillageworks.com/events). 
+
 ### Sunday, Mar 10
 
 * **4-6p**, Concord: ***Support HR-1, Protect Democracy!***  Come hear *Alexandra Chandler*, Former Candidate for Congress MA-3, talk to us about House Bill HR-1, For the People Act of 2019, the impact of money in politics and her own experiences in running for Congress.  First Parish in Concord, 20 Lexington Rd, Concord, MA 01742
 
 ### Sunday, Mar 31
 
-*  **2-4p**, Sudbury: ***Bystander Intervention Training*** - This 90-minute course is designed to teach people skills to safely intervene when witnessing public harassment.  Note - Registration is required.  Click [HERE](http://bethelsudbury.org/bystander-training/) for more info.  Congregation Beth El, 105 Hudson Rd, Sudbury, MA 01776. 
+* **2-4p**, Sudbury: ***Bystander Intervention Training*** - This 90-minute course is designed to teach people skills to safely intervene when witnessing public harassment.  Note - Registration is required.  Click [HERE](http://bethelsudbury.org/bystander-training/) for more info.  Congregation Beth El, 105 Hudson Rd, Sudbury, MA 01776.
 
 ---
 
