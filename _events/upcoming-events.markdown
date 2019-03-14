@@ -40,7 +40,7 @@ layout: page
 
 * **7:30a-10:3a**, Boston: ***The Future of Offshore Wind*** - Join the [Environmental League of Massachusetts](https://www.environmentalleague.org/) for a timely discussion of the questions and opportunities at the heart of our offshore wind future. Governor Baker is the Keynote Speaker. Click [HERE](https://www.eventbrite.com/e/the-future-of-offshore-wind-tickets-55874320597) for tickets and more info.  MCLE New England, 4751, 10 Winter Pl, Boston, MA 02108
 
-* **7-8:30p**, The Gallery at Villageworks (525 Massachusetts Ave), Acton: **Free Screening of the Documentary *A Plastic Ocean*** - A Plastic Ocean lays bare the extent of the plastic waste that's killing our previously pristine oceans, and raises worrisome implications for our future. See what plastic pollution is doing globally, and then, let’s think about steps we can take locally. More information at BantheBagActon@gmail.com or [HERE](https://www.westactonvillageworks.com/events). 
+* **7-8:30p**, The Gallery at Villageworks (525 Massachusetts Ave), Acton: **Free Screening of the Documentary *A Plastic Ocean*** - A Plastic Ocean lays bare the extent of the plastic waste that's killing our previously pristine oceans, and raises worrisome implications for our future. See what plastic pollution is doing globally, and then, let’s think about steps we can take locally. More information at BantheBagActon@gmail.com or [HERE](https://www.westactonvillageworks.com/events).
 
 ### Sunday, Mar 10
 
@@ -48,12 +48,23 @@ layout: page
 
 ### Wednesday, Mar 13
 
-* **6-9p**, Hudson: ***Green New Deal Forum*** - Hosted by Senator Jamie Eldridge.  Click [HERE](https://www.facebook.com/events/464767097393980/?notif_t=plan_user_invited&notif_id=1551804037984481) for more info.  Hudson Portuguese Club, 13 Port St, Hudson, MA  01749. 
+* **6-9p**, Hudson: ***Green New Deal Forum*** - Hosted by Senator Jamie Eldridge.  Click [HERE](https://www.facebook.com/events/464767097393980/?notif_t=plan_user_invited&notif_id=1551804037984481) for more info.  Hudson Portuguese Club, 13 Port St, Hudson, MA  01749.
 
+### Saturday, Mar 23
+
+* **9-11a**, Chelmsford: ***Lori Trahan Town Hall*** - Come to Congresswoman Lori's first constituent town hall meeting! She will give an update on her work so far in Washington, and wants to hear from you on any questions or concerns you might have.  Click [HERE](https://www.facebook.com/events/1147531848759549/) for more info.  Parker Middle School Cafeteria at 75 Graniteville Road, Chelmsford.
 
 ### Sunday, Mar 31
 
 * **2-4p**, Sudbury: ***Bystander Intervention Training*** - This 90-minute course is designed to teach people skills to safely intervene when witnessing public harassment.  Note - Registration is required.  Click [HERE](http://bethelsudbury.org/bystander-training/) for more info.  Congregation Beth El, 105 Hudson Rd, Sudbury, MA 01776.
+
+---
+
+## Think Local!
+
+### Please Support Littleton Library!
+
+Fellow Resistors, the Littleton Library has hosted numerous Indivisible and other Democratic events.  Let's help payback a little and support their annual fundraiser **Saturday Mar 22, 6-9p** and **Sunday, Mar 23, 10a-3p**.  Click [HERE](https://www.littletonma.org/reuben-hoar-library/news/library-mini-golf-tickets-now-available) for more info.
 
 ---
 
