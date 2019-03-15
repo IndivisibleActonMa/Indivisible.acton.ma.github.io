@@ -64,7 +64,7 @@ layout: page
 
 ### Please Support The Littleton Library!
 
-Fellow Resistors, the Littleton Library has hosted numerous Indivisible and other Democratic events.  Let's help payback a little and support their annual fundraiser **Saturday Mar 22, 6-9p** and **Sunday, Mar 23, 10a-3p**.  Click [HERE](https://www.littletonma.org/reuben-hoar-library/news/library-mini-golf-tickets-now-available) for more info.
+Fellow Resistors, the *Littleton Library* has hosted numerous Indivisible and other Democratic events.  Let's help payback a little and support their annual fundraiser **Saturday Mar 22, 6-9p** and **Sunday, Mar 23, 10a-3p**.  Click [HERE](https://www.littletonma.org/reuben-hoar-library/news/library-mini-golf-tickets-now-available) for more info.
 
 ---
 
