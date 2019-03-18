@@ -72,8 +72,10 @@ Fellow Resistors, the *Littleton Library* has hosted numerous Indivisible and ot
 
 ### Monday, Apr 8
 
-* **6:30-8:30p**, Acton: ***Indivisible Acton-Area General Meeting!***  Acton Memorial Library, 486 Main St, Acton.  
- 
+* **6:30-8:30p**, Acton: ***Indivisible Acton-Area General Meeting!***  Representatives *Tami Gouveia* and *Jon Hecht* will join us at Indivisible Acton's April 8 meeting to discuss the issues and events that led up to the disappointing vote on transparency that took place in January, and where we go from [here](https://www.masslive.com/news/2019/01/massachusetts-house-rejects-rules-meant-to-boost-transparency.html).  Acton Memorial Library, 486 Main St, Acton.
+
+
+Acton Memorial Library, 486 Main St, Acton.
 
 ### Sunday, Jun 2
 
