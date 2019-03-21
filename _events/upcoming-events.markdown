@@ -54,6 +54,11 @@ layout: page
 
 * **9-11a**, Chelmsford: ***Lori Trahan Town Hall*** - Come to Congresswoman Lori's first constituent town hall meeting! She will give an update on her work so far in Washington, and wants to hear from you on any questions or concerns you might have.  Click [HERE](https://www.facebook.com/events/1147531848759549/) for more info.  Parker Middle School Cafeteria at 75 Graniteville Road, Chelmsford.
 
+### Sunday, Mar 24
+
+* **1p**, Boston:  ***The Last Dream*** - A play to honor St. Romero that shows the life of children of parents with TPS. Click [HERE](https://www.facebook.com/events/354572362068476/?ti=ia) for more info.  
+
+
 ### Sunday, Mar 31
 
 * **2-4p**, Sudbury: ***Bystander Intervention Training*** - This 90-minute course is designed to teach people skills to safely intervene when witnessing public harassment.  Note - Registration is required.  Click [HERE](http://bethelsudbury.org/bystander-training/) for more info.  Congregation Beth El, 105 Hudson Rd, Sudbury, MA 01776.
