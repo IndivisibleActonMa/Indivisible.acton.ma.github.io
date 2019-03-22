@@ -13,7 +13,7 @@ Acton Memorial Library, First Floor Meeting Room, 486 Main St, Acton, MA 01720, 
 
 ### Monday, March 4
 
-### Monday, April 8
+### [Monday, April 8](/uploads/IMG_5D0D5377F08A-1-068de6.jpeg)
 
 ### Monday, May 13
 
