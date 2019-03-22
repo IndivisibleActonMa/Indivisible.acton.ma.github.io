@@ -12,6 +12,6 @@ Indivisible Acton's General Meeting will be **Monday, April 8 at the Acton Memor
 
 Social half hour starts at 6:30pm and the meeting starts at 7pm.
 
-Representatives *Tami Gouveia* and *Jon Hecht* will join us to discuss the issues and events that led up to the disappointing vote on transparency that took place in January, and where we go from [here](https://www.masslive.com/news/2019/01/massachusetts-house-rejects-rules-meant-to-boost-transparency.html).
+Representatives *Tami Gouveia* and *Jon Hecht* will join us to discuss the issues and events that led up to the [disappointing vote on transparency](https://www.masslive.com/news/2019/01/massachusetts-house-rejects-rules-meant-to-boost-transparency.html) that took place in January, and where we go from here.
 
 Look forward to seeing you!!
