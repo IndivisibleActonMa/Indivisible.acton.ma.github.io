@@ -26,7 +26,7 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 * Email your MA state legislators and **demand that they lead on immigrant rights and equity**. MIRA (MA Immigrant and Refugee Advocacy Coalition) has put together a [comprehensive list](https://mailchi.mp/miracoalition/action-alert-lets-build-momentum-for-our-2019-priority-bills?e=baa65bb0e1&link_id=16&can_id=9a7cc198611ac2a74f284fdda8e14f7e) of all of the bills that support immigration and refugee rights and has made it super easy to [email your legislators to support these bills](https://p2a.co/96apnIc?link_id=17&can_id=9a7cc198611ac2a74f284fdda8e14f7e).
 
 
-* Meet the candidates on the Acton Town Ballot! Hosted by the League ov Women on Saturday, March 16 , 1p at Conant School Cafeteria to meet all the candidates on the March 26 Acton Town ballot. This event will use a "speed dating format" so candidates can spend 10 minutes at each table for Q & A with voters. [Read the press release](https://drive.google.com/open?id=1Pa9gIRiM2FMH_NEDY1KTEeJ2CGJqy-yv).
+* **Acton Town Elections, 7a-8p** - Precincts 1, 2 and 6 – Conant School – 80 Taylor Road; Precincts 3, 4 and 5 – R. J. Grey Junior High School – 16 Charter Road. Click [HERE](https://www.acton-ma.gov/598/Elections) for more info.
 
 ### National
 
