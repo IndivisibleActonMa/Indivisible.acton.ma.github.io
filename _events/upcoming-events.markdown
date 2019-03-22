@@ -56,8 +56,7 @@ layout: page
 
 ### Sunday, Mar 24
 
-* **1p**, Boston:  ***The Last Dream*** - A play to honor St. Romero that shows the life of children of parents with TPS. Click [HERE](https://www.facebook.com/events/354572362068476/?ti=ia) for more info.  
-
+* **1p**, Boston:  ***The Last Dream*** - A play to honor St. Romero that shows the life of children of parents with TPS. Click [HERE](https://www.facebook.com/events/354572362068476/?ti=ia) for more info.
 
 ### Sunday, Mar 31
 
@@ -77,7 +76,7 @@ Fellow Resistors, the *Littleton Library* has hosted numerous Indivisible and ot
 
 ### Monday, Apr 8
 
-* **6:30-8:30p**, Acton: ***Indivisible Acton-Area General Meeting!***  Representatives *Tami Gouveia* and *Jon Hecht* will join us at Indivisible Acton's April 8 meeting to discuss the issues and events that led up to the disappointing vote on transparency that took place in January, and where we go from [here](https://www.masslive.com/news/2019/01/massachusetts-house-rejects-rules-meant-to-boost-transparency.html).  Acton Memorial Library, 486 Main St, Acton.  
+* **6:30-8:30p**, Acton: ***Indivisible Acton-Area General Meeting!***  Representatives *Tami Gouveia* and *Jon Hecht* will join us at [Indivisible Acton's April 8 meeting](https://docs.google.com/document/d/1ZLFkZM0gIvp2fpYjBiN1PE7vDV1zrWcj1IVDwwqF6bA) to discuss the issues and events that led up to the disappointing vote on transparency that took place in January, and where we go from [here](https://www.masslive.com/news/2019/01/massachusetts-house-rejects-rules-meant-to-boost-transparency.html).  Acton Memorial Library, 486 Main St, Acton.
 
 ### Sunday, Jun 2
 
