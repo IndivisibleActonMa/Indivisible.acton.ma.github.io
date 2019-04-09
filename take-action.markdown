@@ -20,8 +20,11 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
 ### Local/State
 
-
 * Email your MA state legislators and **demand that they lead on immigrant rights and equity**. MIRA (MA Immigrant and Refugee Advocacy Coalition) has put together a [comprehensive list](https://mailchi.mp/miracoalition/action-alert-lets-build-momentum-for-our-2019-priority-bills?e=baa65bb0e1&link_id=16&can_id=9a7cc198611ac2a74f284fdda8e14f7e) of all of the bills that support immigration and refugee rights and has made it super easy to [email your legislators to support these bills](https://p2a.co/96apnIc?link_id=17&can_id=9a7cc198611ac2a74f284fdda8e14f7e).
+
+
+* Let's thank Governor Baker for signing the bill which bars health care providers from conducting or promoting "sexual orientation and gender identity change efforts with a patient who is less than 18 years of age."  You can email him [HERE]( https://www.mass.gov/forms/email-the-governors-office) or call his Boston office  (617) 725-4005.
+
 
 
 ### National
