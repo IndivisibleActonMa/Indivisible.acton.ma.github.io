@@ -13,10 +13,13 @@ Any questions or concerns should be directed to the membership coordinator Chris
 
 ---
 
-Click [here](https://www.wbur.org/news/2018/11/06/massachusetts-town-by-town-election-results) to see how MA voted by town.
+Want to know how your Representatives and State Senators voted?  Or see the journals of House and Senate Sessions?  Here's where you can find their journals:
 
-Thank you to everyone for all their hard work - canvassing, phone banking, texting, writing postcards, marching, rallying, writing to their Congressional Representatives, talking to your family, friends and neighbors!!  Grass roots efforts can really make a difference!!
+* [House Journals](https://malegislature.gov/Journal/House)
 
----
+* [Senate Journals](https://malegislature.gov/Journal/Senate)
 
-Click [here](http://www.indivisibleacton.org/2018-ma-state-primary.html) for information about how you can contact our representatives.
+Remember - Grass roots efforts can really make a difference!!  Talk to your family, friends and neighbors!  Call your Representatives and Senators and let them know if you like how they're voting and how you're being represented.
+
+
+Click [HERE](http://www.indivisibleacton.org/2018-ma-state-primary.html) for information about how you can contact our representatives.
