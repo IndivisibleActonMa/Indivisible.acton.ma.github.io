@@ -42,6 +42,10 @@ layout: page
 
 * **6-8p**, Boston: ***The Great Climate Race: Climate impacts are accelerating*** - Are solutions keeping pace? Come join EDF (Environmental Defense Fund) to talk about how EDF and others are developing larger, bolder, more aggressive solutions to our environmental challenge of our time. Hampshire House - 84 Beacon Street, Boston.  RSVP by April 9th to rsvp@edf.org (free event).
 
+### Thursday, Apr 18
+
+* **6:30-9p**, Boston: ***Sunrise Movement Boston: Launching the Green New Deal Tour*** - Let’s stand with and cheer for the young people of the Sunrise Movement Boston at this exciting launch event of their Green New Deal tour. The tour will be providing opportunities to speak out urgently for the Green New Deal, to form alliances with local leaders, and to mobilize citizens and decision makers to take action toward a clean, just future. Speakers will include Senator Ed Markey and Representative Ayanna Pressley, as well as community leaders. Strand Theater, 543 Columbia Road, Boston, MA 02125.  Tickets available [HERE](https://actionnetwork.org/events/boston-launching-the-green-new-deal-tour-2).
+
 ---
 
 ## Save the Date!
