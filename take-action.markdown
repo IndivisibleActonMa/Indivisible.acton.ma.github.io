@@ -26,9 +26,9 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 * **Defend women's reproductive rights!**  Please contact your MA State Senators and ask them to support [S.1209](https://malegislature.gov/Bills/191/SD109).  Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors) for more info.
 
 
-* House lawmakers on Wednesday overrode Governor Baker's veto of a bill repealing a welfare benefit cap that restricts the amount of assistance provided to families that have additional children when they are already receiving aid. An override vote is planned for April 25 in the Senate, which approved the bill on a 37-1 vote in late March.  **Thank your representative, and encourage your state senator to vote to override.**.
+* On Wednesday, Apr 10, House lawmakers  overrode Governor Baker's veto of a [bill](https://malegislature.gov/Bills/191/H3594) repealing a welfare benefit cap that restricts the amount of assistance provided to families that have additional children when they are already receiving aid. An override vote is planned for April 25 in the Senate, which approved the bill on a 37-1 vote in late March.  **Thank your representative, and encourage your state senator to vote to override.**.
 
-  *Find your legislators [HERE](https://malegislature.gov/Search/FindMyLegislator)*.  
+  *Find your legislators [HERE](https://malegislature.gov/Search/FindMyLegislator)*.
 
 
 * Let's thank Governor Baker for signing the bill which bars health care providers from conducting or promoting "sexual orientation and gender identity change efforts with a patient who is less than 18 years of age."  You can email him [HERE](https://www.mass.gov/forms/email-the-governors-office) or call his Boston office  (617) 725-4005.
