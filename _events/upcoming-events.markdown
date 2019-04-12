@@ -36,7 +36,11 @@ layout: page
 
 ### Tuesday, Apr 16
 
-* **1p**, Burlington: ***Jericho Walk*** - Jericho Walk is a silent interfaith prayer and act of solidarity. The walk draws inspiration from the Battle of Jericho, in which the community marched around the city of Jericho seven times, causing the city walls to fall.  1000 District Ave, Burlington, MA
+* **11:30a-12:30p**, Boston: ***Support TPS Alliance*** - The [TPS Alliance](https://www.nationaltpsalliance.org/) is holding a press conference on the steps of the State House on Tuesday morning to release the report on the impact of TPS residents on the US economy. *Please come and support our neighbors as they fight for their right to stay in their homes and raise their families in peace.* 24 Beacon St, Boston, MA 02133. Click [HERE](https://www.facebook.com/events/335371007331445/?notif_t=event_calendar_create&notif_id=1555014681699881) for more info.  
+
+
+* **1p**, Burlington: ***Jericho Walk*** - Jericho Walk is a silent interfaith prayer and act of solidarity. The walk draws inspiration from the Battle of Jericho, in which the community marched around the city of Jericho seven times, causing the city walls to fall.  1000 District Ave, Burlington, MA. 
+
 
 ### Wednesday, Apr 17
 
