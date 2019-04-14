@@ -72,7 +72,9 @@ Become a member of [Indivisible Acton-Area on Facebook](https://www.facebook.com
 
 ### Representantives
 
-Need to communicate with your Representatives?  Click [here](http://www.indivisibleacton.org/2018-ma-state-primary.html) for contact info, and other tools for contacting your officials!
+* Need to communicate with your Representatives?  Click [here](http://www.indivisibleacton.org/2018-ma-state-primary.html) for contact info, and other tools for contacting your officials!
+
+* [Helpful tips](https://docs.google.com/document/d/1vKG49nreg_Y2_xr2dzYfwcPF4KOFvGRoX6caxWKrMUQ/)  to writing/emailing your representatives.
 
 ---
 
