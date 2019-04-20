@@ -36,11 +36,10 @@ layout: page
 
 ### Tuesday, Apr 16
 
-* **11:30a-12:30p**, Boston: ***Support TPS Alliance*** - The [TPS Alliance](https://www.nationaltpsalliance.org/) is holding a press conference on the steps of the State House on Tuesday morning to release the report on the impact of TPS residents on the US economy. *Please come and support our neighbors as they fight for their right to stay in their homes and raise their families in peace.* 24 Beacon St, Boston, MA 02133. Click [HERE](https://www.facebook.com/events/335371007331445/?notif_t=event_calendar_create&notif_id=1555014681699881) for more info.  
+* **11:30a-12:30p**, Boston: ***Support TPS Alliance*** - The [TPS Alliance](https://www.nationaltpsalliance.org/) is holding a press conference on the steps of the State House on Tuesday morning to release the report on the impact of TPS residents on the US economy. *Please come and support our neighbors as they fight for their right to stay in their homes and raise their families in peace.* 24 Beacon St, Boston, MA 02133. Click [HERE](https://www.facebook.com/events/335371007331445/?notif_t=event_calendar_create&notif_id=1555014681699881) for more info.
 
 
-* **1p**, Burlington: ***Jericho Walk*** - Jericho Walk is a silent interfaith prayer and act of solidarity. The walk draws inspiration from the Battle of Jericho, in which the community marched around the city of Jericho seven times, causing the city walls to fall.  1000 District Ave, Burlington, MA. 
-
+* **1p**, Burlington: ***Jericho Walk*** - Jericho Walk is a silent interfaith prayer and act of solidarity. The walk draws inspiration from the Battle of Jericho, in which the community marched around the city of Jericho seven times, causing the city walls to fall.  1000 District Ave, Burlington, MA.
 
 ### Wednesday, Apr 17
 
@@ -48,7 +47,12 @@ layout: page
 
 ### Thursday, Apr 18
 
-* **6:30-9p**, Boston: ***Sunrise Movement Boston: Launching the Green New Deal Tour*** - Let’s stand with and cheer for the young people of the Sunrise Movement Boston at this exciting launch event of their Green New Deal tour. The tour will be providing opportunities to speak out urgently for the Green New Deal, to form alliances with local leaders, and to mobilize citizens and decision makers to take action toward a clean, just future. Speakers will include Senator Ed Markey and Representative Ayanna Pressley, as well as community leaders. Strand Theater, 543 Columbia Road, Boston, MA 02125.  Tickets available [HERE](https://actionnetwork.org/events/boston-launching-the-green-new-deal-tour-2).  
+* **6:30-9p**, Boston: ***Sunrise Movement Boston: Launching the Green New Deal Tour*** - Let’s stand with and cheer for the young people of the Sunrise Movement Boston at this exciting launch event of their Green New Deal tour. The tour will be providing opportunities to speak out urgently for the Green New Deal, to form alliances with local leaders, and to mobilize citizens and decision makers to take action toward a clean, just future. Speakers will include Senator Ed Markey and Representative Ayanna Pressley, as well as community leaders. Strand Theater, 543 Columbia Road, Boston, MA 02125.  Tickets available [HERE](https://actionnetwork.org/events/boston-launching-the-green-new-deal-tour-2).
+
+### Friday, Apr 26
+
+* **6:30-9p**, Concord: *** A Sunrise Town Hall On The Green New Deal With Representative Lori Trahan*** -  It will include a discussion with Rep. Lori Trahan; calls to action from a local panel of young climate activists; and information about the Sunrise Movement’s nationwide campaign to make the Green New Deal a legislative reality. Click [HERE](bit.ly/2v1ySXa) to register.  First Parish, 20 Lexington Rd, Concord, MA
+
 
 ### Tuesday, Apr 30
 
