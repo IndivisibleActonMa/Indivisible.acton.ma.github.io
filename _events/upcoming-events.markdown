@@ -51,7 +51,12 @@ layout: page
 
 ### Friday, Apr 26
 
-* **6:30-9p**, Concord: *** A Sunrise Town Hall On The Green New Deal With Representative Lori Trahan*** -  It will include a discussion with Rep. Lori Trahan; calls to action from a local panel of young climate activists; and information about the Sunrise Movement’s nationwide campaign to make the Green New Deal a legislative reality. Click [HERE](bit.ly/2v1ySXa) to register.  First Parish, 20 Lexington Rd, Concord, MA
+* **6:30-9p**, Concord: ***A Sunrise Town Hall On The Green New Deal With Representative Lori Trahan*** -  It will include a discussion with Rep. Lori Trahan; calls to action from a local panel of young climate activists; and information about the Sunrise Movement’s nationwide campaign to make the Green New Deal a legislative reality. Click [HERE](bit.ly/2v1ySXa) to register.  First Parish, 20 Lexington Rd, Concord, MA
+
+### Sunday, Apr 28
+
+* **10a**, Boston: ***The Last Dream*** - Join Temple Israel of Boston's Tikkun Olam Day (Repair the World Day) and hear true stories from Boston Immigrants from countries like Haiti, El Salvador, and Sudan.
+The Last Dream has performed at Boston University, Harvard Ed Portal, and Traveled to D.C. to perform for Congress, The National TPS Convention, and at Imagination Stage as part of the fight for TPS families. Click [HERE](https://www.eventbrite.com/e/the-last-dream-tickets-59799036528) to register and for more info.  
 
 
 ### Tuesday, Apr 30
