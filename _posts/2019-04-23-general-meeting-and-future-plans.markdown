@@ -1,6 +1,6 @@
 ---
 title: May General Meeting!
-date: 2019-01-26 08:25:00 -05:00
+date: 2019-04-23 08:25:00 -04:00
 published: false
 is featured: true
 main-image: "/uploads/IMG_7892%202.jpg"
