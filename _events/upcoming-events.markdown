@@ -72,6 +72,11 @@ layout: page
 
 ## Save the Date!
 
+### Monday, May 13
+
+* **6:30-8:30p**, Acton: ***May General Meeting!***  Representative Jen Benson is our featured Guest Speaker! She is going to talk to us about H.2810, An Act to Promote Green Infrastructure and Reduction of Carbon Emissions. Please come and be part of the discussion!  Click [HERE](https://docs.google.com/document/d/1-9GxuTCYZmSotPPzStLssoH6AjZdbccoMfSlanplVd8/) for more info.
+
+
 ### Sunday, Jun 2
 
 * Still looking for team members for the JUNE 2 **AIDS walk**. Last week to sign up and waive the $15 registration fee. Sign up [here](https://u1584542.ct.sendgrid.net/mpss/c/JwE/ni0YAA/t.2p9/PM14XI-8RKWdFnI7JcP-Yw/h5/Vk58CdpjXfDev4xd8DLn5a4A180qbcUQ2TMObz0vy-2BAmq-2FHpfNxqR0YJsMg44xPyeJZpTD3p-2Bhcu68Fl3cWXGkynS62hub2SDOT-2FOrHciIqMkmQEXxe7ucF85HeIyLqzLZNImbkr0G-2Fym9uRH4Q6SSp70YwJsXkfyqUQBZSr23k0OHv7xd41vNI79E5ToZWaszCpSpUsNYVKEIa0m7hNPS-2FHh6kOi1RLEIUVvgBUbIYy01aG3CL-2FjtGM5XT-2Bsk2Q-2B9I1gf-2FVK8ukZ32ZRfEfqzk2-2Bjhu1rubmbNf1HwAmXsBJ34NKOsZshnJZNV-2BF9JVlyfqK4wWwiY2lLKIXF2yoY5HesEMLQpz3LfZYw5-2BPmXohHJOHwLvlXUbCpUqXzayu6ei2mP1iCipiOnL2nA4YDNsIXr-2BiGApye-2FPstZYisGu0eUWGq6ByOzWdXdgSTRhzKh5GHi5qA-2FW5teKYqtc2w-3D-3D). Reach out to Christine at [christine@indivisibleacton.org](mailto:christine@indivisibleacton.org) with any questions.
