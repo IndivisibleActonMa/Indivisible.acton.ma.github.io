@@ -2,7 +2,7 @@
 title: May General Meeting!
 date: 2019-04-23 08:25:00 -04:00
 is featured: true
-main-image: "/uploads/Screen%20Shot%202019-04-25%20at%2011.54.31%20PM-2f2daa.png"
+main-image: https://docs.google.com/document/d/1-9GxuTCYZmSotPPzStLssoH6AjZdbccoMfSlanplVd8/
 event-start-date: 2019-05-13 18:30:00 -04:00
 event-end-date: 2019-05-13 20:30:00 -04:00
 Location: Acton Memorial Library 486 Main St., Acton, MA 01720
