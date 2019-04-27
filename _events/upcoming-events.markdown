@@ -74,7 +74,7 @@ layout: page
 
 * **7p**, Lexington: ***Movie: Symphony of the Soil*** - Public event by [Lexington Global Warming Action Coalition](http://lexgwac.org). Click [HERE](http://lexgwac.org/?p=2303) for more info.  Cary Memorial Library, 1874 Massachusetts Ave, Lexington, MA.  
 
-* **7-9p**, North Chelmsford: ***2nd Annual Social Justice One Community Read** - Hosted by Congregation Shalom's Social Action & Justice Committee.  Click [HERE](https://drive.google.com/file/d/1qHx9BCyRsXkLaM82NiPktH0JHC24ymuC/view) for more info.  Congregation Shalom, 87 Richardson Rd, North Chelmsford, MA.
+* **7-9p**, North Chelmsford: ***2nd Annual Social Justice One Community Read*** - Hosted by Congregation Shalom's Social Action & Justice Committee.  Click [HERE](https://drive.google.com/file/d/1qHx9BCyRsXkLaM82NiPktH0JHC24ymuC/view) for more info.  Congregation Shalom, 87 Richardson Rd, North Chelmsford, MA.
 
 ---
 
