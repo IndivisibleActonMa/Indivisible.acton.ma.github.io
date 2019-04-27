@@ -64,6 +64,12 @@ layout: page
 * **10a**, Boston: ***The Last Dream*** - Join Temple Israel of Boston's Tikkun Olam Day (Repair the World Day) and hear true stories from Boston Immigrants from countries like Haiti, El Salvador, and Sudan.
   The Last Dream has performed at Boston University, Harvard Ed Portal, and Traveled to D.C. to perform for Congress, The National TPS Convention, and at Imagination Stage as part of the fight for TPS families. Click [HERE](https://www.eventbrite.com/e/the-last-dream-tickets-59799036528) to register and for more info.
 
+
+### Monday, Apr 29
+
+* **7-9p**, Concord: ***The Next Fight for Democracy*** - Lawrence Lessig, Professor of Law and Director of the Center on Ethics at Harvard University, will present his ideas on how to unify America and reclaim our democracy at First Parish in Concord, 20 Lexington Road.  Click [HERE](https://patch.com/massachusetts/concord/calendar/event/20190429/547206/lawrence-lessig-speaks-the-next-fight-for-democracy) for more info.  
+
+
 ### Tuesday, Apr 30
 
 * **7p**, Lexington: ***Movie: Symphony of the Soil*** - Public event by [Lexington Global Warming Action Coalition](http://lexgwac.org). Click [HERE](http://lexgwac.org/?p=2303) for more info.  Cary Memorial Library, 1874 Massachusetts Ave, Lexington, MA.
