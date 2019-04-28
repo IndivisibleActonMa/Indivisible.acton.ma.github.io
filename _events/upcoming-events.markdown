@@ -64,6 +64,7 @@ layout: page
 * **10a**, Boston: ***The Last Dream*** - Join Temple Israel of Boston's Tikkun Olam Day (Repair the World Day) and hear true stories from Boston Immigrants from countries like Haiti, El Salvador, and Sudan.
   The Last Dream has performed at Boston University, Harvard Ed Portal, and Traveled to D.C. to perform for Congress, The National TPS Convention, and at Imagination Stage as part of the fight for TPS families. Click [HERE](https://www.eventbrite.com/e/the-last-dream-tickets-59799036528) to register and for more info.
 
+* **11:30a-12:30p**, Concord: ***Sunday Forum - Healthcare with Phil Villers*** Come hear and talk about the issues and consequences we face in health care under this administration with someone who has been working on health care reform since 1981. Click [HERE](https://www.facebook.com/photo.php?fbid=2695691413780949&set=a.544041698945942&type=1&theater) for more info.  
 
 ### Monday, Apr 29
 
