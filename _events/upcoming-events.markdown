@@ -18,72 +18,40 @@ layout: page
 
 ## Some Events to Consider
 
-### Thursday, Apr 4
+### Saturday, May 4
 
-* **5p** : ***National Day Of Action*** - Let's demand AG William Barr **#ReleaseTheReport**.  Click [HERE](https://www.trumpisnotabovethelaw.org/event/mueller-firing-rapid-response/search/?source=homepage) to find an event near you.
+* **10a-12p**, Acton:  ***Indivisible Acton Area Meet-Up at Bagels Plus upstairs.*** We are supporting the Sister District 'Get Out the Vote' campaign in Virginia. Please join us!   
 
-### Saturday, April 6
+### Saturday, May 10
 
-* **10a-12p**, Acton:  ***Indivisible Acton Area Meet-Up at Bagels Plus upstairs.*** Activists will have a choice of supporting the Sister District 'Get Out the Vote' campaign in Virginia, phone-banking for Ranked Choice Voting(bring your laptop), and writing 'Healthcare For All' messages to be hand delivered to MOC in DC. Lot's of fun for everyone!
+* **7-9p** : ***[I Now Pronounce You Lucy Stone](https://drive.google.com/file/d/1W70va_6WJdY_4SNrGeVKyAFqzDCxtSDD/view)*** - In her one-woman play, Judith Kalaora powerfully portrays this fierce abolitionist, human rights advocate and suffragist.  $10 at the door. For planning purposes please RSVP at pekindc@comcast.net  
 
-### Monday, Apr 8
+### Sunday, May 12
 
-* **6:30-8:30p**, Acton: ***Indivisible Acton-Area General Meeting!***  Representatives *Tami Gouveia* and *Jon Hecht* will join us at [Indivisible Acton's April 8 meeting](https://docs.google.com/document/d/1ZLFkZM0gIvp2fpYjBiN1PE7vDV1zrWcj1IVDwwqF6bA) to discuss the issues and events that led up to the [disappointing vote on transparency](https://www.masslive.com/news/2019/01/massachusetts-house-rejects-rules-meant-to-boost-transparency.html) that took place in January, and where we go from here.  Acton Memorial Library, 486 Main St, Acton.
+* **12-2p**, Maynard: ***[Rally to End Child Separation and Detention](https://mothersdayrally.com)*** Come rally in solidarity with us for all immigrant families who have been ripped apart.  Veterans Memorial Park, Maynard, MA.  
 
-### Wednesday, Apr 10
+### Monday, May 13
 
-* **7-8:30p**, Maynard: ***Where's My Health Care - A Forum to Change Our Health Insurance*** Hosted by Ayer DTC and Three Rivers Affinity Groups.  Click [HERE](https://www.facebook.com/events/258742528339328/) for more info and to get tickets (free).  Maynard Public Library, 77 Nason St, Maynard, MA 01754
+* **6:30-8:45p**, Acton: ***[Indivisible Acton-Area General Meeting](https://docs.google.com/document/d/1-9GxuTCYZmSotPPzStLssoH6AjZdbccoMfSlanplVd8/view)!***  *Representative Jennifer Benson* will discuss *H.2810: An Act to Promote Green Infrastructure and Reduce Carbon Emissions* followed by an introduction to [Mothers Out Front](https://www.mothersoutfront.org/?fbclid=IwAR0yTe_rdWP0yS8r20O6gqxQf_OnRzXBp1LepfxOitRljVrdEy6bbK1F6Y4).  Please join us to learn more and be part of the discussion! Acton Memorial Library, 486 Main St, Acton.
 
-### Tuesday, Apr 16
 
-* **11:30a-12:30p**, Boston: ***Support TPS Alliance*** - The [TPS Alliance](https://www.nationaltpsalliance.org/) is holding a press conference on the steps of the State House on Tuesday morning to release the report on the impact of TPS residents on the US economy. *Please come and support our neighbors as they fight for their right to stay in their homes and raise their families in peace.* 24 Beacon St, Boston, MA 02133. Click [HERE](https://www.facebook.com/events/335371007331445/?notif_t=event_calendar_create&notif_id=1555014681699881) for more info.
+### Saturday, May 18
 
+* **6:30-8:30p**, North Chelmsford: ***[Chocolate Lovers' Night - Benefit for Justice for Our Neighbors](http://www.wcumc.us/ChocolateLoversNight)*** - All proceeds go to Justice For Our Neighbors (JFON).  Featuring the Live Stones Band!
+West Chelmsford United Methodist Church, 242 Main St., North Chelmsford, MA
+
+### Sunday, May 19
+
+* **2-6p**, Acton: *** Schindler's List (25th Anniversary)*** - Schindler's List survivor Rena Finder will speak after the film.  AB Regional High School.  Click [HERE](https://www.bethelohim.org/event/schindlers_list) for more info.
+
+
+### Tuesday, May 21
 
 * **1p**, Burlington: ***Jericho Walk*** - Jericho Walk is a silent interfaith prayer and act of solidarity. The walk draws inspiration from the Battle of Jericho, in which the community marched around the city of Jericho seven times, causing the city walls to fall.  1000 District Ave, Burlington, MA.
-
-### Wednesday, Apr 17
-
-* **6-8p**, Boston: ***The Great Climate Race: Climate impacts are accelerating*** - Are solutions keeping pace? Come join EDF (Environmental Defense Fund) to talk about how EDF and others are developing larger, bolder, more aggressive solutions to our environmental challenge of our time. Hampshire House - 84 Beacon Street, Boston.  RSVP by April 9th to rsvp@edf.org (free event).
-
-### Thursday, Apr 18
-
-* **6:30-9p**, Boston: ***Sunrise Movement Boston: Launching the Green New Deal Tour*** - Let’s stand with and cheer for the young people of the Sunrise Movement Boston at this exciting launch event of their Green New Deal tour. The tour will be providing opportunities to speak out urgently for the Green New Deal, to form alliances with local leaders, and to mobilize citizens and decision makers to take action toward a clean, just future. Speakers will include Senator Ed Markey and Representative Ayanna Pressley, as well as community leaders. Strand Theater, 543 Columbia Road, Boston, MA 02125.  Tickets available [HERE](https://actionnetwork.org/events/boston-launching-the-green-new-deal-tour-2).
-
-### Friday, Apr 26
-
-* **6:30-9p**, Concord: ***A Sunrise Town Hall On The Green New Deal With Representative Lori Trahan*** -  It will include a discussion with Rep. Lori Trahan; calls to action from a local panel of young climate activists; and information about the Sunrise Movement’s nationwide campaign to make the Green New Deal a legislative reality. Click [HERE](bit.ly/2v1ySXa) to register.  First Parish, 20 Lexington Rd, Concord, MA. 
-
-
-### Saturday, Apr 27
-
-* **2:30-5:30p**, Littleton: ***Reversing Inequality - What Is the Path Forward?*** - Click [HERE](https://www.fculittle.org/events/reversing-inequality-what-is-the-path-forward/) for more info.  Sponsored by [First Church Unitarian, Littleton](www.fculittle.org).  Suggested donation: $10.
-
-
-### Sunday, Apr 28
-
-* **10a**, Boston: ***The Last Dream*** - Join Temple Israel of Boston's Tikkun Olam Day (Repair the World Day) and hear true stories from Boston Immigrants from countries like Haiti, El Salvador, and Sudan.
-  The Last Dream has performed at Boston University, Harvard Ed Portal, and Traveled to D.C. to perform for Congress, The National TPS Convention, and at Imagination Stage as part of the fight for TPS families. Click [HERE](https://www.eventbrite.com/e/the-last-dream-tickets-59799036528) to register and for more info.
-
-* **11:30a-12:30p**, Concord: ***Sunday Forum - Healthcare with Phil Villers*** Come hear and talk about the issues and consequences we face in health care under this administration with someone who has been working on health care reform since 1981. Click [HERE](https://www.facebook.com/photo.php?fbid=2695691413780949&set=a.544041698945942&type=1&theater) for more info.  First Parish in the Sanctuary,  20 Lexington Road, Concord, MA.  
-
-### Monday, Apr 29
-
-* **7-9p**, Concord: ***The Next Fight for Democracy*** - Lawrence Lessig, Professor of Law and Director of the Center on Ethics at Harvard University, will present his ideas on how to unify America and reclaim our democracy at First Parish in Concord, 20 Lexington Road.  Click [HERE](https://patch.com/massachusetts/concord/calendar/event/20190429/547206/lawrence-lessig-speaks-the-next-fight-for-democracy) for more info.  
-
-
-### Tuesday, Apr 30
-
-* **7p**, Lexington: ***Movie: Symphony of the Soil*** - Public event by [Lexington Global Warming Action Coalition](http://lexgwac.org). Click [HERE](http://lexgwac.org/?p=2303) for more info.  Cary Memorial Library, 1874 Massachusetts Ave, Lexington, MA.  
-
-* **7-9p**, North Chelmsford: ***2nd Annual Social Justice One Community Read - Rising Out of Hatred*** - Hosted by Congregation Shalom's Social Action & Justice Committee.  Click [HERE](https://drive.google.com/file/d/1qHx9BCyRsXkLaM82NiPktH0JHC24ymuC/view) for more info.  Congregation Shalom, 87 Richardson Rd, North Chelmsford, MA.
 
 ---
 
 ## Save the Date!
-
-### Monday, May 13
-
-* **6:30-8:30p**, Acton: ***May General Meeting!***  Representative Jen Benson is our featured Guest Speaker! She is going to talk to us about H.2810, An Act to Promote Green Infrastructure and Reduction of Carbon Emissions. Please come and be part of the discussion!  Click [HERE](https://docs.google.com/document/d/1-9GxuTCYZmSotPPzStLssoH6AjZdbccoMfSlanplVd8/) for more info.
 
 
 ### Sunday, Jun 2
