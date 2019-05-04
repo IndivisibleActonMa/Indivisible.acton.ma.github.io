@@ -34,6 +34,9 @@ layout: page
 
 * **6:30-8:45p**, Acton: ***[Indivisible Acton-Area General Meeting](https://docs.google.com/document/d/1-9GxuTCYZmSotPPzStLssoH6AjZdbccoMfSlanplVd8/view)!***  *Representative Jennifer Benson* will discuss *H.2810: An Act to Promote Green Infrastructure and Reduce Carbon Emissions* followed by an introduction to [Mothers Out Front](https://www.mothersoutfront.org/?fbclid=IwAR0yTe_rdWP0yS8r20O6gqxQf_OnRzXBp1LepfxOitRljVrdEy6bbK1F6Y4).  Please join us to learn more and be part of the discussion! Acton Memorial Library, 486 Main St, Acton.
 
+### Tuesday, May 14
+
+* **6:30-8:30p**, Littleton: ***Postcarding and Text-Banking*** - Join us to write postcards or bring your laptop for text-banking!  Small Meeting Room, Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA  
 
 ### Saturday, May 18
 
