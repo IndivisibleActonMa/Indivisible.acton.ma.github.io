@@ -1,6 +1,6 @@
 ---
 title: Take Action!
-date: 2018-01-17 10:41:00 -05:00
+date: 2019-05-06 10:41:00 -04:00
 layout: page
 ---
 
@@ -25,15 +25,9 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
 * **Defend women's reproductive rights!**  Please contact your MA State Senators and ask them to support [S.1209](https://malegislature.gov/Bills/191/SD109).  Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors) for more info.
 
-
-* On Wednesday, Apr 10, House lawmakers  overrode Governor Baker's veto of a [bill](https://malegislature.gov/Bills/191/H3594) repealing a welfare benefit cap that restricts the amount of assistance provided to families that have additional children when they are already receiving aid. An override vote is planned for April 25 in the Senate, which approved the bill on a 37-1 vote in late March.  **Thank your representative, and encourage your state senator to vote to override.**.
-
-  *Find your legislators [HERE](https://malegislature.gov/Search/FindMyLegislator).  Click [HERE](https://docs.google.com/document/d/1vKG49nreg_Y2_xr2dzYfwcPF4KOFvGRoX6caxWKrMUQ/) for helpful tips on writing to your Reps.*  
-
-
-* Let's thank Governor Baker for signing the bill which bars health care providers from conducting or promoting "sexual orientation and gender identity change efforts with a patient who is less than 18 years of age."  You can email him [HERE](https://www.mass.gov/forms/email-the-governors-office) or call his Boston office  (617) 725-4005.
-
 ### National
+
+* Take the [Indivisible Unity Pledge](http://pledge.indivisible.org): For ideas.  For change.  For unity.  To win.  
 
 * Call your Democratic MoC today and tell them: **vote “yes” on an addendum to the House Rules for the 116th Congress to establish the Select Committee For A Green New Deal**. If they are already supporting the Green New Deal, thank them. Click [here](https://act.indivisible.org/call/green-new-deal/?link_id=21&can_id=9a7cc198611ac2a74f284fdda8e14f7e) to be connected.
 
