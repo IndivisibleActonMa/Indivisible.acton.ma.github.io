@@ -27,7 +27,11 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
 ### National
 
-* Take the [Indivisible Unity Pledge](http://pledge.indivisible.org): For ideas.  For change.  For unity.  To win.  
+* Take the [Indivisible Unity Pledge](http://pledge.indivisible.org): The pledge is that no matter our differences in the primary, once Democrats have a nominee, we’ll do everything in our power to get the nominee elected.  Click [HERE](https://www.youtube.com/watch?v=HojK7c7X3WE&link_id=18&can_id=9a7cc198611ac2a74f284fdda8e14f7e&source=email-2019-5-7-indivisible-acton-weekly-newsletter&email_referrer=email_540613&email_subject=2019-5-7-indivisible-acton-weekly-newsletter) to watch a clip about the Pledge on Rachel Maddow.  
+
+
+* Call your Members of Congress and explain that you object to imposing asylum application fees on people fleeing persecution and danger. Not only is this amoral and inhumane, the American Immigration Lawyers Association says the president’s plan “contradicts international law” and still “fails to ensure orderly processing.” Ask your MOCs are doing to stop the president’s asylum fee and instead heal the root causes of life-threatening conditions in Guatemala, Honduras, and El Salvador? (H/T Americans of Conscience Checklist).  
+
 
 * Call your Democratic MoC today and tell them: **vote “yes” on an addendum to the House Rules for the 116th Congress to establish the Select Committee For A Green New Deal**. If they are already supporting the Green New Deal, thank them. Click [here](https://act.indivisible.org/call/green-new-deal/?link_id=21&can_id=9a7cc198611ac2a74f284fdda8e14f7e) to be connected.
 
