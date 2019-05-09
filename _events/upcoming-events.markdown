@@ -52,6 +52,10 @@ West Chelmsford United Methodist Church, 242 Main St., North Chelmsford, MA
 
 * **1p**, Burlington: ***Jericho Walk*** - Jericho Walk is a silent interfaith prayer and act of solidarity. The walk draws inspiration from the Battle of Jericho, in which the community marched around the city of Jericho seven times, causing the city walls to fall.  1000 District Ave, Burlington, MA.
 
+* **5-8p**, Boston:  ***Women's Advocacy Day at the MA State House*** - Description: Hosted by [Center for Women in Politics & Public Policy](https://www.facebook.com/cwppp/?eid=ARAm37TO5bfy_EueCNG-sL88fQPRsF0fSLW41nit_tmjXNys3oDgOEoWUs7EuwwJ5FyFu0Ig2m4G1LiK).  
+
+Click [HERE](https://www.facebook.com/events/2808716699352519/) for more info.
+
 ---
 
 ## Save the Date!
