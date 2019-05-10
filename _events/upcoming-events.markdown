@@ -63,6 +63,14 @@ West Chelmsford United Methodist Church, 242 Main St., North Chelmsford, MA
 
 * Still looking for team members for the JUNE 2 **AIDS walk**. Last week to sign up and waive the $15 registration fee. Sign up [here](https://u1584542.ct.sendgrid.net/mpss/c/JwE/ni0YAA/t.2p9/PM14XI-8RKWdFnI7JcP-Yw/h5/Vk58CdpjXfDev4xd8DLn5a4A180qbcUQ2TMObz0vy-2BAmq-2FHpfNxqR0YJsMg44xPyeJZpTD3p-2Bhcu68Fl3cWXGkynS62hub2SDOT-2FOrHciIqMkmQEXxe7ucF85HeIyLqzLZNImbkr0G-2Fym9uRH4Q6SSp70YwJsXkfyqUQBZSr23k0OHv7xd41vNI79E5ToZWaszCpSpUsNYVKEIa0m7hNPS-2FHh6kOi1RLEIUVvgBUbIYy01aG3CL-2FjtGM5XT-2Bsk2Q-2B9I1gf-2FVK8ukZ32ZRfEfqzk2-2Bjhu1rubmbNf1HwAmXsBJ34NKOsZshnJZNV-2BF9JVlyfqK4wWwiY2lLKIXF2yoY5HesEMLQpz3LfZYw5-2BPmXohHJOHwLvlXUbCpUqXzayu6ei2mP1iCipiOnL2nA4YDNsIXr-2BiGApye-2FPstZYisGu0eUWGq6ByOzWdXdgSTRhzKh5GHi5qA-2FW5teKYqtc2w-3D-3D). Reach out to Christine at [christine@indivisibleacton.org](mailto:christine@indivisibleacton.org) with any questions.
 
+### June 5
+
+* **10am-2m**, Boston: ***Election Day Registration Lobby Day*** - Every election Massachusetts disenfranchises hundreds of thousands of its own citizens by not offering EDR. 2 out of 3 of those affected by not having EDR are simply updating their registration and or fixing errors. Now in 20 states and with a 40 year proven record, EDR has made it possible for millions to cast their ballot. Join us on June 5th to take the next great step in voting rights for Massachusetts! Message Christine if you want to carpool. Click [HERE](https://www.facebook.com/events/1196665137177251/) for more info.
+
+### June 10
+
+* **6:30-8:45p**, Acton: ***Indivisible Acton Area General Meeting*** will feature an eye witness account of immigration on the southern border presented by *Rabbi Mike* from Congregation Beth Elohim and the founders of Dignity in Asylum will help us understand how we can get involved and offer protection to those seeking asylum in our community. **Please save the date!**
+
 ---
 
 Click [HERE](http://www.indivisibleacton.org/take-action.html) for other ways to take action.
