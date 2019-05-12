@@ -16,9 +16,12 @@ Representative *Jen Benson* is our featured Guest Speaker!  She is going to talk
 **What is H2810? H.2810**: An Act to Promote Green Infrastructure and Reduce Carbon Emissions
 
 \(Rep. Benson)\
-This bill would establish a direct carbon price on transportation and home heating fuels to fund significant green municipal investment while providing additional assistance to individuals and employers in the form of rebates.
-This bill would:
-● Set aside 30% of the proceeds ($400-600 million annually) for a Green Infrastructure Bank to fund local and regional emission-reducing projects. 40% of this money would be targeted specifically for low-income communities, and ensuring that all projects funded by the GIF would meet Fair Labor Standards.
+This bill would establish a direct carbon price on transportation and home heating fuels to fund significant green municipal investment while providing additional assistance to individuals and employers in the form of rebates.  
+
+This bill would:  
+
+● Set aside 30% of the proceeds ($400-600 million annually) for a Green Infrastructure Bank to fund local and regional emission-reducing projects. 40% of this money would be targeted specifically for low-income communities, and ensuring that all projects funded by the GIF would meet Fair Labor Standards.  
+
 ● Return the remaining 70% of the money to individuals and employers in the form of income-based rebates to guard against regressive impacts on low and middle income residents such as delivering rebates twice a year before the heating and cooling season.
 
 Look forward to seeing you!!
