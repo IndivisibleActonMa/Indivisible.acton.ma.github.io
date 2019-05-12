@@ -15,7 +15,7 @@ Representative *Jen Benson* is our featured Guest Speaker!  She is going to talk
 
 **What is H2810? H.2810**: An Act to Promote Green Infrastructure and Reduce Carbon Emissions
 
-\(Rep. Benson)\
+(Rep. Benson)
 This bill would establish a direct carbon price on transportation and home heating fuels to fund significant green municipal investment while providing additional assistance to individuals and employers in the form of rebates.  
 
 This bill would:  
