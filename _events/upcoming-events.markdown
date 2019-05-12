@@ -27,8 +27,7 @@ layout: page
 * **7-9p** : ***[I Now Pronounce You Lucy Stone](https://drive.google.com/file/d/1W70va_6WJdY_4SNrGeVKyAFqzDCxtSDD/view)*** - In her one-woman play, Judith Kalaora powerfully portrays this fierce abolitionist, human rights advocate and suffragist.  $10 at the door. For planning purposes please RSVP at pekindc@comcast.net  
 
 ### Sunday, May 12
-
-* **12-2p**, Maynard: ***[Rally to End Child Separation and Detention](https://mothersdayrally.com)*** Come rally in solidarity with us for all immigrant families who have been ripped apart.  Veterans Memorial Park, Maynard, MA.  
+  
 
 ### Monday, May 13
 
