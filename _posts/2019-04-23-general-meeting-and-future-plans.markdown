@@ -1,6 +1,7 @@
 ---
 title: May General Meeting!
 date: 2019-04-23 08:25:00 -04:00
+published: false
 is featured: true
 event-start-date: 2019-05-13 18:30:00 -04:00
 event-end-date: 2019-05-13 20:30:00 -04:00
