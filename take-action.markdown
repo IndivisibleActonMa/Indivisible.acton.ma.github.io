@@ -20,6 +20,8 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
 ### Local/State
 
+* **Contact your state lawmakers about the ROE Act.** Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors?fbclid=IwAR3q0MsBefpFWEW9kq8vl7sAzzeRyE0iTAZDauZjxpP9ocIvGDyvEDc_CLQ) to find out where your Representatives stand.  
+
 * Email your MA state legislators and **demand that they lead on immigrant rights and equity**. MIRA (MA Immigrant and Refugee Advocacy Coalition) has put together a [comprehensive list](https://mailchi.mp/miracoalition/action-alert-lets-build-momentum-for-our-2019-priority-bills?e=baa65bb0e1&link_id=16&can_id=9a7cc198611ac2a74f284fdda8e14f7e) of all of the bills that support immigration and refugee rights and has made it super easy to [email your legislators to support these bills](https://p2a.co/96apnIc?link_id=17&can_id=9a7cc198611ac2a74f284fdda8e14f7e).
 
 
@@ -27,10 +29,10 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
 ### National
 
-* Take the [Indivisible Unity Pledge](http://pledge.indivisible.org): The pledge is that no matter our differences in the primary, once Democrats have a nominee, we’ll do everything in our power to get the nominee elected.  Click [HERE](https://www.youtube.com/watch?v=HojK7c7X3WE&link_id=18&can_id=9a7cc198611ac2a74f284fdda8e14f7e&source=email-2019-5-7-indivisible-acton-weekly-newsletter&email_referrer=email_540613&email_subject=2019-5-7-indivisible-acton-weekly-newsletter) to watch a clip about the Pledge on Rachel Maddow.  
+* Take the [Indivisible Unity Pledge](http://pledge.indivisible.org): The pledge is that no matter our differences in the primary, once Democrats have a nominee, we’ll do everything in our power to get the nominee elected.  Click [HERE](https://www.youtube.com/watch?v=HojK7c7X3WE&link_id=18&can_id=9a7cc198611ac2a74f284fdda8e14f7e&source=email-2019-5-7-indivisible-acton-weekly-newsletter&email_referrer=email_540613&email_subject=2019-5-7-indivisible-acton-weekly-newsletter) to watch a clip about the Pledge on Rachel Maddow.
 
 
-* Call your Members of Congress and explain that you object to imposing asylum application fees on people fleeing persecution and danger. Not only is this amoral and inhumane, the American Immigration Lawyers Association says the president’s plan “contradicts international law” and still “fails to ensure orderly processing.” Ask your MOCs are doing to stop the president’s asylum fee and instead heal the root causes of life-threatening conditions in Guatemala, Honduras, and El Salvador? (H/T Americans of Conscience Checklist).  
+* Call your Members of Congress and explain that you object to imposing asylum application fees on people fleeing persecution and danger. Not only is this amoral and inhumane, the American Immigration Lawyers Association says the president’s plan “contradicts international law” and still “fails to ensure orderly processing.” Ask your MOCs are doing to stop the president’s asylum fee and instead heal the root causes of life-threatening conditions in Guatemala, Honduras, and El Salvador? (H/T Americans of Conscience Checklist).
 
 
 * Call your Democratic MoC today and tell them: **vote “yes” on an addendum to the House Rules for the 116th Congress to establish the Select Committee For A Green New Deal**. If they are already supporting the Green New Deal, thank them. Click [here](https://act.indivisible.org/call/green-new-deal/?link_id=21&can_id=9a7cc198611ac2a74f284fdda8e14f7e) to be connected.
@@ -74,10 +76,9 @@ Become a member of [Indivisible Acton-Area on Facebook](https://www.facebook.com
 
 * [Helpful tips](https://docs.google.com/document/d/1vKG49nreg_Y2_xr2dzYfwcPF4KOFvGRoX6caxWKrMUQ/)  to writing/emailing your representatives.
 
-
 ### State Legislature - Bills & Laws
 
-* Click [HERE](https://malegislature.gov/Bills/Search) to search for a specific legislation, for legislation sponsored by a particular legislator, by Senate, by House, external group, type of legislation and more!  
+* Click [HERE](https://malegislature.gov/Bills/Search) to search for a specific legislation, for legislation sponsored by a particular legislator, by Senate, by House, external group, type of legislation and more!
 
 ---
 
