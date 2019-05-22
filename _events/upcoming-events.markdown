@@ -53,6 +53,10 @@ West Chelmsford United Methodist Church, 242 Main St., North Chelmsford, MA
 
 * **5-8p**, Boston:  ***Women's Advocacy Day at the MA State House*** - Hosted by [Center for Women in Politics & Public Policy](https://www.facebook.com/cwppp/?eid=ARAm37TO5bfy_EueCNG-sL88fQPRsF0fSLW41nit_tmjXNys3oDgOEoWUs7EuwwJ5FyFu0Ig2m4G1LiK).  Click [HERE](https://www.facebook.com/events/2808716699352519/) for more info.
 
+### Wednesday, May 22
+
+* **7:30-9:30p**, Lexington: ***An Evening With Preet Bharara*** - Click [HERE](https://www.caryhalllexington.com/events/2019/5/22/preet-bharara) to buy tickets and for more info. Cary Hall, 1605 Mass Ave, Lexington.  
+
 ---
 
 ## Save the Date!
