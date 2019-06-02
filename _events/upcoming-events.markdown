@@ -18,61 +18,49 @@ layout: page
 
 ## Some Events to Consider
 
-### Saturday, May 4
+### Saturday, Jun 1
 
-* **10a-12p**, Acton:  ***Indivisible Acton Area Meet-Up at Bagels Plus upstairs.*** We are supporting the Sister District 'Get Out the Vote' campaign in Virginia. Please join us!   
+* **10a-12p**, Acton:  ***Indivisible Acton Area Meet-Up at Bagels Plus upstairs.*** We are supporting the Sister District 'Get Out the Vote' campaign in Virginia. Please join us!
 
-### Saturday, May 10
+### Monday, Jun 3
 
-* **7-9p** : ***[I Now Pronounce You Lucy Stone](https://drive.google.com/file/d/1W70va_6WJdY_4SNrGeVKyAFqzDCxtSDD/view)*** - In her one-woman play, Judith Kalaora powerfully portrays this fierce abolitionist, human rights advocate and suffragist.  $10 at the door. For planning purposes please RSVP at pekindc@comcast.net  
+* **10:45a-12:15p**, Acton: ***Constituent Meeting with Rep. Tami Gouveia on Climate Policy*** Please gather informally on first floor of Library at 10:45a.  Rep Gouveia will be meeting with constituents who are a part of [Sierra Club Massachusetts Chapter](https://www.sierraclub.org/massachusetts) & [350Mass Metrowest Node](https://350massmetrowest.org) and other groups to update them on state environmental policy and discuss how residents can be involved. Come join in on the discussion!
 
-### Sunday, May 12
-  
+### Tuesday, Jun 4
 
-### Monday, May 13
+* **11:30a-1p**, Boston: ***Safe Communities Lobby Day*** - When immigrant rights are under attack, what do we do?  Stand up, fight back!  We will be meeting in conference room 109.  Please note the change in time to 11:45am. The Safe Communities Act ([S.1401](https://malegislature.gov/Bills/191/S1401)/[H.3573](https://malegislature.gov/Bills/191/H3573)) will create a stronger Commonwealth by protecting immigrants' rights and keeping law enforcement focused on public safety.  Join us for an exciting lobby day to push our legislators forward on this bill.  Click [HERE](https://docs.google.com/forms/d/1hNdAxPyAA6T-EzTMhMMwVmJ37V4qS80vHvagxM3daW4/viewform?edit_requested=true) for more info.  State House, Boston, MA
 
-* **6:30-8:45p**, Acton: ***[Indivisible Acton-Area General Meeting](https://docs.google.com/document/d/1-9GxuTCYZmSotPPzStLssoH6AjZdbccoMfSlanplVd8/view)!***  *Representative Jennifer Benson* will discuss *H.2810: An Act to Promote Green Infrastructure and Reduce Carbon Emissions* followed by an introduction to [Mothers Out Front](https://www.mothersoutfront.org/?fbclid=IwAR0yTe_rdWP0yS8r20O6gqxQf_OnRzXBp1LepfxOitRljVrdEy6bbK1F6Y4).  Please join us to learn more and be part of the discussion! Acton Memorial Library, 486 Main St, Acton.
+### Wednesday, Jun 5
 
-### Tuesday, May 14
+* **10a-2p**, Boston: ***Election Day Registration Lobby Day*** Join us to bring Election Day Registration (EDR) to MA!  Click [HERE](https://docs.google.com/forms/d/e/1FAIpQLSdDLpqXS24NtJ6udb_STIfy2asgl_xgLEIlePd2fzSJE5QVVg/viewform?fbclid=IwAR2Tk3m33jkkYGUOdZhesUhJDHsfMA3-Rl-ilpGXiDfZwAFy0-35KOiknTY) for more info.  State House, Boston, MA
 
-* **6:30-8:30p**, Littleton: ***Postcarding and Text-Banking*** - Join us to write postcards or bring your laptop for text-banking!  Small Meeting Room, Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA  
+### Monday, Jun 10
 
-### Saturday, May 18
+* **6:30-8:45p**, Acton: ***[Indivisible Acton-Area General Meeting](https://docs.google.com/document/d/1yiFzNcpnOJzhjZLhGBMBvC2MXcQfuWuUlHZ1G5fCk4g/view)!***  *Rabbi Mike Rothbaum* is our guest speaker followed by an introduction to [Dignity in Asylum](https://www.dignityinasylum.org).  Please join us to learn more and be part of the discussion! Acton Memorial Library, 486 Main St, Acton.
 
-* **6:30-8:30p**, North Chelmsford: ***[Chocolate Lovers' Night - Benefit for Justice for Our Neighbors](http://www.wcumc.us/ChocolateLoversNight)*** - All proceeds go to Justice For Our Neighbors (JFON).  Featuring the Live Stones Band!
-West Chelmsford United Methodist Church, 242 Main St., North Chelmsford, MA
+### Tuesday, Jun 11
 
-### Sunday, May 19
+* **6:30-8:30p**, Littleton: ***Postcarding and RCV phone-banking*** - Join us to write postcards or help spread the word for Rank Choice Voting!  Couper Room, Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA
 
-* **2-6p**, Acton: *** Schindler's List (25th Anniversary)*** - Schindler's List survivor Rena Finder will speak after the film.  AB Regional High School.  Click [HERE](https://www.bethelohim.org/event/schindlers_list) for more info.
+### Saturday, Jun 15
 
+* **10-11a**, Acton: ***Rep. Lori Trahan Town Meeting*** - Damon Building (McCarthy-Towne and Merriam Schools), 11 Charter Rd, Acton, MA.  You can contact Congresswoman Trahan or her staff at the district office in Lowell:  978-459-0101
 
-### Tuesday, May 21
+* **10a-12p**, Acton:  ***Indivisible Acton Area Meet-Up at Bagels Plus upstairs.  ***
 
-* **1p**, Burlington: ***Jericho Walk*** - Jericho Walk is a silent interfaith prayer and act of solidarity. The walk draws inspiration from the Battle of Jericho, in which the community marched around the city of Jericho seven times, causing the city walls to fall.  1000 District Ave, Burlington, MA.
+### Tuesday, Jun 25
 
-* **5-8p**, Boston:  ***Women's Advocacy Day at the MA State House*** - Hosted by [Center for Women in Politics & Public Policy](https://www.facebook.com/cwppp/?eid=ARAm37TO5bfy_EueCNG-sL88fQPRsF0fSLW41nit_tmjXNys3oDgOEoWUs7EuwwJ5FyFu0Ig2m4G1LiK).  Click [HERE](https://www.facebook.com/events/2808716699352519/) for more info.
+* **6:30-8:30p**, Littleton: ***Postcarding and text-banking*** - Join us to write postcards or text-banking!  Small Meeting room, Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA
 
-### Wednesday, May 22
+### Wednesday, Jun 26
 
-* **7:30-9:30p**, Lexington: ***An Evening With Preet Bharara*** - Click [HERE](https://www.caryhalllexington.com/events/2019/5/22/preet-bharara) to buy tickets and for more info. Cary Hall, 1605 Mass Ave, Lexington.  
+* **8-10p**, Acton: ***Democratic Debate Watch Party*** - Join *Indivisible Acton Area* to watch the Democratic Presidential Debates! Just for fun, we will practice doing Ranked Choice Voting for the candidates participating in that night's debate. Appetizers provided/cash bar.  RSVP [HERE](https://indivisibleactonwednesdaydebateparty.eventbrite.com/).
+
+### Thursday, Jun 27
+
+* **8-10p**, Acton: ***Democratic Debate Watch Party*** - Join *Indivisible Acton Area* to watch the Democratic Presidential Debates! Just for fun, we will practice doing Ranked Choice Voting for the candidates participating in that night's debate. Appetizers provided/cash bar.  RSVP [HERE](https://www.eventbrite.com/e/thursday-debate-watch-party-tickets-62508413347).
 
 ---
-
-## Save the Date!
-
-
-### Sunday, Jun 2
-
-* Still looking for team members for the JUNE 2 **AIDS walk**. Last week to sign up and waive the $15 registration fee. Sign up [here](https://u1584542.ct.sendgrid.net/mpss/c/JwE/ni0YAA/t.2p9/PM14XI-8RKWdFnI7JcP-Yw/h5/Vk58CdpjXfDev4xd8DLn5a4A180qbcUQ2TMObz0vy-2BAmq-2FHpfNxqR0YJsMg44xPyeJZpTD3p-2Bhcu68Fl3cWXGkynS62hub2SDOT-2FOrHciIqMkmQEXxe7ucF85HeIyLqzLZNImbkr0G-2Fym9uRH4Q6SSp70YwJsXkfyqUQBZSr23k0OHv7xd41vNI79E5ToZWaszCpSpUsNYVKEIa0m7hNPS-2FHh6kOi1RLEIUVvgBUbIYy01aG3CL-2FjtGM5XT-2Bsk2Q-2B9I1gf-2FVK8ukZ32ZRfEfqzk2-2Bjhu1rubmbNf1HwAmXsBJ34NKOsZshnJZNV-2BF9JVlyfqK4wWwiY2lLKIXF2yoY5HesEMLQpz3LfZYw5-2BPmXohHJOHwLvlXUbCpUqXzayu6ei2mP1iCipiOnL2nA4YDNsIXr-2BiGApye-2FPstZYisGu0eUWGq6ByOzWdXdgSTRhzKh5GHi5qA-2FW5teKYqtc2w-3D-3D). Reach out to Christine at [christine@indivisibleacton.org](mailto:christine@indivisibleacton.org) with any questions.
-
-### June 5
-
-* **10am-2m**, Boston: ***Election Day Registration Lobby Day*** - Every election Massachusetts disenfranchises hundreds of thousands of its own citizens by not offering EDR. 2 out of 3 of those affected by not having EDR are simply updating their registration and or fixing errors. Now in 20 states and with a 40 year proven record, EDR has made it possible for millions to cast their ballot. Join us on June 5th to take the next great step in voting rights for Massachusetts! Message Christine if you want to carpool. Click [HERE](https://www.facebook.com/events/1196665137177251/) for more info.
-
-### June 10
-
-* **6:30-8:45p**, Acton: ***Indivisible Acton Area General Meeting*** will feature an eye witness account of immigration on the southern border presented by *Rabbi Mike* from Congregation Beth Elohim and the founders of Dignity in Asylum will help us understand how we can get involved and offer protection to those seeking asylum in our community. **Please save the date!**
 
 ---
 
