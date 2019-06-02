@@ -24,7 +24,7 @@ layout: page
 
 ### Monday, Jun 3
 
-* **10:45a-12:15p**, Acton: ***Constituent Meeting with Rep. Tami Gouveia on Climate Policy*** Please gather informally on first floor of Library at 10:45a.  Rep Gouveia will be meeting with constituents who are a part of [Sierra Club Massachusetts Chapter](https://www.sierraclub.org/massachusetts) & [350Mass Metrowest Node](https://350massmetrowest.org) and other groups to update them on state environmental policy and discuss how residents can be involved. Come join in on the discussion!
+* **10:45a-12:15p**, Acton: ***Constituent Meeting with Rep. Tami Gouveia on Climate Policy*** Please gather informally on first floor of Library at 10:45a.  Rep Gouveia will be meeting with constituents who are a part of [Sierra Club Massachusetts Chapter](https://www.sierraclub.org/massachusetts) & [350Mass Metrowest Node](https://350massmetrowest.org) and other groups to update them on state environmental policy and discuss how residents can be involved. Come join in on the discussion!  To RSVP or for further info: Fran Cummings <fcummings@gmail.com> or Joan Entwistle <joan.entwistle@gmail.com>  
 
 ### Tuesday, Jun 4
 
