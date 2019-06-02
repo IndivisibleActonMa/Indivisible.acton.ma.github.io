@@ -24,7 +24,7 @@ layout: page
 
 ### Monday, Jun 3
 
-* **10:45a-12:15p**, Acton: ***Constituent Meeting with Rep. Tami Gouveia on Climate Policy*** Please gather informally on first floor of Library at 10:45a.  Rep Gouveia will be meeting with constituents who are a part of [Sierra Club Massachusetts Chapter](https://www.sierraclub.org/massachusetts) & [350Mass Metrowest Node](https://350massmetrowest.org) and other groups to update them on state environmental policy and discuss how residents can be involved. Come join in on the discussion!  To RSVP or for further info: Fran Cummings <fcummings@gmail.com> or Joan Entwistle <joan.entwistle@gmail.com>  
+* **10:45a-12:15p**, Acton: ***Constituent Meeting with Rep. Tami Gouveia on Climate Policy*** Please gather informally on first floor of Library at 10:45a.  Rep Gouveia will be meeting with constituents who are a part of [Sierra Club Massachusetts Chapter](https://www.sierraclub.org/massachusetts) & [350Mass Metrowest Node](https://350massmetrowest.org) and other groups to update them on state environmental policy and discuss how residents can be involved. Come join in on the discussion!  To RSVP or for further info: Fran Cummings [fcummings@gmail.com](mailto:fcummings@gmail.com) or Joan Entwistle [joan.entwistle@gmail.com](mailto:joan.entwistle@gmail.com)
 
 ### Tuesday, Jun 4
 
@@ -33,6 +33,10 @@ layout: page
 ### Wednesday, Jun 5
 
 * **10a-2p**, Boston: ***Election Day Registration Lobby Day*** Join us to bring Election Day Registration (EDR) to MA!  Click [HERE](https://docs.google.com/forms/d/e/1FAIpQLSdDLpqXS24NtJ6udb_STIfy2asgl_xgLEIlePd2fzSJE5QVVg/viewform?fbclid=IwAR2Tk3m33jkkYGUOdZhesUhJDHsfMA3-Rl-ilpGXiDfZwAFy0-35KOiknTY) for more info.  State House, Boston, MA
+
+### Saturday, Jun 8
+
+* **11a-3:30p**, Boston:  ***March with Joe Kennedy and Swing Left at the Boston Pride Festival*** Click [HERE](https://actionnetwork.org/events/join-us-at-the-2019-boston-pride-festival-recruit-volunteers-to-register-voters-in-maine-at-portland-pride/) for more info.  
 
 ### Monday, Jun 10
 
@@ -46,7 +50,7 @@ layout: page
 
 * **10-11a**, Acton: ***Rep. Lori Trahan Town Meeting*** - Damon Building (McCarthy-Towne and Merriam Schools), 11 Charter Rd, Acton, MA.  You can contact Congresswoman Trahan or her staff at the district office in Lowell:  978-459-0101
 
-* **10a-12p**, Acton:  ***Indivisible Acton Area Meet-Up at Bagels Plus upstairs.  ***
+* **10a-12p**, Acton:  \*\*\*Indivisible Acton Area Meet-Up at Bagels Plus upstairs.  \*\*\*
 
 ### Tuesday, Jun 25
 
