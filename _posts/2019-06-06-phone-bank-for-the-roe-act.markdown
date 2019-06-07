@@ -13,4 +13,4 @@ Please bring your laptop and earbuds.
 
 Click [HERE](https://www.facebook.com/events/750548535361138/) for more info!
 
-*Then stay for the Indivisible Acton-Area General Meeting!!*
+***Then stay for the Indivisible Acton-Area General Meeting!!***
