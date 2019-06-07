@@ -38,7 +38,9 @@ layout: page
 
 * **11a-3:30p**, Boston:  ***March with Joe Kennedy and Swing Left at the Boston Pride Festival*** Click [HERE](https://actionnetwork.org/events/join-us-at-the-2019-boston-pride-festival-recruit-volunteers-to-register-voters-in-maine-at-portland-pride/) for more info.  
 
-### Monday, Jun 10
+### Monday, Jun 10  
+
+* **4:30-6:30p**, Acton: ***[Phone Bank for the ROE Act](http://www.indivisibleacton.org/2019/06/06/phone-bank-for-the-roe-act.html)*** - Click [HERE](https://www.facebook.com/events/750548535361138/) for more info.  Acton Memorial Library, 486 Main St, Acton.
 
 * **6:30-8:45p**, Acton: ***[Indivisible Acton-Area General Meeting](https://docs.google.com/document/d/1yiFzNcpnOJzhjZLhGBMBvC2MXcQfuWuUlHZ1G5fCk4g/view)!***  *Rabbi Mike Rothbaum* is our guest speaker followed by an introduction to [Dignity in Asylum](https://www.dignityinasylum.org).  Please join us to learn more and be part of the discussion! Acton Memorial Library, 486 Main St, Acton.
 
