@@ -24,7 +24,7 @@ layout: page
 
 ### Monday, Jun 3
 
-* **10:45a-12:15p**, Acton: ***Constituent Meeting with Rep. Tami Gouveia on Climate Policy*** Please gather informally on first floor of Library at 10:45a.  Rep Gouveia will be meeting with constituents who are a part of [Sierra Club Massachusetts Chapter](https://www.sierraclub.org/massachusetts) & [350Mass Metrowest Node](https://350massmetrowest.org) and other groups to update them on state environmental policy and discuss how residents can be involved. Come join in on the discussion!  To RSVP or for further info: Fran Cummings [fcummings@gmail.com](mailto:fcummings@gmail.com) or Joan Entwistle [joan.entwistle@gmail.com](mailto:joan.entwistle@gmail.com)
+* **10:45a-12:15p**, Acton: ***Constituent Meeting with Rep. Tami Gouveia on Climate Policy*** Please gather informally on first floor of Library at 10:45a.  Rep Gouveia will be meeting with constituents who are a part of [Sierra Club Massachusetts Chapter](https://www.sierraclub.org/massachusetts) & [350Mass Metrowest Node](https://350massmetrowest.org) and other groups to update them on state environmental policy and discuss how residents can be involved. Come join in on the discussion!  To RSVP or for further info: Fran Cummings [fcummings@gmail.com](mailto:fcummings@gmail.com) or Joan Entwistle [joan.entwistle@gmail.com](mailto:joan.entwistle@gmail.com)  
 
 ### Tuesday, Jun 4
 
@@ -42,7 +42,7 @@ layout: page
 
 * **4:30-6:30p**, Acton: ***[Phone Bank for the ROE Act](http://www.indivisibleacton.org/2019/06/06/phone-bank-for-the-roe-act.html)*** - Click [HERE](https://www.facebook.com/events/750548535361138/) for more info.  Acton Memorial Library, 486 Main St, Acton.
 
-* **6:30-8:45p**, Acton: ***[Indivisible Acton-Area General Meeting](https://docs.google.com/document/d/1yiFzNcpnOJzhjZLhGBMBvC2MXcQfuWuUlHZ1G5fCk4g/view)!***  *Rabbi Mike Rothbaum* is our guest speaker followed by an introduction to [Dignity in Asylum](https://www.dignityinasylum.org).  Please join us to learn more and be part of the discussion! Acton Memorial Library, 486 Main St, Acton.
+* **6:30-8:45p**, Acton: ***[Indivisible Acton-Area General Meeting](https://docs.google.com/document/d/1yiFzNcpnOJzhjZLhGBMBvC2MXcQfuWuUlHZ1G5fCk4g/view)!***  *Rabbi Mike Rothbaum* is our guest speaker followed by an introduction to [Dignity in Asylum](https://www.dignityinasylum.org).  Please join us to learn more and be part of the discussion! *If you can, we ask you to bring personal care items such as toothpaste, toothbrushes, deodorant, soap or shampoo and we’ll collect the items and hand them off to [Dignity in Asylum](https://www.dignityinasylum.org) for their clients.*  Acton Memorial Library, 486 Main St, Acton.
 
 ### Tuesday, Jun 11
 
