@@ -52,7 +52,7 @@ layout: page
 
 * **10-11a**, Acton: ***Rep. Lori Trahan Town Meeting*** - Damon Building (McCarthy-Towne and Merriam Schools), 11 Charter Rd, Acton, MA.  You can contact Congresswoman Trahan or her staff at the district office in Lowell:  978-459-0101
 
-* **10a-12p**, Acton:  \*\*\*Indivisible Acton Area Meet-Up at Bagels Plus upstairs.  \*\*\*
+* **10a-12p**, Acton:  ***Indivisible Acton Area Meet-Up at Bagels Plus upstairs.***
 
 ### Tuesday, Jun 25
 
