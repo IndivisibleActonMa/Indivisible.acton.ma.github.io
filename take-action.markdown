@@ -77,4 +77,12 @@ Become a member of [Indivisible Acton-Area on Facebook](https://www.facebook.com
 
 ---
 
+### Other resources
+
+* [Swing Left Greater Boston](https://swingleftboston.org)  
+* [Americans of Conscience](https://americansofconscience.com)  
+* [Rogan's List](http://roganslist.blogspot.com)
+
+---
+
 Click [here to Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
