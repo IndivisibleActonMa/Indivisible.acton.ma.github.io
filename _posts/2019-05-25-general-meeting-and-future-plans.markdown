@@ -1,6 +1,7 @@
 ---
 title: June General Meeting!
 date: 2019-05-25 08:25:00 -04:00
+published: false
 is featured: true
 event-start-date: 2019-06-10 18:30:00 -04:00
 event-end-date: 2019-06-10 20:30:00 -04:00
