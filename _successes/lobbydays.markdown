@@ -1,12 +1,14 @@
 ---
-title: Mailing of Ides of Trump Cards
-date: 2017-03-15 17:07:00 -04:00
+title: Election Day Registration Lobby Day
+date: 2019-06-17 00:07:00 -04:00
 published: false
-main-image: "/uploads/Ides.jpg"
+main-image: "/uploads/Image%20from%20iOS.jpg"
 layout: media-item
 ---
 
-[IdesPO.JPG](/uploads/IdesPO.JPG)
-Today, on the Ides of Trump, 13 delighted members of Indivisible Acton mailed 333 post cards to our 45th President asking him to lead this country with wisdom and telling him that we will fiercely resist his extreme and divisive agenda.
-![Ides5.jpg](/uploads/Ides5.jpg)![Ides4.jpg](/uploads/Ides4.jpg)![Ides3.jpg](/uploads/Ides3.jpg)![Ides2.jpg](/uploads/Ides2.jpg)
-Many cards were addressed to President Bannon, which may have helped his removal from the NSA Principals Committee. Estimates are that a million cards were sent.
+The best time to plant a tree is 20 years ago.  The second-best time is NOW.
+Lobby Days are fun and inspiring, but you can lobby anytime.
+1.      Letters
+2.      Emails
+3.      Calls
+4.      Visits to district offices
