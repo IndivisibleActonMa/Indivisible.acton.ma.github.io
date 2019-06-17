@@ -2,8 +2,6 @@
 title: Postcarding for Dan McCready
 date: 2019-06-17 08:20:00 -04:00
 is featured: true
-event-start-date: 2019-06-18 00:00:00 -04:00
-event-end-date: 2019-07-16 00:00:00 -04:00
 layout: post
 ---
 
