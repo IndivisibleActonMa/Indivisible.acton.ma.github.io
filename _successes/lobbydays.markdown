@@ -1,7 +1,6 @@
 ---
 title: Election Day Registration Lobby Day
 date: 2019-06-17 00:07:00 -04:00
-published: false
 main-image: "/uploads/Image%20from%20iOS.jpg"
 layout: media-item
 ---
