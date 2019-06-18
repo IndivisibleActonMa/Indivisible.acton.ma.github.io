@@ -1,6 +1,7 @@
 ---
 title: ROE Act Hearing
 date: 2019-06-16 20:53:00 -04:00
+published: false
 is featured: true
 event-start-date: 2019-06-17 12:00:00 -04:00
 event-end-date: 2019-06-17 20:00:00 -04:00
