@@ -9,7 +9,9 @@ event-end-date: 2021-06-01 00:00:00 -04:00
 
 **What you can do:**
 
-**You have until Friday June 21, 2019 to submit comments. **You have several options:
+**You have until Friday June 21, 2019 to submit comments**.   
+
+You have several options:  
 
 * Submit your comments online on the Office of Management and Budget’s [website form](https://www.regulations.gov/comment?D=OMB-2019-0002-0001). Note that on this website you do NOT have to provide your name or contact info, so if you want to talk about something personal anonymously, you can do that. You also have the option to submit a comment for someone else – you can tell the story of someone who needed government benefits to live, for example.
 
