@@ -72,7 +72,7 @@ layout: page
 
 ### Tuesday, Jun 25
 
-* **9a**, Boston: ***SAVE (Safety And Violence Education) Students Act Public Hearing*** - Join us at the MA State House to show support for violence prevention education.  Click [HERE](https://action.sandyhookpromise.org/images/Updated_SAVE_Students_Act_one-pager_(MA).pdf) for more information about SAVE.  RSVP [HERE](https://sandyhookpromise.wufoo.com/forms/m1vo0yxb0zfo52y/).  
+* **10a**, Boston: ***SAVE (Safety And Violence Education) Students Act Public Hearing*** - Join us at the MA State House to show support for violence prevention education.  Click [HERE](https://action.sandyhookpromise.org/images/Updated_SAVE_Students_Act_one-pager_(MA).pdf) for more information about SAVE.  RSVP [HERE](https://sandyhookpromise.wufoo.com/forms/m1vo0yxb0zfo52y/).  
 
 * **6:30-8:30p**, Littleton: ***Postcarding and text-banking*** - Join us to write postcards or text-banking!  Small Meeting room, Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA
 
