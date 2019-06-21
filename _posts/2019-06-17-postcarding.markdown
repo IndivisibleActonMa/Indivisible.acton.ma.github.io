@@ -13,6 +13,6 @@ For more info, contact Gari Palmer gari.palmer@gmail.com (Indivisible Concord) o
 
 Postcarding Dates:
 
-* Caffé Nero, Concord: 7-9p, Tuesdays - Jun 18, Jun 25, Jul 2, Jul 9, Jul 16.
+* Caffè Nero, Concord: 7-9p, Tuesdays - Jun 18, Jun 25, Jul 2, Jul 9, Jul 16.
 
 * Bagels Plus, Acton: 10-12p, Saturdays - Jun 22, Jun 29, Jul 13
