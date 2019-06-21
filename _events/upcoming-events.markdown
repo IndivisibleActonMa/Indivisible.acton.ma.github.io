@@ -66,6 +66,10 @@ layout: page
 
 * **1p**, Boston: ***ROE Act Hearing*** - The Joint Committee on the Judiciary will hear testimony on the ROE Act.  Click  [HERE](https://www.facebook.com/events/2385951021493164/) for more info. [RSVP here](bit.ly/roe-hearing).  MA State House, Gardner Auditorium, 24 Beacon St, Boston, MA.
 
+### Saturday, Jun 23
+
+* **10a-12p**, Acton: ***Postcarding for Dan McReady*** - Bagels Plus, Acton, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.  
+
 ### Tuesday, Jun 25
 
 * **9a**, Boston: ***SAVE (Safety And Violence Education) Students Act Public Hearing*** - Join us at the MA State House to show support for violence prevention education.  Click [HERE](https://action.sandyhookpromise.org/images/Updated_SAVE_Students_Act_one-pager_(MA).pdf) for more information about SAVE.  RSVP [HERE](https://sandyhookpromise.wufoo.com/forms/m1vo0yxb0zfo52y/).  
