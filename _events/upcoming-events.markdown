@@ -66,7 +66,7 @@ layout: page
 
 * **1p**, Boston: ***ROE Act Hearing*** - The Joint Committee on the Judiciary will hear testimony on the ROE Act.  Click  [HERE](https://www.facebook.com/events/2385951021493164/) for more info. [RSVP here](bit.ly/roe-hearing).  MA State House, Gardner Auditorium, 24 Beacon St, Boston, MA.
 
-### Saturday, Jun 23
+### Saturday, Jun 22
 
 * **10a-12p**, Acton: ***Postcarding for Dan McReady*** - Bagels Plus, Acton, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.  
 
@@ -85,7 +85,11 @@ layout: page
 
 ### Thursday, Jun 27
 
-* **8-10p**, Acton: ***Democratic Debate Watch Party*** - Join *Indivisible Acton Area* to watch the Democratic Presidential Debates! Just for fun, we will practice doing Ranked Choice Voting for the candidates participating in that night's debate. Appetizers provided/cash bar.  RSVP [HERE](https://www.eventbrite.com/e/thursday-debate-watch-party-tickets-62508413347).
+* **8-10p**, Acton: ***Democratic Debate Watch Party*** - Join *Indivisible Acton Area* to watch the Democratic Presidential Debates! Just for fun, we will practice doing Ranked Choice Voting for the candidates participating in that night's debate. Appetizers provided/cash bar.  RSVP [HERE](https://www.eventbrite.com/e/thursday-debate-watch-party-tickets-62508413347).  
+
+### Saturday, Jun 29
+
+* **10a-12p**, Acton: ***Postcarding for Dan McReady*** - Bagels Plus, Acton, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info. 
 
 ---
 
