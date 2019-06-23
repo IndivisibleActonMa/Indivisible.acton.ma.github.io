@@ -92,7 +92,7 @@ layout: page
 
 ### Sunday, Jun 30
 
-* **2-3p**, Boston: ***Show your support for those being held at the ICE Detention Center*** - For more information and to sign up, clic [HERE](https://docs.google.com/forms/d/e/1FAIpQLSdQals1YicEAHRqCWfJyecPaXI3itWp2O0rkDJ0WcpOwHImNg/viewform).  
+* **2-3p**, Boston: ***Show your support for those being held at the ICE Detention Center*** - For more information and to sign up, click [HERE](https://docs.google.com/forms/d/e/1FAIpQLSdQals1YicEAHRqCWfJyecPaXI3itWp2O0rkDJ0WcpOwHImNg/viewform).  
 
 ---
 
