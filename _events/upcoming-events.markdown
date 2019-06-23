@@ -68,16 +68,15 @@ layout: page
 
 ### Saturday, Jun 22
 
-* **10a-12p**, Acton: ***Postcarding for Dan McReady*** - Bagels Plus, Acton, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.  
+* **10a-12p**, Acton: ***Postcarding for Dan McReady*** - Bagels Plus, Acton, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.
 
 ### Tuesday, Jun 25
 
-* **10a**, Boston: ***SAVE (Safety And Violence Education) Students Act Public Hearing*** - Join us at the MA State House to show support for violence prevention education.  Click [HERE](https://action.sandyhookpromise.org/images/Updated_SAVE_Students_Act_one-pager_(MA).pdf) for more information about SAVE.  RSVP [HERE](https://sandyhookpromise.wufoo.com/forms/m1vo0yxb0zfo52y/).  
+* **10a**, Boston: ***SAVE (Safety And Violence Education) Students Act Public Hearing*** - Join us at the MA State House to show support for violence prevention education.  Click [HERE](https://action.sandyhookpromise.org/images/Updated_SAVE_Students_Act_one-pager_(MA).pdf) for more information about SAVE.  RSVP [HERE](https://sandyhookpromise.wufoo.com/forms/m1vo0yxb0zfo52y/).
 
-* ***NOTE - Tonight's postcarding at the Littleton Library is being combined with the working meet-up with Postcarding at Caffè  Nero, Concord, MA 7-9p (see below)***. 
+* ***NOTE - Tonight's postcarding at the Littleton Library is being combined with the working meet-up with Postcarding at Caffè  Nero, Concord, MA 7-9p (see below)***.
 
-* **7-9p**, Concord:  ***Postcarding for Dan McReady*** - Caffè  Nero, Concord, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.  
-
+* **7-9p**, Concord:  ***Postcarding for Dan McReady*** - Caffè  Nero, Concord, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.
 
 ### Wednesday, Jun 26
 
@@ -85,14 +84,17 @@ layout: page
 
 ### Thursday, Jun 27
 
-* **8-10p**, Acton: ***Democratic Debate Watch Party*** - Join *Indivisible Acton Area* to watch the Democratic Presidential Debates! Just for fun, we will practice doing Ranked Choice Voting for the candidates participating in that night's debate. Appetizers provided/cash bar.  RSVP [HERE](https://www.eventbrite.com/e/thursday-debate-watch-party-tickets-62508413347).  
+* **8-10p**, Acton: ***Democratic Debate Watch Party*** - Join *Indivisible Acton Area* to watch the Democratic Presidential Debates! Just for fun, we will practice doing Ranked Choice Voting for the candidates participating in that night's debate. Appetizers provided/cash bar.  RSVP [HERE](https://www.eventbrite.com/e/thursday-debate-watch-party-tickets-62508413347).
 
 ### Saturday, Jun 29
 
-* **10a-12p**, Acton: ***Postcarding for Dan McReady*** - Bagels Plus, Acton, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info. 
+* **10a-12p**, Acton: ***Postcarding for Dan McReady*** - Bagels Plus, Acton, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.  
+
+### Sunday, Jun 30
+
+* **2-3p**, Boston: ***Show your support for those being held at the ICE Detention Center*** - For more information and to sign up, clic [HERE](https://docs.google.com/forms/d/e/1FAIpQLSdQals1YicEAHRqCWfJyecPaXI3itWp2O0rkDJ0WcpOwHImNg/viewform).  
 
 ---
 
----
 
 Click [HERE](http://www.indivisibleacton.org/take-action.html) for other ways to take action.
