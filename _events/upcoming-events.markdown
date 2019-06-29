@@ -24,7 +24,7 @@ layout: page
 
 ### Sunday, Jun 30
 
-* **2-3p**, Boston: ***Show your support for those being held at the ICE Detention Center*** - For more information and to sign up, click [HERE](https://docs.google.com/forms/d/e/1FAIpQLSdQals1YicEAHRqCWfJyecPaXI3itWp2O0rkDJ0WcpOwHImNg/viewform).
+* **2-3p**, Boston: ***Show your support for those being held at the ICE Detention Center*** - Bring Colorful signs in English or Spanish (in large letters) to show your support for those behind bars. Please note this is hosted by [Massachusetts Communities Action Network](https://www.mcan.us/new-events?fbclid=IwAR2xvSEMa6zgRLpawv2NrGebkySYDek08ywtf4sY2iRG2c3WsVPEnuB1RYA). If you have any questions, please contact Janine: jcarreiro@mcan-pico.org.   
 
 ### Tuesday, Jul 2
 
@@ -43,15 +43,15 @@ layout: page
 
 ### Saturday, Jul  13
 
-* **10a-12p**, Acton: ***Postcarding for Dan McReady*** - Bagels Plus, Acton, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.  
+* **10a-12p**, Acton: ***Postcarding for Dan McReady*** - Bagels Plus, Acton, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.
 
 * **11a-3p**, Boston: ***March for Immigrant Lives*** - Help us connect with community and organization leaders on the ground to ensure that this is a community-led effort. Join us in a peaceful show of solidarity to reunite immigrant and migrant families.  Click \[[HERE](https://www.facebook.com/events/boston-massachusetts/march-for-immigrant-lives/629530030883431/)\] for more info.
 
 ### Tuesday, Jul 16
 
-* **11a-2p**, Boston:  ***Ranked Choice Voting Lobby Day*** - Gather with other electoral reform advocates and meet at the State House with legislators and representatives from across the state, urging them to support RCV! Meet with your own representatives and tell them that you want RCV in MA!  MA Statehouse Great Hall of Flags, 24 Beacon St, Boston, MA 02133.  
+* **11a-2p**, Boston:  ***Ranked Choice Voting Lobby Day*** - Gather with other electoral reform advocates and meet at the State House with legislators and representatives from across the state, urging them to support RCV! Meet with your own representatives and tell them that you want RCV in MA!  MA Statehouse Great Hall of Flags, 24 Beacon St, Boston, MA 02133.
 
-* **1p**, Burlington: ***Jericho walk*** at the ICE building 1000 District Ave., Burlington.  
+* **1p**, Burlington: ***Jericho walk*** at the ICE building 1000 District Ave., Burlington.
 
 * **7-9p**, Concord:  ***Postcarding for Dan McReady*** - Caffè  Nero, Concord, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.
 
