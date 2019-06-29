@@ -39,7 +39,7 @@ layout: page
 
 ### Friday, Jul 12
 
-* **6-8p**, Westford: \*\*\*Lights for Liberty - A Vigil to End Human Detention Camps - \*\*\*Attend this Lights for Liberty event to support an end to human detention camps and learn more about ways you can support the human rights of immigrants, children and adults being held in inhumane conditions at detention centers across the country. At 8pm a candle lit moment of silence will honor those who are suffering in detention and families who have been separated by current immigration policies. At 9pm you may light a candle in your window at home to join thousands across the nation. See [www.lightsforliberty.org](https://www.google.com/url?q=http://www.lightsforliberty.org&sa=D&usd=2&usg=AOvVaw2FKHKENuA7gh5t8CRZyEdq) to learn about or host an event near you. . #lights4liberty #dontlookaway #endusconcentrationcamps
+* **6-8p**, Westford: ***Lights for Liberty - A Vigil to End Human Detention Camps*** - Attend this Lights for Liberty event to support an end to human detention camps and learn more about ways you can support the human rights of immigrants, children and adults being held in inhumane conditions at detention centers across the country. At 8pm a candle lit moment of silence will honor those who are suffering in detention and families who have been separated by current immigration policies. At 9pm you may light a candle in your window at home to join thousands across the nation. See [www.lightsforliberty.org](https://www.google.com/url?q=http://www.lightsforliberty.org&sa=D&usd=2&usg=AOvVaw2FKHKENuA7gh5t8CRZyEdq) to learn about or host an event near you. . #lights4liberty #dontlookaway #endusconcentrationcamps
 
 ### Saturday, Jul  13
 
