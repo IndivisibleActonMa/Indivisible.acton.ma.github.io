@@ -91,6 +91,21 @@ date: 2019-01-05 15:08:00 -05:00
 
 * **Campaign Website**: [https://www.senatoreldridge.com/](https://www.senatoreldridge.com/)
 
+### State Senator Dean A. Tran, Middlesex and Worcester
+
+* **Website**:  [https://malegislature.gov/Legislators/Profile/dat0](https://malegislature.gov/Legislators/Profile/dat0) 
+
+* **Email**:  dean.tran@masenate.gov 
+
+* **Boston Office**: 617-722-1230  
+
+* **Fitchburg Office**: 978-829-1796  
+
+* **Twitter**: @SenatorDeanTran   
+
+* **Campaign Website**:  [http://www.deantran.com](http://www.deantran.com)
+
+
 ### State Representative Jennifer Benson, 37th Middlesex
 
 * **Website**: [https://malegislature.gov/Legislators/Profile/JEB1](https://malegislature.gov/Legislators/Profile/JEB1)
