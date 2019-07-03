@@ -5,19 +5,16 @@ date: 2019-01-05 15:08:00 -05:00
 
 ### US Senator Elizabeth Warren
 
-* **Email**:  [https://www.warren.senate.gov/contact](https://www.warren.senate.gov/contact)\
+* **Email**:  [https://www.warren.senate.gov/contact](https://www.warren.senate.gov/contact)  
   [https://www.warren.senate.gov/contact/shareyouropinion](https://www.warren.senate.gov/contact/shareyouropinion)
 
 * **Website**: [https://www.warren.senate.gov](https://www.warren.senate.gov)
 
-* **Boston Office**: 2400 JFK Federal Building, 15 New Sudbury Street, Boston, MA 02203\
-  *Phone*: 617-565-3170
+* **Boston Office**: 2400 JFK Federal Building, 15 New Sudbury Street, Boston, MA 02203. *Phone*: 617-565-3170
 
-* **Springfield Office**: 1550 Main Street, Suite 406, Springfield, MA 01103\
-  *Phone*: 413-788-2690
+* **Springfield Office**: 1550 Main Street, Suite 406, Springfield, MA 01103. *Phone*: 413-788-2690
 
-* **DC Office**: 317 Hart Senate Office Building, Washington, DC 20510\
-  *Phone*: 202-224-4543
+* **DC Office**: 317 Hart Senate Office Building, Washington, DC 20510.  *Phone*: 202-224-4543
 
 * **Campaign Website**: [http://www.elizabethwarren.com](http://www.elizabethwarren.com)
 
@@ -37,16 +34,14 @@ date: 2019-01-05 15:08:00 -05:00
 
 * **Website**: [https://www.markey.senate.gov](https://www.markey.senate.gov)
 
-* **Boston Office**: 975 JFK Federal Building, 15 New Sudbury Street, Boston, MA 02203\
-  *Phone*: 617-565-8519
+* **Boston Office**: 975 JFK Federal Building, 15 New Sudbury Street, Boston, MA 02203  *Phone*: 617-565-8519
 
-* **Springfield Office**: 1550 Main Street, 4th Floor, Springfield, MA 01101\
-  *Phone*: 413-785-4610
+* **Springfield Office**: 1550 Main Street, 4th Floor, Springfield, MA 01101.  *Phone*: 413-785-4610
 
-* **Fall River Office**: 222 Milliken Boulevard, Suite 312, Fall River, MA 02721\
+* **Fall River Office**: 222 Milliken Boulevard, Suite 312, Fall River, MA 02721. 
   *Phone*: 508-677-0523
 
-* **DC Office**: 255 Dirksen Senate Office Building, Washington, D.C. 20510\
+* **DC Office**: 255 Dirksen Senate Office Building, Washington, D.C. 20510. 
   *Phone*: 202-224-2742
 
 * **Facebook**:  [https://www.facebook.com/EdJMarkey](https://www.facebook.com/EdJMarkey)
@@ -65,10 +60,10 @@ date: 2019-01-05 15:08:00 -05:00
 
 * **Email**: [https://trahan.house.gov/contact/email-me](https://trahan.house.gov/contact/)
 
-* **Lowell Office**: 126 John Street, Lowell, MA 01852\
+* **Lowell Office**: 126 John Street, Lowell, MA 01852. 
   *Phone*: 978-459-0101
 
-* **DC Office**: 1616 Longworth HOB, Washington, DC 20515-2103\
+* **DC Office**: 1616 Longworth HOB, Washington, DC 20515-2103. 
   *Phone*: 202-225-3411
 
 * **Twitter**:  [@RepLoriTrahan](https://twitter.com/RepLoriTrahan)
@@ -110,7 +105,7 @@ date: 2019-01-05 15:08:00 -05:00
 
 * **Website**: [https://malegislature.gov/Legislators/Profile/JEB1](https://malegislature.gov/Legislators/Profile/JEB1)
 
-* **Email**: Jennifer.Benson@MAHouse.gov.
+* **Email**: Jennifer.Benson@MAHouse.gov 
 
 * **Boston Office**: 617-722-2140
 
