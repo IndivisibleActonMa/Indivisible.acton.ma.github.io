@@ -32,6 +32,9 @@ layout: page
 
 ### Tuesday, Jul 9
 
+* **10a**, Boston: ***Hearing for [H.471](https://malegislature.gov/Bills/191/H471) an act relative to science curriculum standards*** - This bill requires that science taught in Massachusetts public schools include only peer-reviewed scientific subject matter. This is a way of making sure that climate change is not denied, nor is evolution. Our children deserve the best education that they can get, rather than the ridiculous “alternatives” being taught in other states. Please call or write the Chairs of the Joint Committee on Education, Representative Alice Peisch Alice.Peisch@mahouse.gov (617-722-1206) and Senator Jason Lewis Jason.Lewis@masenate.gov (617-722-2070) before July 9. Come to the meeting if you can!  MA State House, A-2, Boston, MA.  
+
+
 * **7-9p**, Concord:  ***Postcarding for Dan McReady*** - Caffè  Nero, Concord, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.
 
 
