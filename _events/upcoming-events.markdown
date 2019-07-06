@@ -52,7 +52,7 @@ layout: page
 
 ### Monday, Jul 15
 
-* **7p**, Lexington: ***Watch The Mueller Report!*** - Minuteman Indivisible is hosting a special screening of The Investigation: A Search for the Truth in Ten Acts, a play filmed live in NYC last month featuring well-know actors reading key portions of the Mueller report. Get up to speed on the Mueller report the easy way - with friends and snacks - before Mueller testifies to Congress on July 17. Cary Memorial Library, 1874 Massachusetts Ave, Lexington, MA 02420. 
+* **7-8:30p**, Lexington: ***Watch The Mueller Report!*** - Minuteman Indivisible is hosting a special screening of [The Investigation: A Search for the Truth in Ten Acts](https://www.libraryinsight.com/eventdetails.asp?jx=gxp&lmx=%CFca%2C%AA%ACq&v=3), a play filmed live in NYC last month featuring well-know actors reading key portions of the Mueller report. Get up to speed on the Mueller report the easy way - with friends and snacks - before Mueller testifies to Congress on July 17. Cary Memorial Library, Large Meeting Room, 1874 Massachusetts Ave, Lexington, MA 02420. 
 
 ### Tuesday, Jul 16
 
