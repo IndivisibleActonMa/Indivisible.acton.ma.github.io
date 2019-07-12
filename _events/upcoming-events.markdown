@@ -18,14 +18,6 @@ layout: page
 
 ## Some Events to Consider
 
-### Saturday, Jun 29
-
-* **10a-12p**, Acton: ***Postcarding for Dan McReady*** - Bagels Plus, Acton, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.
-
-### Sunday, Jun 30
-
-* **2-3p**, Boston: ***Show your support for those being held at the ICE Detention Center*** - Bring Colorful signs in English or Spanish (in large letters) to show your support for those behind bars. Please note this is hosted by [Massachusetts Communities Action Network](https://www.mcan.us/new-events?fbclid=IwAR2xvSEMa6zgRLpawv2NrGebkySYDek08ywtf4sY2iRG2c3WsVPEnuB1RYA). If you have any questions, please contact Janine: jcarreiro@mcan-pico.org.   
-
 ### Tuesday, Jul 2
 
 * **7-9p**, Concord:  ***Postcarding for Dan McReady*** - Caffè  Nero, Concord, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.
@@ -61,6 +53,19 @@ layout: page
 * **1p**, Burlington: ***Jericho walk*** at the ICE building 1000 District Ave., Burlington.
 
 * **7-9p**, Concord:  ***Postcarding for Dan McReady*** - Caffè  Nero, Concord, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.
+
+### Thursday, Jul 18
+
+* **6:30pm–8:30p**, Andover: ***ACLU Speaker at Indivisible Andover General Meeting*** - Come hear Matt Allen, Field Director with the ACLU of Massachusetts, provide an overview of the broad range of work this organization is doing to protect and defend our rights. The second part of the meeting will be devoted to ACTION! Click [HERE](https://www.mobilize.us/indivisiblegreaterandover/event/100702/) for more info.  
+
+
+### Saturday, Jul 20
+
+* **10a-12p**, Acton: ***Postcarding*** - Bagels Plus, Acton, MA. 
+
+### Tuesday, Jul 23
+
+* **6:30-8:30p**, Littleton:  ***Postcarding*** - Littleton Library, Littleton, MA. 
 
 ---
 
