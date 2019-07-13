@@ -1,6 +1,7 @@
 ---
 title: Lights for Liberty - Westford
 date: 2019-07-12 07:49:00 -04:00
+published: false
 is featured: true
 event-start-date: 2019-07-12 18:00:00 -04:00
 event-end-date: 2019-07-12 20:00:00 -04:00
