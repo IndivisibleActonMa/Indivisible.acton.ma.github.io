@@ -40,7 +40,8 @@ layout: page
 
 * **10a-12p**, Acton: ***Postcarding for Dan McReady*** - Bagels Plus, Acton, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.
 
-* **10a-2p**, Boston: ***March for Immigrant Lives*** - Help us connect with community and organization leaders on the ground to ensure that this is a community-led effort. Join us in a peaceful show of solidarity to reunite immigrant and migrant families.  Click \[[HERE](https://www.facebook.com/events/boston-massachusetts/march-for-immigrant-lives/629530030883431/)\] for more info.
+* **10a-2p**, Boston: ***Action for Immigrant Lives*** - Help us connect with community and organization leaders on the ground to ensure that this is a community-led effort. Join us in a peaceful show of solidarity to reunite immigrant and migrant families.  Click [HERE](https://www.facebook.com/events/boston-massachusetts/march-for-immigrant-lives/629530030883431) for more info.  **NOTE: This event is at capacity - contact them for more info**.  
+
 
 ### Monday, Jul 15
 
