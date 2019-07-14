@@ -68,6 +68,10 @@ layout: page
 
 * **6:30-8:30p**, Littleton:  ***Postcarding*** - Littleton Library, Littleton, MA. 
 
+### Tuesday, Jul 30
+
+* **8-11p**, Shirley:  ***Presidential Debate Watch Party*** Hosted by Senators Jamie Eldridge and Ed Kennedy; Representative Jen Benson; Shirley, Pepperell, Ayer, Harvard, Littleton, and other area Democratic Town Committees; and Indivisible Nashoba.  Click [HERE](https://www.eventbrite.com/o/senators-jamie-eldridge-and-ed-kennedy-representative-jen-benson-shirley-pepperell-ayer-harvard-littleton-and-other-area-democratic-town-committees-and-indivisible-nashoba-24759295295?fbclid=IwAR1Z3TCWV9NCZBFnxflH3KWgwWeAoE96sPAHqcjjJcVcZHAqXfrdiTd9Vaw) to RSVP and for more info!  Bull Run Restaurant, The Tap Room, 215 Great Road, Shirley, MA 01464
+
 ---
 
 ### Save the date
