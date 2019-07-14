@@ -17,4 +17,4 @@ Postcarding Dates:
 
 * Bagels Plus, Acton: 10-12p, Saturdays - Jun 22, Jun 29, Jul 13
 
- **PLEASE NOTE: Jul 16 post carding has been CANCELLED.**
+**PLEASE NOTE: Jul 16 post carding has been CANCELLED.**
