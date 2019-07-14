@@ -70,4 +70,12 @@ layout: page
 
 ---
 
+### Save the date
+
+### Tuesday, Aug 6
+
+* **8a**, Burlington: ***Jericho walk*** sponsored by the Congregation Beth Elohim Acton social justice group Na'aaseh ("We will act") at the ICE building 1000 District Ave, Burlington.  
+
+---
+
 Click [HERE](http://www.indivisibleacton.org/take-action.html) for other ways to take action.
