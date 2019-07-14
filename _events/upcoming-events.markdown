@@ -53,7 +53,7 @@ layout: page
 
 * **1p**, Burlington: ***Jericho walk*** at the ICE building 1000 District Ave., Burlington.
 
-* **7-9p**, Concord:  ***Postcarding for Dan McReady*** - Caffè  Nero, Concord, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info.
+* **7-9p**, Concord:  ***Postcarding for Dan McReady*** - Caffè  Nero, Concord, MA.  Click [HERE](http://www.indivisibleacton.org/2019/06/17/postcarding.html) for more info. ** CANCELLED **
 
 ### Thursday, Jul 18
 
