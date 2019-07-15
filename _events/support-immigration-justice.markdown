@@ -14,8 +14,7 @@ Here are other ways we can help immigrants and asylum seekers:
 * Call or write your state Senator and Representative and ask them to support the safe Communities Act. Get more involved through the [Massachusetts Safe Communities and Coalition](https://www.facebook.com/safecommunitiesma/).
 
 
-* Encourage our legislature to pass a "driver’s licenses for all" law.  Learn more about [Driving Families Forward](https://www.facebook.com/DrivingFamiliesForward/).  Support the Work and Mobility Act and sign the petition [HERE](bit.ly/dffpetition).\
-  Attend the Driving Families Forward Lobby Day on July 24 from 9:30 – 11AM.
+* Encourage our legislature to pass a "driver’s licenses for all" law.  Learn more about [Driving Families Forward](https://www.facebook.com/DrivingFamiliesForward).  Support the Work and Mobility Act and sign the petition [HERE](bit.ly/dffpetition).  Attend the Driving Families Forward Lobby Day on July 24 from 9:30 – 11AM.
 
 
 * Donate [HERE](bit.ly/DonateMassTPSComite) to help TPS holders travel to Pasadena, CA to stand in support as the court cast Nielsen vs Ramos decision influences their family’s future.
