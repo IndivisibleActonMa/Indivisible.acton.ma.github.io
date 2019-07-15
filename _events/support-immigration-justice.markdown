@@ -4,7 +4,6 @@ date: 2019-07-14 22:46:00 -04:00
 layout: page
 ---
 
-## Support Immigration Justice
 
 
 Click [HERE](https://docs.google.com/document/d/e/2PACX-1vTMqS6yDQZAGNdad1FYd6cMwj0EoEzDvkqgVPN0GzKX9UpMEaH1U9QmAhTwB-JOiw8MruJaYHj0VNf9/pub) to learn how you can contribute time and/or money to organizations which support immigrant justice.  
