@@ -17,7 +17,7 @@ Here are other ways we can help immigrants and asylum seekers:
 * Encourage our legislature to pass a "driver’s licenses for all" law.  Learn more about [Driving Families Forward](https://www.facebook.com/DrivingFamiliesForward).  Support the Work and Mobility Act and sign the petition [HERE](https://actionnetwork.org/petitions/dff-petition).  Attend the Driving Families Forward Lobby Day on July 24 from 9:30 – 11AM.
 
 
-* Donate [HERE](bit.ly/DonateMassTPSComite) to help TPS holders travel to Pasadena, CA to stand in support as the court cast Nielsen vs Ramos decision influences their family’s future.
+* Donate [HERE](https://actionnetwork.org/fundraising/support-the-massachusetts-tps-committee?source=facebook&) to help TPS holders travel to Pasadena, CA to stand in support as the court cast Nielsen vs Ramos decision influences their family’s future.
 
 * TPS holders’ children have created a play explaining how this administration’s cruelty has affected them.  Watch it [HERE](http://guide.bnntv.org:8000/CablecastPublicSite/show/93888?channel=2).
 
