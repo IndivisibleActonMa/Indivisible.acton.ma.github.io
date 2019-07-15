@@ -16,7 +16,7 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
 ### Take Action for Immigration
 
-* Click [HERE](https://docs.google.com/document/d/e/2PACX-1vTMqS6yDQZAGNdad1FYd6cMwj0EoEzDvkqgVPN0GzKX9UpMEaH1U9QmAhTwB-JOiw8MruJaYHj0VNf9/pub) to learn how you can contribute time and/or money to organizations which support immigrant justice.
+* Click [HERE](http://www.indivisibleacton.org/events/support-immigrant-justice.html) to learn how you can contribute time and/or money to organizations which support immigrant justice.
 
 ### Local/State
 
