@@ -31,6 +31,6 @@ Find out more about local immigrant Justice Accompaniment Networks.
 
 * [Mass Communities Action Network](https://www.mcan.us/new-events)
 
-* Learn how to join local Jericho Walks [HERE](www.facebook.com/groups/BAC4J).
+* Learn how to join local Jericho Walks [HERE](https://www.facebook.com/groups/BAC4J).
 
 * Learn how to fight back against ‘Countering Violent Extremism’ programs (the current version of Thought Police) [HERE](https://facebook.com/MuslimJusticeLeague).
