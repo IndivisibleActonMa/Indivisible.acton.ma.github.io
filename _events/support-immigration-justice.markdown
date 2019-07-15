@@ -29,7 +29,7 @@ Find out more about local immigrant Justice Accompaniment Networks.
 
 * [Metrowest Immigrant Solidarity Network](https://fundrazr.com/misnneighborfund?ref=sh_3800Wc_ab_7f8v6FeYGJL7f8v6FeYGJL)
 
-* [Mass Communities Action Network](https://www.mcan.us/new-event)
+* [Mass Communities Action Network](https://www.mcan.us/new-events)
 
 * Learn how to join local Jericho Walks [HERE](www.facebook.com/groups/BAC4J).
 
