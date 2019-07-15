@@ -11,7 +11,7 @@ Click [HERE](https://docs.google.com/document/d/e/2PACX-1vTMqS6yDQZAGNdad1FYd6cM
 
 Here are other ways we can help immigrants and asylum seekers:
 
-* Call or write your state Senator and Representative and ask them to support the safe Communities Act. Get more involved through the [Massachusetts Safe Communities and Coalition](https://www.facebook.com/safecommunitiesma/).
+* Call or write your state Senator and Representative and ask them to support the Safe Communities Act: [S.1401](https://malegislature.gov/Bills/191/S1401) (Senator Jamie Eldridge) and [H.3573](https://malegislature.gov/Bills/191/H3573) (Representatives Ruth Balser and Liz Miranda). Get more involved through the [Massachusetts Safe Communities and Coalition](https://www.facebook.com/safecommunitiesma/).
 
 
 * Encourage our legislature to pass a "driver’s licenses for all" law.  Learn more about [Driving Families Forward](https://www.facebook.com/DrivingFamiliesForward).  Support the Work and Mobility Act and sign the petition [HERE](https://actionnetwork.org/petitions/dff-petition).  Attend the Driving Families Forward Lobby Day on July 24 from 9:30 – 11AM.
