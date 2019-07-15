@@ -1,6 +1,7 @@
 ---
 title: Support Immigration Justice
 date: 2019-07-14 22:46:00 -04:00
+layout: page
 ---
 
 ## Support Immigration Justice
