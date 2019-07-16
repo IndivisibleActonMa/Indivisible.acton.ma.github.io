@@ -4,17 +4,14 @@ date: 2019-07-14 22:46:00 -04:00
 layout: page
 ---
 
-
-
-Click [HERE](https://docs.google.com/document/d/e/2PACX-1vTMqS6yDQZAGNdad1FYd6cMwj0EoEzDvkqgVPN0GzKX9UpMEaH1U9QmAhTwB-JOiw8MruJaYHj0VNf9/pub) to learn how you can contribute time and/or money to organizations which support immigrant justice.  
-
+Click [HERE](https://docs.google.com/document/d/e/2PACX-1vTMqS6yDQZAGNdad1FYd6cMwj0EoEzDvkqgVPN0GzKX9UpMEaH1U9QmAhTwB-JOiw8MruJaYHj0VNf9/pub) to learn how you can contribute time and/or money to organizations which support immigrant justice.
 
 Here are other ways we can help immigrants and asylum seekers:
 
 * Call or write your state Senator and Representative and ask them to support the Safe Communities Act: [S.1401](https://malegislature.gov/Bills/191/S1401) (Senator Jamie Eldridge) and [H.3573](https://malegislature.gov/Bills/191/H3573) (Representatives Ruth Balser and Liz Miranda). Get more involved through the [Massachusetts Safe Communities and Coalition](https://www.facebook.com/safecommunitiesma/).
 
 
-* Encourage our legislature to pass a "driver’s licenses for all" law.  Learn more about [Driving Families Forward](https://www.facebook.com/DrivingFamiliesForward).  Support the Work and Mobility Act and sign the petition [HERE](https://actionnetwork.org/petitions/dff-petition).  Attend the Driving Families Forward Lobby Day on July 24 from 9:30 – 11AM.
+* Encourage our legislature to pass a "driver’s licenses for all" law.  Learn more about [Driving Families Forward](https://www.facebook.com/DrivingFamiliesForward).  Support the Work and Mobility Act and sign the petition [HERE](https://actionnetwork.org/petitions/dff-petition).  Attend the Driving Families Forward Lobby Day on July 24 from 9:30 – 11AM. RSVP to crisayda@field-first.com.  
 
 
 * Donate [HERE](https://actionnetwork.org/fundraising/support-the-massachusetts-tps-committee?source=facebook&) to help TPS holders travel to Pasadena, CA to stand in support as the court cast Nielsen vs Ramos decision influences their family’s future.
