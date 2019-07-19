@@ -64,12 +64,15 @@ layout: page
 
 ### Tuesday, Jul 23
 
+* **1-5p**, Boston:  ***Hearing for the 100% Renewable Energy Act*** - The 100% Renewable Energy Act ([H.2836](https://www.google.com/url?q=https://malegislature.gov/Bills/191/H2836&sa=D&usd=2&usg=AOvVaw0AVkWdvHgbsLayadnS7gAq), [S.1958](https://www.google.com/url?q=https://malegislature.gov/Bills/191/S1958&sa=D&usd=2&usg=AOvVaw3nG_J0Otx5r6UovqB1ASRt)) will transition Massachusetts to 100% clean and renewable sources of electricity by 2035, and phase out the use of fossil fuels for heating and transportation by 2045. This is our biggest chance to show support for a transition to 100% renewable energy in front of the elected officials who will decide whether this bill moves forward. Let us know if you can be there. Click [HERE](https://www.google.com/url?q=https://www.facebook.com/events/854878234898135/&sa=D&usd=2&usg=AOvVaw3yyY0MDwCCRxSwCMjcrYcr) for more info. RSVP [HERE](https://www.google.com/url?q=https://docs.google.com/forms/d/e/1FAIpQLSdjxnDa1M6Bx81dg2sDIhg9UQY-K9p9S6ZRxgqgTwvSwX_qEw/viewform?fbclid%3DIwAR2TyD13iif_zGI-Iv2sdJJBHFWxexRSFMG6CDzDnZ9G6r0-tB-feaou8Jk&sa=D&usd=2&usg=AOvVaw0EcznJisumcnjMIcNXtfdk). MA State House, Room B-1, 24 Beacon St., Boston, MA. \
+    
+
 * **6:30-8:30p**, Littleton:  ***Postcarding*** - Littleton Library, Littleton, MA.
 
 ### Tuesday, Jul 30
 
 * **11a-12:30p**, Boston: ***DFF Lobby Day*** - Driving Familes Forward (DFF) is holding a special lobby day of action before legislators leave for recess. Please join us!  We hope to have a strong showing. Housemembers Lounge, MA Statehouse, 24 Beacon St, Boston, MA 02133.
-***RSVP: crisayda@field-first.com***. 
+  ***RSVP: crisayda@field-first.com***.
 
 
 * **8-11p**, Shirley:  ***Presidential Debate Watch Party*** Hosted by Senators Jamie Eldridge and Ed Kennedy; Representative Jen Benson; Shirley, Pepperell, Ayer, Harvard, Littleton, and other area Democratic Town Committees; and Indivisible Nashoba.  Click [HERE](https://www.eventbrite.com/o/senators-jamie-eldridge-and-ed-kennedy-representative-jen-benson-shirley-pepperell-ayer-harvard-littleton-and-other-area-democratic-town-committees-and-indivisible-nashoba-24759295295?fbclid=IwAR1Z3TCWV9NCZBFnxflH3KWgwWeAoE96sPAHqcjjJcVcZHAqXfrdiTd9Vaw) to RSVP and for more info!  Bull Run Restaurant, The Tap Room, 215 Great Road, Shirley, MA 01464
