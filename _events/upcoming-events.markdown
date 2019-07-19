@@ -68,6 +68,10 @@ layout: page
 
 ### Tuesday, Jul 30
 
+* **11a-12:30p**, Boston: ***DFF Lobby Day*** - Driving Familes Forward (DFF) is holding a special lobby day of action before legislators leave for recess. Please join us!  We hope to have a strong showing. Housemembers Lounge, MA Statehouse, 24 Beacon St, Boston, MA 02133.
+**RSVP: crisayda@field-first.com****. 
+
+
 * **8-11p**, Shirley:  ***Presidential Debate Watch Party*** Hosted by Senators Jamie Eldridge and Ed Kennedy; Representative Jen Benson; Shirley, Pepperell, Ayer, Harvard, Littleton, and other area Democratic Town Committees; and Indivisible Nashoba.  Click [HERE](https://www.eventbrite.com/o/senators-jamie-eldridge-and-ed-kennedy-representative-jen-benson-shirley-pepperell-ayer-harvard-littleton-and-other-area-democratic-town-committees-and-indivisible-nashoba-24759295295?fbclid=IwAR1Z3TCWV9NCZBFnxflH3KWgwWeAoE96sPAHqcjjJcVcZHAqXfrdiTd9Vaw) to RSVP and for more info!  Bull Run Restaurant, The Tap Room, 215 Great Road, Shirley, MA 01464
 
 ---
