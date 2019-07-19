@@ -1,6 +1,7 @@
 ---
 title: RCV Lobby Day
 date: 2019-07-14 20:53:00 -04:00
+published: false
 is featured: true
 event-start-date: 2019-07-16 11:00:00 -04:00
 event-end-date: 2019-07-16 14:00:00 -04:00
