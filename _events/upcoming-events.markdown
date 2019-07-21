@@ -67,7 +67,12 @@ layout: page
 * **1-5p**, Boston:  ***Hearing for the 100% Renewable Energy Act*** - The 100% Renewable Energy Act ([H.2836](https://www.google.com/url?q=https://malegislature.gov/Bills/191/H2836&sa=D&usd=2&usg=AOvVaw0AVkWdvHgbsLayadnS7gAq), [S.1958](https://www.google.com/url?q=https://malegislature.gov/Bills/191/S1958&sa=D&usd=2&usg=AOvVaw3nG_J0Otx5r6UovqB1ASRt)) will transition Massachusetts to 100% clean and renewable sources of electricity by 2035, and phase out the use of fossil fuels for heating and transportation by 2045. This is our biggest chance to show support for a transition to 100% renewable energy in front of the elected officials who will decide whether this bill moves forward. Let us know if you can be there. Click [HERE](https://www.google.com/url?q=https://www.facebook.com/events/854878234898135/&sa=D&usd=2&usg=AOvVaw3yyY0MDwCCRxSwCMjcrYcr) for more info. RSVP [HERE](https://www.google.com/url?q=https://docs.google.com/forms/d/e/1FAIpQLSdjxnDa1M6Bx81dg2sDIhg9UQY-K9p9S6ZRxgqgTwvSwX_qEw/viewform?fbclid%3DIwAR2TyD13iif_zGI-Iv2sdJJBHFWxexRSFMG6CDzDnZ9G6r0-tB-feaou8Jk&sa=D&usd=2&usg=AOvVaw0EcznJisumcnjMIcNXtfdk). MA State House, Room B-1, 24 Beacon St., Boston, MA 02133. 
     
 
-* **6:30-8:30p**, Littleton:  ***Postcarding*** - Littleton Library, Littleton, MA.
+* **6:30-8:30p**, Littleton:  ***Postcarding*** - Littleton Library, Littleton, MA.  
+
+### Wednesday, Jul 24 
+
+* **8a-1p**, Boston:  ***CSJ Immigrants Rights Lobby Day*** - Come lobby around issues that improve the economic security for MA residents, especially our immigrant neighbors.  Hosted by Coalition for Social Justice.  MA Statehouse, Room 109, 24 Beacon St, Boston, MA. Click [HERE](https://www.facebook.com/events/2565689446776093/) for more info.  
+
 
 ### Tuesday, Jul 30
 
