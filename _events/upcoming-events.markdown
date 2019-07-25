@@ -73,6 +73,10 @@ layout: page
 
 * **8a-1p**, Boston:  ***CSJ Immigrants Rights Lobby Day*** - Come lobby around issues that improve the economic security for MA residents, especially our immigrant neighbors.  Hosted by Coalition for Social Justice.  MA Statehouse, Room 109, 24 Beacon St, Boston, MA. Click [HERE](https://www.facebook.com/events/2565689446776093/) for more info.  
 
+### Monday, Jul 29
+
+* **12-2p**, Boston: ***State House Right Whale Resolution Day*** - Join Representative Dylan Fernandes and Senator Julian Cyr, the New England Aquarium, International Fund for Animal Welfare (IFAW) and others in support of efforts to save the North Atlantic Right Whale.  Click [HERE](https://www.facebook.com/events/422262418380433/) for more info.  MA State House 24 Beacon St, Boston, MA. 02133. 
+
 
 ### Tuesday, Jul 30
 
