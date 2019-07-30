@@ -84,7 +84,16 @@ layout: page
   ***RSVP: crisayda@field-first.com***.
 
 
-* **8-11p**, Shirley:  ***Presidential Debate Watch Party*** Hosted by Senators Jamie Eldridge and Ed Kennedy; Representative Jen Benson; Shirley, Pepperell, Ayer, Harvard, Littleton, and other area Democratic Town Committees; and Indivisible Nashoba.  Click [HERE](https://www.eventbrite.com/o/senators-jamie-eldridge-and-ed-kennedy-representative-jen-benson-shirley-pepperell-ayer-harvard-littleton-and-other-area-democratic-town-committees-and-indivisible-nashoba-24759295295?fbclid=IwAR1Z3TCWV9NCZBFnxflH3KWgwWeAoE96sPAHqcjjJcVcZHAqXfrdiTd9Vaw) to RSVP and for more info!  Bull Run Restaurant, The Tap Room, 215 Great Road, Shirley, MA 01464
+* **8-11p**, Shirley:  ***Presidential Debate Watch Party*** Hosted by Senators Jamie Eldridge and Ed Kennedy; Representative Jen Benson; Shirley, Pepperell, Ayer, Harvard, Littleton, and other area Democratic Town Committees; and Indivisible Nashoba.  Click [HERE](https://www.eventbrite.com/o/senators-jamie-eldridge-and-ed-kennedy-representative-jen-benson-shirley-pepperell-ayer-harvard-littleton-and-other-area-democratic-town-committees-and-indivisible-nashoba-24759295295?fbclid=IwAR1Z3TCWV9NCZBFnxflH3KWgwWeAoE96sPAHqcjjJcVcZHAqXfrdiTd9Vaw) to RSVP and for more info!  Bull Run Restaurant, The Tap Room, 215 Great Road, Shirley, MA 01464. 
+
+
+* **7-10p**, Concord: ***CONCORD and ACTON INDIVISIBLE DEBATE PARTY*** RSVP [HERE](https://actionnetwork.org/events/concord-indivisible-debate-party-scroll-below-for-details?source=direct_link&&link_id=1&can_id=3d53e79d2cc2485bd84c50fd3bac6dce&email_referrer=email_585324&email_subject=join-the-concord-indivisible-debate-parties). Colonial Inn Tap Room, 48 Monument Square, Concord, MA 01742. 
+
+
+### Wednesday, Jul 31
+
+* **7-10p**, Concord:  ***CONCORD and ACTON INDIVISIBLE DEBATE PARTY*** - RSVP [HERE](https://actionnetwork.org/events/concord-indivisible-debate-party-with-special-guests-the-kamala-harris-volunteer-committee?source=direct_link&&link_id=4&can_id=3d53e79d2cc2485bd84c50fd3bac6dce&email_referrer=email_585324&email_subject=join-the-concord-indivisible-debate-parties).  Colonial Inn Tap Room, 48 Monument Square, Concord, MA 01742
+
 
 ---
 
