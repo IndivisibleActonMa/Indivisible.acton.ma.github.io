@@ -90,9 +90,29 @@ layout: page
 
 ### Save the date
 
+### Saturday, Aug 3
+
+* **10a-12p**, Acton: ***Postcarding!*** - Grab a delicious bagel or a great beverage at the counter and join us upstairs at Bagels Plus in Acton to write postcards.  We have several campaigns going.
+
+
 ### Tuesday, Aug 6
 
 * **8a**, Burlington: ***Jericho walk*** - sponsored by the Congregation Beth Elohim Acton social justice group Na'aaseh ("We will act") at the ICE building 1000 District Ave, Burlington.
+
+### Tuesday, Aug 13
+
+* **6:30-8:30p**, Littleton: ***Postcarding!*** - We have several campaigns going.  Please join us in the Couper Room at Littleton Library.  
+
+
+### Saturday, Aug 17
+
+* **10a-12p**, Acton: ***Postcarding!*** - Grab a delicious bagel or a great beverage at the counter and join us upstairs at Bagels Plus in Acton to write postcards.  We have several campaigns going.
+
+
+### Tuesday, Aug 27
+
+* **6:30-8:30p**, Littleton: ***Postcarding!*** - We have several campaigns going.  Please join us in the Couper Room at Littleton Library.  
+
 
 ---
 
