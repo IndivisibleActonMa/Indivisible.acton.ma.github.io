@@ -103,6 +103,9 @@ layout: page
 
 * **10a-12p**, Acton: ***Postcarding!*** - Grab a delicious bagel or a great beverage at the counter and join us upstairs at Bagels Plus in Acton to write postcards.  We have several campaigns going.
 
+* **1-4p**, Boston: ***Let's Talk ROE: A Youth Roundtable*** - Join the ACLU of MA Youth Council discussion about reproductive access.  Click [HERE](https://action.aclu.org/webform/ma-lets-talk-roe) for more info.  ACLU of Massachusetts, 211 Congress Street, 4th Floor
+Boston, MA 02110. 
+
 
 ### Tuesday, Aug 6
 
