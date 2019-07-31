@@ -111,6 +111,10 @@ Boston, MA 02110.
 
 * **8a**, Burlington: ***Jericho walk*** - sponsored by the Congregation Beth Elohim Acton social justice group Na'aaseh ("We will act") at the ICE building 1000 District Ave, Burlington.
 
+* **7-8p**, Acton: ***Rank Choice Voting Field Training*** - Voter Choice Massachusetts (VCMA) will be expanding their field efforts this fall to bring Ranked Choice Voting (RCV) to Massachusetts. Please join us!  Click [HERE](https://www.voterchoicema.org/greater_lowell_field_training_acton_aug6?link_id=16&can_id=9a7cc198611ac2a74f284fdda8e14f7e&source=email-2019-7-31-indivisible-acton-weekly-newsletter&email_referrer=email_586524&email_subject=2019-7-31-indivisible-acton-weekly-newsletter) for more info and to RSVP. Acton Memorial Library, 486 Main St, Acton, MA 01720. 
+
+
+
 ### Tuesday, Aug 13
 
 * **6:30-8:30p**, Littleton: ***Postcarding!*** - We have several campaigns going.  Please join us in the Couper Room at Littleton Library.  
