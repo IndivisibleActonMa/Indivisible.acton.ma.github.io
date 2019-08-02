@@ -40,6 +40,8 @@ Boston, MA 02110.
 
 * **6:30-8:30p**, Littleton: ***Postcarding!*** - We have several campaigns going.  Please join us in the Couper Room at Littleton Library.  
 
+* **7-9p**, Concord:  ***Postcards for Hala Ayala of Virginia*** - Join Sister District and Concord Indivisible volunteers at  Caffè  Nero, Concord, MA.  Click [HERE](http://sisterdistrictma.com/eventslist/#events/event-details-listing/5d3e212e20b91a00108f6529/) for more info.  
+
 
 ### Saturday, Aug 17
 
