@@ -11,5 +11,7 @@ Location: Westford Town Common, Westford, MA 01886
 
 Click [HERE](https://www.pbs.org/newshour/health/how-would-trumps-food-stamp-plan-affect-low-income-americans) to learn about how the changes to the food stamp program will affect low-income Americans.
 
-Click [HERE](https://www.tbs.com/shows/full-frontal-with-samantha-bee/july-2019-snap) to submit your comments about the
+Click [HERE](https://www.tbs.com/shows/full-frontal-with-samantha-bee/july-2019-snap) to submit your comments about the changes to SNAP.  
+
+Comments accepted till Sep 23 2019, at 11:59 PM ET. 
 
