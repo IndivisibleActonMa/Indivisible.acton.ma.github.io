@@ -2,9 +2,7 @@
 title: Make Your Voice Heard - SNAP!
 date: 2019-07-29 07:49:00 -04:00
 is featured: true
-event-start-date: 2019-07-12 18:00:00 -04:00
 event-end-date: 2019-09-23 12:59:00 -04:00
-RSVP-link: https://www.regulations.gov/comment?D=FNS-2018-0037-0001
 ---
 
 ### Public comment period is open for SNAP changes. 
