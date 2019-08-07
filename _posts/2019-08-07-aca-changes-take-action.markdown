@@ -4,7 +4,8 @@ date: 2019-08-07 06:57:00 -04:00
 event-end-date: 2019-08-13 12:59:00 -04:00
 ---
 
-### Public Comment period open till Aug 13, 2019 12:59p ET
+### Public Comment period open till Aug 13, 2019 12:59p ET. 
+
 
 Changes are afoot in the ACA...some of these really impact anyone who isn't straight, white, Christian, hearing, and/or able-bodied.
 
