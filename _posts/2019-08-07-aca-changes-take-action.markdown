@@ -3,7 +3,7 @@ title: ACA Changes - Take Action!
 date: 2019-08-07 06:57:00 -04:00
 ---
 
-### Public Comment period open till August 13, 2019
+### Public Comment period open till August 13, 2019  
 
 Changes are afoot in the ACA...some of these really impact anyone who isn't straight, white, Christian, hearing, and/or able-bodied.
 
