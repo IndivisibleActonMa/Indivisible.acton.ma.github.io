@@ -35,6 +35,11 @@ Boston, MA 02110.
 * **7-8p**, Acton: ***Rank Choice Voting Field Training*** - Voter Choice Massachusetts (VCMA) will be expanding their field efforts this fall to bring Ranked Choice Voting (RCV) to Massachusetts. Please join us!  Click [HERE](https://www.voterchoicema.org/greater_lowell_field_training_acton_aug6?link_id=16&can_id=9a7cc198611ac2a74f284fdda8e14f7e&source=email-2019-7-31-indivisible-acton-weekly-newsletter&email_referrer=email_586524&email_subject=2019-7-31-indivisible-acton-weekly-newsletter) for more info and to RSVP. Acton Memorial Library, 486 Main St, Acton, MA 01720. 
 
 
+### Friday, Aug 9
+
+* **8-9:30p**, Boston:  ***Vigil Against Gun Violence & White Nationalism #ElPasoFirme** - Hosted by Academics United in Nonviolence.  Click [HERE](https://www.facebook.com/events/404084036899364/) for more info.  
+Massachusetts State House, 24 Beacon St, Boston, Massachusetts 02108. 
+
 
 ### Tuesday, Aug 13
 
