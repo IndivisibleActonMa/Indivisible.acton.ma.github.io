@@ -47,6 +47,11 @@ Boston, MA 02110.
 
 * **10a-12p**, Acton: ***Postcarding!*** - Grab a delicious bagel or a great beverage at the counter and join us upstairs at Bagels Plus in Acton to write postcards.  We have several campaigns going.
 
+### Sunday, Aug 18
+
+* **6-7:30p**, Cambridge:  ***Capturing the Flag: a Firsthand Account of Voter Suppression*** - Directly following [Activist Afternoons!](https://swingleftboston.org/activist-afternoons/) Swing Left Greater Boston invites you to the first of a series of documentary films on modern voter suppression, election integrity and the power of citizen action.  Click
+[HERE](https://www.facebook.com/events/2300351976895809/) for tickets and more info.  Workbar Cambridge, 45 Prospect Street, Cambridge, Massachusetts 02139. 
+
 
 ### Thursday, Aug 22
 
