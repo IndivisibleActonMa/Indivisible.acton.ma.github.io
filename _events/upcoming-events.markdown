@@ -48,6 +48,11 @@ Boston, MA 02110.
 * **10a-12p**, Acton: ***Postcarding!*** - Grab a delicious bagel or a great beverage at the counter and join us upstairs at Bagels Plus in Acton to write postcards.  We have several campaigns going.
 
 
+### Thursday, Aug 22
+
+* **6:30-8:45p**, Acton: ***"Watch" The Mueller Report*** - Join us for a special screening of *The Investigation: A Search for Truth in 10 Acts* at the Acton Memorial Library, 486 Main St, Acton, MA.  
+
+
 ### Tuesday, Aug 27
 
 * **6:30-8:30p**, Littleton: ***Postcarding!*** - We have several campaigns going.  Please join us in the Couper Room at Littleton Library.  
