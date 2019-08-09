@@ -44,6 +44,8 @@ Massachusetts State House, 24 Beacon St, Boston, Massachusetts 02108.
 
 * **5-6p**, Boston:  ***Tisha B'av Observance*** - T'ruah (The Rabbinic Call for Human Rights) reports: "On Tisha B'Av, the Jewish people lament the destruction of the Holy Temple in Jerusalem and the slaughter of thousands of innocents.  Last year at Tisha B'Av, we commemorated the torment of innocent immigrants and refugees.  Tragically, we have even more reasons to lament today.  T'ruah, Bend the Arc, J Street and the National Council of Jewish Women are partnering to coordinate Jewish Tisha B'Av observances throughout the country.  We lament our modern American catastrophe. This year, we will gather outside the U.S. Citizenship and Immigration Service offices at the JFK Federal Building in Boston."  Click [HERE](https://www.facebook.com/events/345956122972240/) for more info.  JFK Federal Building Plaza, 15 New Sudbury Street, Boston, Massachusetts 02203. 
 
+* **6:30-7:30p**, Lexington:  ***Vigil for Innocent Lives Lost #ElPaso and #Dayton*** - Hosted by *[Lexington Says Enough](https://www.facebook.com/lexingtonsaysenough/?eid=ARAq66uyCOlCGAG27qmarEz9J66X1C8Xm_wMwGkPUqyLaY2aHwgXuHupMWnayLqzSXwTgo-fPvkLeKUJ)*. Click [HERE](https://www.facebook.com/events/480138672782737/) for more info.  Emery Park, Lexington, MA. 
+
 
 ### Tuesday, Aug 13
 
