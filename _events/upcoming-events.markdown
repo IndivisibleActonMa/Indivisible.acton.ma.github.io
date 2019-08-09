@@ -40,6 +40,10 @@ Boston, MA 02110.
 * **8-9:30p**, Boston:  ***Vigil Against Gun Violence & White Nationalism #ElPasoFirme** - Hosted by Academics United in Nonviolence.  Click [HERE](https://www.facebook.com/events/404084036899364/) for more info.  
 Massachusetts State House, 24 Beacon St, Boston, Massachusetts 02108. 
 
+### Sunday, Aug 11
+
+* **5-6p**, Boston:  ***Tisha B'av Observance*** - T'ruah (The Rabbinic Call for Human Rights) reports: "On Tisha B'Av, the Jewish people lament the destruction of the Holy Temple in Jerusalem and the slaughter of thousands of innocents.  Last year at Tisha B'Av, we commemorated the torment of innocent immigrants and refugees.  Tragically, we have even more reasons to lament today.  T'ruah, Bend the Arc, J Street and the National Council of Jewish Women are partnering to coordinate Jewish Tisha B'Av observances throughout the country.  We lament our modern American catastrophe. This year, we will gather outside the U.S. Citizenship and Immigration Service offices at the JFK Federal Building in Boston."  Click [HERE](https://www.facebook.com/events/345956122972240/) for more info.  JFK Federal Building Plaza, 15 New Sudbury Street, Boston, Massachusetts 02203. 
+
 
 ### Tuesday, Aug 13
 
