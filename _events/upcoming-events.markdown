@@ -62,6 +62,8 @@ Massachusetts State House, 24 Beacon St, Boston, Massachusetts 02108.
 
 * **1-4p**, Somerville:  ***Teach-In Against Ice*** - Come learn how to support our undocumented community members. Click [HERE](https://actionnetwork.org/events/teach-in-against-ice/) for more info and to RSVP.  
 
+* **3p**, Boston: ***Rally to Demand Action on Gun Violence*** - Sponsored by [Moms Demand Action for Gun Sense in America – Massachusetts](https://momsdemandaction.org).  Click [HERE](https://act.everytown.org/event/august-recess-2019/25047/signup/?source=&akid=&zip=&fbclid=IwAR2CyNqLbDhShGvbk7r_K1us-RNZnNm0twmzklHG5asrW-sKz_g7qr17Q0w) for more info and to RSVP.  Boston City Hall, 1 City Hall Square #500, Boston, MA. 
+
 
 * **6-7:30p**, Cambridge:  ***Capturing the Flag: a Firsthand Account of Voter Suppression*** - Directly following [Activist Afternoons!](https://swingleftboston.org/activist-afternoons/) Swing Left Greater Boston invites you to the first of a series of documentary films on modern voter suppression, election integrity and the power of citizen action.  Click
 [HERE](https://www.facebook.com/events/2300351976895809/) for tickets and more info.  Workbar Cambridge, 45 Prospect Street, Cambridge, Massachusetts 02139. 
