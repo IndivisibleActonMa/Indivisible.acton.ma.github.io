@@ -1,7 +1,7 @@
 ---
 title: TPS Justice Rally & Press Conference!
 date: 2019-08-13 22:02:00 -04:00
-is featured: false
+is featured: true
 event-start-date: 2019-08-14 00:00:00 -04:00
 event-end-date: 2019-08-14 12:30:00 -04:00
 Location: |-
