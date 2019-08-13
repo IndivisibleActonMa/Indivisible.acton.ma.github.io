@@ -1,6 +1,7 @@
 ---
 title: ACA Changes - Take Action!
 date: 2019-08-13 06:57:00 -04:00
+is featured: true
 event-end-date: 2019-08-13 12:59:00 -04:00
 ---
 
