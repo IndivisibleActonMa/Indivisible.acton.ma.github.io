@@ -71,7 +71,7 @@ Massachusetts State House, 24 Beacon St, Boston, Massachusetts 02108.
 
 ### Thursday, Aug 22
 
-* **6:30-8:45p**, Acton: ***"Watch" The Mueller Report*** - Join us for a special screening of *The Investigation: A Search for Truth in 10 Acts* at the Acton Memorial Library, 486 Main St, Acton, MA.  
+* **6:30-8:45p**, Acton: ***"Watch" The Mueller Report*** - Join us for a special screening of *The Investigation: A Search for Truth in 10 Acts* at the Acton Memorial Library, 486 Main St, Acton, MA. Click [HERE](https://docs.google.com/document/d/1tsCfTjKUyiTfm8ZGRwAuA0RGg-bTSsKAa1Oyhobv94Y/) for more info.  
 
 
 ### Tuesday, Aug 27
