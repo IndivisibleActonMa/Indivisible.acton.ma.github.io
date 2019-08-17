@@ -2,6 +2,8 @@
 title: Action Alert - Comments needed!
 date: 2019-08-17 14:19:00 -04:00
 is featured: true
+event-start-date: 2019-08-15 00:00:00 -04:00
+event-end-date: 2019-09-16 12:59:00 -04:00
 Comment Now!: https://www.regulations.gov/comment?D=OFCCP-2019-0003-0002
 ---
 
