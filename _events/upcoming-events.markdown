@@ -68,6 +68,10 @@ Massachusetts State House, 24 Beacon St, Boston, Massachusetts 02108.
 * **6-7:30p**, Cambridge:  ***Capturing the Flag: a Firsthand Account of Voter Suppression*** - Directly following [Activist Afternoons!](https://swingleftboston.org/activist-afternoons/) Swing Left Greater Boston invites you to the first of a series of documentary films on modern voter suppression, election integrity and the power of citizen action.  Click
 [HERE](https://www.facebook.com/events/2300351976895809/) for tickets and more info.  Workbar Cambridge, 45 Prospect Street, Cambridge, Massachusetts 02139. 
 
+### Tuesday, Aug 20
+
+* **1p-2p**, Burlington:  ***Jericho Walk*** sponsored by BC4J Burlington Clergy for Justice. Burlington ICE, 1000 District Ave, Burlington, MA. 
+
 
 ### Thursday, Aug 22
 
