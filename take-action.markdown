@@ -31,6 +31,8 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
   Call your MA Representatives and ask them to support [H.3320](https://malegislature.gov/Bills/191/H3320).  Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors#house) to see if your rep has cosponsored the ROE Act.
 
+* Click [HERE](https://www.actonmass.org) to keep track of what's going on in the MA State House.
+
 ### National
 
 * Take the [Indivisible Unity Pledge](http://pledge.indivisible.org): The pledge is that no matter our differences in the primary, once Democrats have a nominee, we’ll do everything in our power to get the nominee elected.  Click [HERE](https://www.youtube.com/watch?v=HojK7c7X3WE&link_id=18&can_id=9a7cc198611ac2a74f284fdda8e14f7e&source=email-2019-5-7-indivisible-acton-weekly-newsletter&email_referrer=email_540613&email_subject=2019-5-7-indivisible-acton-weekly-newsletter) to watch a clip about the Pledge on Rachel Maddow.
