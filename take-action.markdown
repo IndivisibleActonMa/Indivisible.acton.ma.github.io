@@ -31,7 +31,6 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
   Call your MA Representatives and ask them to support [H.3320](https://malegislature.gov/Bills/191/H3320).  Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors#house) to see if your rep has cosponsored the ROE Act.
 
-* Click [HERE](https://www.actonmass.org) to keep track of what's going on in the MA State House.
 
 ### National
 
@@ -75,6 +74,8 @@ Become a member of [Indivisible Acton-Area on Facebook](https://www.facebook.com
 * [Helpful tips](https://docs.google.com/document/d/1vKG49nreg_Y2_xr2dzYfwcPF4KOFvGRoX6caxWKrMUQ/)  to writing/emailing your representatives.
 
 ### State Legislature - Bills & Laws
+
+* Click [HERE](https://www.actonmass.org) to keep track of what's going on in the MA State House.  
 
 * Click [HERE](https://malegislature.gov/Bills/Search) to search for a specific legislation, for legislation sponsored by a particular legislator, by Senate, by House, external group, type of legislation and more!
 
