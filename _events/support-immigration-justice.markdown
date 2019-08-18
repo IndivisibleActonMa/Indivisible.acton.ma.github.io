@@ -4,6 +4,13 @@ date: 2019-07-14 22:46:00 -04:00
 layout: page
 ---
 
+***Note*** 
+  
+
+Families belong together in their communities. But Trump’s @DHSgov just rigged the rules against immigrants—forcing families to choose between health care, food & homes and a safe, stable future in the U.S.  Get more information on how we can help protect immigrant familes [HERE](www.protectingimmigrantfamilies.org). 
+
+---
+
 Click [HERE](https://docs.google.com/document/d/e/2PACX-1vTMqS6yDQZAGNdad1FYd6cMwj0EoEzDvkqgVPN0GzKX9UpMEaH1U9QmAhTwB-JOiw8MruJaYHj0VNf9/pub) to learn how you can contribute time and/or money to organizations which support immigrant justice.
 
 Here are other ways we can help immigrants and asylum seekers:
