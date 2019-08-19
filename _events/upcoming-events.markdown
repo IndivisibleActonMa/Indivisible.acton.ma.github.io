@@ -84,6 +84,11 @@ Massachusetts State House, 24 Beacon St, Boston, Massachusetts 02108.
 
 * **7-9p**, Concord:  ***ROE Act Postcarding*** - Click [HERE](https://actionnetwork.org/events/roe-act-postcards?source=direct_link&) for more info.  Caffè  Nero, Concord, MA.  
 
+---
+
+### Save the Date
+
+* **2-5p**, Boxborough:  ***32nd Annual Acton Boxborough Democratic Town Committee Picnic/BBQ*** This event is a wonderful time to meet Democratic candidates and elected officials and other active Democrats from nearby towns. Please help us support the Acton Boxborough Food Pantry by bringing a non-perishable food item to the picnic. There is large variety of food, so no need to bring your own. Please note the suggested $10 contribution per person or $20 per family. For questions or to RSVP, please contact Ellen Valade at ellenvalade@yahoo.com. This year's picnic is at the home of Abby Reip, 205 Old Harvard Rd, Boxborough.  
 
 ---
 
