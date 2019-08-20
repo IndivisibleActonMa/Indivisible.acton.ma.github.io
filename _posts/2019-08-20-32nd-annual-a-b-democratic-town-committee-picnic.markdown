@@ -1,7 +1,6 @@
 ---
 title: 32nd Annual A-B Democratic Town Committee Picnic
 date: 2019-08-20 07:08:00 -04:00
-main-image: "/uploads/abpicnicpic.png"
 event-start-date: 2019-09-08 00:00:00 -04:00
 event-end-date: 2019-09-08 17:00:00 -04:00
 Location: 205 Old Harvard Rd, Boxborough
