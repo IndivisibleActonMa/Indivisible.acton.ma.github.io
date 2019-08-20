@@ -14,6 +14,5 @@ There is large variety of food, so no need to bring your own.
 
 Please note the suggested $10 contribution per person or $20 per family.   
 
-For questions or to RSVP, please contact Ellen Valade at ellenvalade@yahoo.com.
 
 [AB Picnic 2019 flyer.pdf](/uploads/AB%20Picnic%202019%20flyer.pdf)
