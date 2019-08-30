@@ -88,6 +88,14 @@ Massachusetts State House, 24 Beacon St, Boston, Massachusetts 02108.
 
 ### Save the Date
 
+### Wednesday, Sep 4
+
+* **10a-1p**, Boston:  ***Hearing for Family Mobility Act*** Click [HERE](https://www.massjwj.net/events-2/2019/8/28/work-and-family-mobility-act-hearing) for more info.  Massachusetts State House, Room B2
+24 Beacon Street Boston, MA 02112. 
+
+
+### Sunday, Sep 8
+
 * **2-5p**, Boxborough:  ***32nd Annual Acton Boxborough Democratic Town Committee Picnic/BBQ*** This event is a wonderful time to meet Democratic candidates and elected officials and other active Democrats from nearby towns. Please help us support the Acton Boxborough Food Pantry by bringing a non-perishable food item to the picnic. There is large variety of food, so no need to bring your own. Please note the suggested $10 contribution per person or $20 per family. This year's picnic is at the home of Abby and Dennis Reip, 205 Old Harvard Rd, Boxborough. [AB Picnic 2019 flyer.pdf](/uploads/AB%20Picnic%202019%20flyer.pdf)
 
 ---
