@@ -90,7 +90,7 @@ Massachusetts State House, 24 Beacon St, Boston, Massachusetts 02108.
 
 ### Wednesday, Sep 4
 
-* **10a-1p**, Boston:  ***Hearing for Family Mobility Act*** Click [HERE](https://www.massjwj.net/events-2/2019/8/28/work-and-family-mobility-act-hearing) for more info.  Massachusetts State House, Room B2
+* **10a-1p**, Boston:  ***Hearing for Family Mobility Act*** - Click [HERE](https://www.massjwj.net/events-2/2019/8/28/work-and-family-mobility-act-hearing) for more info.  Massachusetts State House, Room B2
 24 Beacon Street Boston, MA 02112. 
 
 
