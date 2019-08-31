@@ -22,15 +22,15 @@ layout: page
 
 ### Saturday, Sep 7
 
-* **10a-12p**, Acton: ***Postcard Writing!*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd., Acton, MA
+* **10a-12p**, Acton: ***Postcard Writing!*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA. 
 
 ### Tuesday, Sep 10
 
-* **6:30-8:30p**, Littleton: ***Postcard Writing Meet-up*** - Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA 01460
+* **6:30-8:30p**, Littleton: ***Postcard Writing Meet-up*** - Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA. 
 
 ### Saturday, Sep 21
 
-* **10a-12p**, Acton: ***Postcard Writing!*** - Multiple campaigns.  Join us!  Bagels Plus, Acton, MA
+* **10a-12p**, Acton: ***Postcard Writing!*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA. 
 
 ### Tuesday, Sep 24
 
