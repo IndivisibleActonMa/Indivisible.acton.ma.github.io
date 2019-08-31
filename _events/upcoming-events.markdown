@@ -29,11 +29,6 @@ layout: page
 * **6:30-8:30p**, Littleton: ***Postcard Writing Meet-up*** - Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA. 
 
 
-### Monday, Sep 16
-
-* **6:30-8:45p**, Acton: ***September General Meeting*** - Join us at our fall kick-off meeting!  Acton Memorial Library, 486 Main St, Acton, MA. 
-
-
 ### Saturday, Sep 21
 
 * **10a-12p**, Acton: ***Postcard Writing!*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA. 
@@ -71,6 +66,11 @@ layout: page
 ### Thursday, Sep 12
 
 * **8-10:30p**, Shirley:  ***Democratic Party Debate Watch Party*** - Bull Run Restaurant Ballroom.  RSVP [HERE](https://u1584542.ct.sendgrid.net/mps2/c/3AA/ni0YAA/t.2uj/q22Xc3LsQtuCpl2EJCUMYw/h57/DlndGaO5uZHYaMBii-2B3BW-2BsrvGsGZQlREs0fvKw28d8JG0ltS31Z1sWLhulhi6yzjgCEVvEn-2B1ve2R19OtkuKkbMMwZ1NQcVGaf-2FW7Cso1PARqyvSf8z936eH3BGFKcIlvEeNsgvMohQZrbPKBo2XHOGvRw9HeU4CnbRZAudGVW47o14gxTrbgqcPM9svVz-2BsRFdoAbAy04HZDzJ4kR6A46n9sAbxSln5K8CNSQI-2FDUo8aerFBG0RTfkacFfbq4AlNUu5iTNJLLc80GI-2BvohMFz-2BeXNQYPVUg-2FX0vnjjTQ2zvADqaDhn0Fzb2x0iIZ6uqensvTBo1UES1UWGS5wwoV8h5Jbkb92pJ5OF5m6LT4I-3D/OO4w) before September 11th to get your spot.
+
+### Monday, Sep 16
+
+* **6:30-8:45p**, Acton: ***September General Meeting*** - Join us at our fall kick-off meeting!  Acton Memorial Library, 486 Main St, Acton, MA. 
+
 
 ### Friday, Sep 20
 
