@@ -31,7 +31,7 @@ layout: page
 
 ### Monday, Sep 16
 
-* **6:30-8:30p**, Acton: ***September General Meeting*** - Join us at our fall kick-off meeting!  Acton Memorial Library, 486 Main St, Acton, MA. 
+* **6:30-8:45p**, Acton: ***September General Meeting*** - Join us at our fall kick-off meeting!  Acton Memorial Library, 486 Main St, Acton, MA. 
 
 
 ### Saturday, Sep 21
