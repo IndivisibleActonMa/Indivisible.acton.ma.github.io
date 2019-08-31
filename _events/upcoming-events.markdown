@@ -28,6 +28,12 @@ layout: page
 
 * **6:30-8:30p**, Littleton: ***Postcard Writing Meet-up*** - Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA. 
 
+
+### Monday, Sep 16
+
+* **6:30-8:30p**, Acton: ***September General Meeting*** - Join us at our fall kick-off meeting!  Acton Memorial Library, 486 Main St, Acton, MA. 
+
+
 ### Saturday, Sep 21
 
 * **10a-12p**, Acton: ***Postcard Writing!*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA. 
