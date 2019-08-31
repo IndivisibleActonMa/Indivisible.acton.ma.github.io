@@ -20,6 +20,11 @@ layout: page
 
 ---
 
+### Saturday, Aug 31
+
+* **9a-12p**, Boston: ***Fight Supremacy: Hands Off Our Pride*** - Join us sending a message that hatred, phobias and racism are not welcomed here.  Click [HERE](https://www.facebook.com/events/347983952580496/?active_tab=about) for more info.  Boston City Hall Plaza,
+1 City Hall Square, Boston, Massachusetts 02114  
+
 
 ### Wednesday, Sep 4
 
