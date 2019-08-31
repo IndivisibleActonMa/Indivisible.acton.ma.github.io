@@ -44,7 +44,7 @@ layout: page
 
 ### Friday, Sep 20
 
-* ** 8a-5p**, Boston:  ***Boston Climate Strike*** - Join Youth Climate Strike's call to action to fight against the #climatecrisis.  This climate strike is one of many strikes happening around the world.  Click [HERE](https://www.facebook.com/events/349500849297711/) for more info.  Boston City Hall Plaza, Boston, MA.  
+* **8a-5p**, Boston:  ***Boston Climate Strike*** - Join Youth Climate Strike's call to action to fight against the #climatecrisis.  This climate strike is one of many strikes happening around the world.  Click [HERE](https://www.facebook.com/events/349500849297711/) for more info.  Boston City Hall Plaza, Boston, MA.  
 
 
 ---
