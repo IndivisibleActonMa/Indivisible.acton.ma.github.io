@@ -16,7 +16,7 @@ layout: page
 
 ---
 
-## Regularly scheduled Postcard Activist Meet-ups
+## Biweekly Postcard Meet-ups
 
 ---
 
