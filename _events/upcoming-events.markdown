@@ -63,6 +63,11 @@ layout: page
 
 * **2-5p**, Boxborough:  ***32nd Annual Acton Boxborough Democratic Town Committee Picnic/BBQ*** This event is a wonderful time to meet Democratic candidates and elected officials and other active Democrats from nearby towns. Please help us support the Acton Boxborough Food Pantry by bringing a non-perishable food item to the picnic. There is large variety of food, so no need to bring your own. Please note the suggested $10 contribution per person or $20 per family. This year's picnic is at the home of Abby and Dennis Reip, 205 Old Harvard Rd, Boxborough. [AB Picnic 2019 flyer.pdf](/uploads/AB%20Picnic%202019%20flyer.pdf)
 
+### Wednesday, Sep 11
+
+* **9a-4p**, Boston-Concord: ***#DefundHate Walk from Boston to Concord*** - Like Paul Revere and William Dawes, we will be going from Boston to Concord to spread the word to **#DefundHate** and **#CloseTheCamps**. We will be walking along Massachusetts Avenue carrying prominent signs to draw attention to the issue. This is just some concerned citizens taking a walk. Join us for the entire walk (15 miles) or part of the walk (we will provide a route and anticipated times to interested people). Combine your need for exercise with your love of resisting - Resistercize! Starting at the MA State House.  
+
+
 ### Thursday, Sep 12
 
 * **8-10:30p**, Shirley:  ***Democratic Party Debate Watch Party*** - Bull Run Restaurant Ballroom.  RSVP [HERE](https://u1584542.ct.sendgrid.net/mps2/c/3AA/ni0YAA/t.2uj/q22Xc3LsQtuCpl2EJCUMYw/h57/DlndGaO5uZHYaMBii-2B3BW-2BsrvGsGZQlREs0fvKw28d8JG0ltS31Z1sWLhulhi6yzjgCEVvEn-2B1ve2R19OtkuKkbMMwZ1NQcVGaf-2FW7Cso1PARqyvSf8z936eH3BGFKcIlvEeNsgvMohQZrbPKBo2XHOGvRw9HeU4CnbRZAudGVW47o14gxTrbgqcPM9svVz-2BsRFdoAbAy04HZDzJ4kR6A46n9sAbxSln5K8CNSQI-2FDUo8aerFBG0RTfkacFfbq4AlNUu5iTNJLLc80GI-2BvohMFz-2BeXNQYPVUg-2FX0vnjjTQ2zvADqaDhn0Fzb2x0iIZ6uqensvTBo1UES1UWGS5wwoV8h5Jbkb92pJ5OF5m6LT4I-3D/OO4w) before September 11th to get your spot.
