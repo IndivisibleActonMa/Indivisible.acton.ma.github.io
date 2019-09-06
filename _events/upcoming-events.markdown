@@ -80,6 +80,11 @@ layout: page
 
 * **11a-4p**, Washington, DC: ***We The People March*** - March to demand action!  Get more information [HERE](https://wethepeoplemarch.org).
 
+* **10a-12p**, Andover: ***We The People March*** -  Shawsheen Square, the intersection of routes 28 and 133
+The address that works for GPS is 14 York St, Andover, MA 01810. 
+
+
+
 ---
 
 Click [HERE](http://www.indivisibleacton.org/take-action.html) for other ways to take action.
