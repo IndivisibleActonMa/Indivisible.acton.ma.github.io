@@ -85,6 +85,9 @@ layout: page
 
 * **11a-4p**, Washington, DC: ***We The People March*** - March to demand action!  Get more information [HERE](https://wethepeoplemarch.org).
 
+* **11a-4p**, Providence: **We The People March*** Click [HERE](https://www.facebook.com/events/rhode-island-statehouse/we-the-people-providence-solidarity-march/287969052053344/) for more info.  
+
+
 * **10a-12p**, Andover: ***We The People March*** -  Shawsheen Square, the intersection of routes 28 and 133
 The address that works for GPS is 14 York St, Andover, MA 01810. 
 
