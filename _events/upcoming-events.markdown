@@ -74,7 +74,7 @@ layout: page
 
 ### Monday, Sep 16
 
-* **6:30-8:45p**, Acton: ***September General Meeting*** - Join us at our fall kick-off meeting!  Acton Memorial Library, 486 Main St, Acton, MA. 
+* **6:30-8:45p**, Acton: ***September General Meeting*** - Join us at our fall kick-off meeting!  Click [HERE](http://www.indivisibleacton.org/2019/08/30/general-meeting-and-future-plans.html) for more info.  Acton Memorial Library, 486 Main St, Acton, MA. 
 
 
 ### Friday, Sep 20
