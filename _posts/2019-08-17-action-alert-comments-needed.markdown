@@ -1,11 +1,11 @@
 ---
-title: Action Alert - Comments needed!
+title: Comments DUE Sep 16!
 date: 2019-08-17 14:19:00 -04:00
 is featured: true
 Comment Now!: 
 ---
 
-We have ***fewer than 30 days*** to comment on the proposed regulation that will ***allow employers to discriminate against the LGBTQ community, unmarried pregnant women and others in hiring/firing based on the employer's religious beliefs***.  
+We have ***fewer than 2 days*** to comment on the proposed regulation that will ***allow employers to discriminate against the LGBTQ community, unmarried pregnant women and others in hiring/firing based on the employer's religious beliefs***.  
 
 Click [HERE](https://www.speaker.gov/newsroom/81419-4/) to see Speaker Pelosi's statement on Trump Proposal Gutting Anti-Discrimination Protections for LGBTQ Americans.  
 
