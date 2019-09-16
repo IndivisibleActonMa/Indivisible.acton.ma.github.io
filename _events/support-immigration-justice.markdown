@@ -14,6 +14,9 @@ Click [HERE](https://docs.google.com/document/d/e/2PACX-1vTMqS6yDQZAGNdad1FYd6cM
 
 Here are other ways we can help immigrants and asylum seekers:
 
+* Every month our local [Justice For Our Neighbors (JFON)](http://www.newenglandjfon.org) group provides free legal clinics for our neighbors struggling with the immigration process. Funds raised go toward hiring lawyers to staff these clinics. Acton Indivisible has assisted with these clinics by providing food and hospitality. To volunteer at a clinic, click [HERE](http://www.newenglandjfon.org/advocacy).  Contributions can be sent to: *New England Justice For Our Neighbors, Belmont-Watertown United Methodist Church, 421 Common St, Belmont MA 02478*. 
+
+
 * Call or write your state Senator and Representative and ask them to support the Safe Communities Act: [S.1401](https://malegislature.gov/Bills/191/S1401) (Senator Jamie Eldridge) and [H.3573](https://malegislature.gov/Bills/191/H3573) (Representatives Ruth Balser and Liz Miranda). Get more involved through the [Massachusetts Safe Communities and Coalition](https://www.facebook.com/safecommunitiesma/).
 
 
