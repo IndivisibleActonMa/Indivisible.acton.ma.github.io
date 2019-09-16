@@ -91,7 +91,8 @@ layout: page
 * **10a-12p**, Andover: ***We The People March*** -  Shawsheen Square, the intersection of routes 28 and 133
 The address that works for GPS is 14 York St, Andover, MA 01810. 
 
-
+* **5:30-8p**, Chelmsford: ***JFON Chili Dinner Fundraiser*** - Our partners in protecting immigrants, [Justice For Our Neighbors (JFON)](http://www.newenglandjfon.org) is holding a chili dinner fundraiser at Aldersgate Church, 242 Boston Road, Chelmsford, MA.  Funds raised go toward hiring lawyers to staff these clinics. Acton Indivisible has assisted with these clinics by providing food and hospitality. We hope you can attend this event, eat good food, learn more about JFON and contribute to this wonderful group.  To volunteer at a clinic, click [HERE](http://www.newenglandjfon.org/advocacy).  Contributions can be sent to:  
+*New England Justice For Our Neighbors, Belmont-Watertown United Methodist Church, 421 Common St, Belmont MA 02478*  
 
 ---
 
