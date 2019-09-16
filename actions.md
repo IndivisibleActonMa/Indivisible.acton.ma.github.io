@@ -13,11 +13,11 @@ layout: page
 
 [Join the Indivisible Acton-Area Facebook Group](https://www.facebook.com/groups/indivisibleacton) to find out about events, share ideas and news, and connect with other Indivisible members.
 
-Sign up for Indivisible MA's statewide newsletter [here](https://www.indivisible-ma.org/newsletter-signup).
+Sign up for Indivisible MA's statewide newsletter [HERE](https://www.indivisible-ma.org/newsletter-signup).
 
-Sign up for emails from Indivisible National [here](https://indivisible.org).
+Sign up for emails from Indivisible National [HERE](https://indivisible.org).
 
-[How to Take Action](/uploads/Indivisible%20Presentation.pdf). 
+Learn [How to Take Action](/uploads/Indivisible%20Presentation.pdf)! 
 
 
 Questions?  Email us at *info@indivisibleacton.org* 
