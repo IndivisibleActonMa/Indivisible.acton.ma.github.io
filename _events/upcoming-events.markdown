@@ -22,24 +22,24 @@ layout: page
 
 ### Saturday, Sep 7
 
-* **10a-12p**, Acton: ***Postcard Writing!*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA. 
+* **10a-12p**, Acton: ***Postcard Writing!*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA.
 
 ### Tuesday, Sep 10
 
-* **6:30-8:30p**, Littleton: ***Postcard Writing Meet-up*** - Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA. 
-
+* **6:30-8:30p**, Littleton: ***Postcard Writing Meet-up*** - Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA.
 
 ### Saturday, Sep 21
 
-* **10a-12p**, Acton: ***Postcard Writing!*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA. 
+* **10a-12p**, Acton: ***Postcard Writing!*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA.
 
 ### Tuesday, Sep 24
 
 * **6:30-8:30p**, Littleton: ***Postcard Writing Meet-up*** - Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA 01460
 
-
 ---
+
 ## Some Events to Consider
+
 ---
 
 ### Saturday, Aug 31
@@ -65,8 +65,7 @@ layout: page
 
 ### Wednesday, Sep 11
 
-* **9a-4p**, Boston-Concord: ***#DefundHate Walk from Boston to Concord*** - Like Paul Revere and William Dawes, we will be going from Boston to Concord to spread the word to **#DefundHate** and **#CloseTheCamps**. We will be walking along Massachusetts Avenue carrying prominent signs to draw attention to the issue. This is just some concerned citizens taking a walk. Join us for the entire walk (15 miles) or part of the walk (we will provide a route and anticipated times to interested people). Combine your need for exercise with your love of resisting - Resistercize! Starting at the MA State House.  
-
+* **9a-4p**, Boston-Concord: ***#DefundHate Walk from Boston to Concord*** - Like Paul Revere and William Dawes, we will be going from Boston to Concord to spread the word to **#DefundHate** and **#CloseTheCamps**. We will be walking along Massachusetts Avenue carrying prominent signs to draw attention to the issue. This is just some concerned citizens taking a walk. Join us for the entire walk (15 miles) or part of the walk (we will provide a route and anticipated times to interested people). Combine your need for exercise with your love of resisting - Resistercize! Starting at the MA State House.
 
 ### Thursday, Sep 12
 
@@ -74,8 +73,7 @@ layout: page
 
 ### Monday, Sep 16
 
-* **6:30-8:45p**, Acton: ***September General Meeting*** - Join us at our fall kick-off meeting!  Click [HERE](http://www.indivisibleacton.org/2019/08/30/general-meeting-and-future-plans.html) for more info.  Acton Memorial Library, 486 Main St, Acton, MA. 
-
+* **6:30-8:45p**, Acton: ***September General Meeting*** - Join us at our fall kick-off meeting!  Click [HERE](http://www.indivisibleacton.org/2019/08/30/general-meeting-and-future-plans.html) for more info.  Acton Memorial Library, 486 Main St, Acton, MA.
 
 ### Friday, Sep 20
 
@@ -83,16 +81,17 @@ layout: page
 
 ### Saturday, Sep 21
 
+* Check our [calendar](http://www.indivisibleacton.org/calendar.html) for more information about marches in the area.  
+
 * **11a-4p**, Washington, DC: ***We The People March*** - March to demand action!  Get more information [HERE](https://wethepeoplemarch.org).
 
-* **11a-4p**, Providence: **We The People March*** Click [HERE](https://www.facebook.com/events/rhode-island-statehouse/we-the-people-providence-solidarity-march/287969052053344/) for more info.  
+* **11a-4p**, Providence: **We The People March**\* Click [HERE](https://www.facebook.com/events/rhode-island-statehouse/we-the-people-providence-solidarity-march/287969052053344/) for more info.
 
 
-* **10a-12p**, Andover: ***We The People March*** -  Shawsheen Square, the intersection of routes 28 and 133
-The address that works for GPS is 14 York St, Andover, MA 01810. 
+* **10a-12p**, Andover: ***We The People March*** -  Shawsheen Square, the intersection of routes 28 and 133. The address that works for GPS is 14 York St, Andover, MA 01810.  
 
-* **5:30-8p**, Chelmsford: ***JFON Chili Dinner Fundraiser*** - Our partners in protecting immigrants, [Justice For Our Neighbors (JFON)](http://www.newenglandjfon.org) is holding a chili dinner fundraiser at Aldersgate Church, 242 Boston Road, Chelmsford, MA.  Funds raised go toward hiring lawyers to staff these clinics. Acton Indivisible has assisted with these clinics by providing food and hospitality. We hope you can attend this event, eat good food, learn more about JFON and contribute to this wonderful group.  To volunteer at a clinic, click [HERE](http://www.newenglandjfon.org/advocacy).  Contributions can be sent to:  
-*New England Justice For Our Neighbors, Belmont-Watertown United Methodist Church, 421 Common St, Belmont MA 02478*  
+* **5:30-8p**, Chelmsford: ***JFON Chili Dinner Fundraiser*** - Our partners in protecting immigrants, [Justice For Our Neighbors (JFON)](http://www.newenglandjfon.org) is holding a chili dinner fundraiser at Aldersgate Church, 242 Boston Road, Chelmsford, MA.  Funds raised go toward hiring lawyers to staff these clinics. Acton Indivisible has assisted with these clinics by providing food and hospitality. We hope you can attend this event, eat good food, learn more about JFON and contribute to this wonderful group.  To volunteer at a clinic, click [HERE](http://www.newenglandjfon.org/advocacy).  Contributions can be sent to:\
+  *New England Justice For Our Neighbors, Belmont-Watertown United Methodist Church, 421 Common St, Belmont MA 02478*
 
 ---
 
