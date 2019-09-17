@@ -1,6 +1,7 @@
 ---
 title: September General Meeting!
 date: 2019-08-30 08:25:00 -04:00
+published: false
 is featured: true
 event-start-date: 2019-09-16 18:30:00 -04:00
 event-end-date: 2019-09-16 20:45:00 -04:00
