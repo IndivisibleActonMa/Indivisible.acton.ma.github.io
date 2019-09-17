@@ -93,6 +93,10 @@ layout: page
 * **5:30-8p**, Chelmsford: ***JFON Chili Dinner Fundraiser*** - Our partners in protecting immigrants, [Justice For Our Neighbors (JFON)](http://www.newenglandjfon.org) is holding a chili dinner fundraiser at Aldersgate Church, 242 Boston Road, Chelmsford, MA.  Funds raised go toward hiring lawyers to staff these clinics. Acton Indivisible has assisted with these clinics by providing food and hospitality. We hope you can attend this event, eat good food, learn more about JFON and contribute to this wonderful group.  To volunteer at a clinic, click [HERE](http://www.newenglandjfon.org/advocacy).  Contributions can be sent to:\
   *New England Justice For Our Neighbors, Belmont-Watertown United Methodist Church, 421 Common St, Belmont MA 02478*
 
+### Sunday, Sep 22
+
+* **1-3p**, Boston: ***Charlie's Climate Catastrophe Tour Kickoff*** - March from the State House to South Station and help us challenge Governor Baker's assertion that he is leading on solutions to climate change. [RSVP HERE](https://actionnetwork.org/events/charlies-march-from-the-state-house-to-weymouth/).  
+
 ---
 
 Click [HERE](http://www.indivisibleacton.org/take-action.html) for other ways to take action.
