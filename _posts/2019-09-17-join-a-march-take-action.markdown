@@ -11,7 +11,8 @@ Let's make our voices heard!
 
 ### We the People
 
-* ***Saturday, Sep 21*** - Check our [calendar](http://www.indivisibleacton.org/calendar.html) for locations and times.
+* ***Saturday, Sep 21*** - Check our [calendar](http://www.indivisibleacton.org/calendar.html) for locations and times.  
+
 
 ### Charlie's Climate Catastrophe Tour Kickoff 
 
