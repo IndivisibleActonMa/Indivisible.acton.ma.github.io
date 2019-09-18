@@ -8,13 +8,13 @@ layout: page
 
 ---
 
-### Click [HERE](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal) to see events published on Indivisible Acton's Public Facebook page.  
+* ### Click [HERE](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal) to see events published on Indivisible Acton's Public Facebook page.  
 
 
-### Check our [CALENDAR](http://www.indivisibleacton.org/calendar.html) for *regularly scheduled events* and other events of interest. 
+* ### Check our [CALENDAR](http://www.indivisibleacton.org/calendar.html) for *regularly scheduled events* and other events of interest. 
  
 
-### [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)  
+* ### [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)  
 
 
 ---
