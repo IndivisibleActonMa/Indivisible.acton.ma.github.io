@@ -23,7 +23,7 @@ Join young climate strikers on the streets and demand an end to the age of fossi
 
 Join a march near you!  Let's march to be seen and heard, to demand action, to protect our democracy and values.  Silence and inaction are complicity.
 
-* ***Saturday, Sep 21*** - Check our [calendar](http://www.indivisibleacton.org/calendar.html) for locations and times.  
+* ***Saturday, Sep 21*** - Check our [CALENDAR](http://www.indivisibleacton.org/calendar.html) for locations and times.  
 
 ---
 
