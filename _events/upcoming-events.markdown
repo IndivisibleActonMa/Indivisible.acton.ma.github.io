@@ -102,7 +102,7 @@ layout: page
 
 ### Saturday, Sep 28
 
-* **10a-12p**, Concord: ***Concord Activist Huddle*** - Harvey Wheeler Community Center, 1276 Main St, Concord.  
+* **10a-12p**, Concord: ***Concord Activist Huddle*** - Come to Concord Indivisible's inaugural  biweekly *Activist Huddle* at the Harvey Wheeler Community Center, 1276 Main St, Concord.  Volunteers choose from a number of well organized activities such as phone banking, texting, postcarding, or writing letters. We make it easy for volunteers to drop-in and spend time making a real difference.  No experience needed; supplies and instructions are provided.  We’re all in this together!
 
 ---
 
