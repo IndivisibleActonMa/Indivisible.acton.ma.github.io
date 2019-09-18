@@ -8,14 +8,13 @@ layout: page
 
 ---
 
-* ### Click [HERE](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal) to see events published on Indivisible Acton's Public Facebook page.  
+* ### Click [HERE](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal) to see events published on Indivisible Acton's Public Facebook page.
 
 
-* ### Check our [CALENDAR](http://www.indivisibleacton.org/calendar.html) for *regularly scheduled events* and other events of interest. 
- 
+* ### Check our [CALENDAR](http://www.indivisibleacton.org/calendar.html) for *regularly scheduled events* and other events of interest.
 
-* ### [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)  
 
+* ### [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
 
 ---
 
@@ -84,21 +83,26 @@ layout: page
 
 ### Saturday, Sep 21
 
-* Check our [calendar](http://www.indivisibleacton.org/calendar.html) for more information about marches in the area.  
+* Check our [calendar](http://www.indivisibleacton.org/calendar.html) for more information about marches in the area.
 
 * **11a-4p**, Washington, DC: ***We The People March*** - March to demand action!  Get more information [HERE](https://wethepeoplemarch.org).
 
 * **11a-4p**, Providence: **We The People March**\* Click [HERE](https://www.facebook.com/events/rhode-island-statehouse/we-the-people-providence-solidarity-march/287969052053344/) for more info.
 
 
-* **10a-12p**, Andover: ***We The People March*** -  Shawsheen Square, the intersection of routes 28 and 133. The address that works for GPS is 14 York St, Andover, MA 01810.  
+* **10a-12p**, Andover: ***We The People March*** -  Shawsheen Square, the intersection of routes 28 and 133. The address that works for GPS is 14 York St, Andover, MA 01810.
 
 * **5:30-8p**, Chelmsford: ***JFON Chili Dinner Fundraiser*** - Our partners in protecting immigrants, [Justice For Our Neighbors (JFON)](http://www.newenglandjfon.org) is holding a chili dinner fundraiser at Aldersgate Church, 242 Boston Road, Chelmsford, MA.  Funds raised go toward hiring lawyers to staff these clinics. Acton Indivisible has assisted with these clinics by providing food and hospitality. We hope you can attend this event, eat good food, learn more about JFON and contribute to this wonderful group.  To volunteer at a clinic, click [HERE](http://www.newenglandjfon.org/advocacy).  Contributions can be sent to:\
   *New England Justice For Our Neighbors, Belmont-Watertown United Methodist Church, 421 Common St, Belmont MA 02478*
 
 ### Sunday, Sep 22
 
-* **1-3p**, Boston: ***Charlie's Climate Catastrophe Tour Kickoff*** - March from the State House to South Station and help us challenge Governor Baker's assertion that he is leading on solutions to climate change. [RSVP HERE](https://actionnetwork.org/events/charlies-march-from-the-state-house-to-weymouth/).  
+* **1-3p**, Boston: ***Charlie's Climate Catastrophe Tour Kickoff*** - March from the State House to South Station and help us challenge Governor Baker's assertion that he is leading on solutions to climate change. [RSVP HERE](https://actionnetwork.org/events/charlies-march-from-the-state-house-to-weymouth/).
+
+
+### Saturday, Sep 28
+
+* **10a-12p**, Concord: ***Concord Activist Huddle*** - Harvey Wheeler Community Center, 1276 Main St, Concord.  
 
 ---
 
