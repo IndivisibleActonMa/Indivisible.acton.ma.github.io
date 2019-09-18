@@ -20,7 +20,7 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
 ### Local/State
 
-* [Support your local Indivisible Group!](http://www.indivisibleacton.org/2019/09/17/support-your-local-indivisible-group.html). 
+* [Support your local Indivisible Group](http://www.indivisibleacton.org/2019/09/17/support-your-local-indivisible-group.html)!  
  
 * **Ask your legislator to take the State House Transparency Pledge** - [Act On Mass](https://www.actonmass.org/?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU) is working to increasing transparency in our State House.  Let's ask our elected legislators to take action to create transparency today so important progressive bills don’t die in darkness. Click [HERE](https://www.actonmass.org/pledge?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU) for more info!  
  
