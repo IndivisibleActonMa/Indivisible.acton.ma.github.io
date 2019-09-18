@@ -8,18 +8,20 @@ is featured: true
 
 ### Global Climate Strike
 
-Join young climate strikers on the streets and demand an end to the age of fossil fuels.  
+Join young climate strikers on the streets and demand an end to the age of fossil fuels.
 
 *Our house is on fire — let’s act like it. We demand climate justice for everyone.*
 
-* ***Friday, Sep 20, 9a-3p, Boston City Hall Plaza*** - Click [HERE](bit.ly/boston-climate-strike) for more info.  
+* ***Friday, Sep 20, 9a-3p, Boston City Hall Plaza*** - Click [HERE](bit.ly/boston-climate-strike) for more info.
 
-* Check our [CALENDAR](http://www.indivisibleacton.org/calendar.html)  for other climate strike locations and times.  
+* Check our [CALENDAR](http://www.indivisibleacton.org/calendar.html)  for other climate strike locations and times.
 
+### [We the People March](https://www.wethepeoplemarch2019.org)
 
-### We the People
+Join a march near you!  Let's march to be seen and heard, to demand action, to protect our democracy and values.  Silence and inaction are complicity.
 
-* ***Saturday, Sep 21*** - Check our [calendar](http://www.indivisibleacton.org/calendar.html) for locations and times.
+* ***Saturday, Sep 21*** - Check our [calendar](http://www.indivisibleacton.org/calendar.html) for locations and times.  
+
 
 ### Charlie's Climate Catastrophe Tour Kickoff
 
