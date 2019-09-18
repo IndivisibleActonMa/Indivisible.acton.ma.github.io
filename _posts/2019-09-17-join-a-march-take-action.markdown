@@ -5,8 +5,9 @@ is featured: true
 ---
 
 ## Let's make our voices heard!
+---
 
-### Global Climate Strike
+### [Global Climate Strike](https://globalclimatestrike.net/usa/)
 
 Join young climate strikers on the streets and demand an end to the age of fossil fuels.
 
@@ -16,12 +17,15 @@ Join young climate strikers on the streets and demand an end to the age of fossi
 
 * Check our [CALENDAR](http://www.indivisibleacton.org/calendar.html)  for other climate strike locations and times.
 
+---
+
 ### [We the People March](https://www.wethepeoplemarch2019.org)
 
 Join a march near you!  Let's march to be seen and heard, to demand action, to protect our democracy and values.  Silence and inaction are complicity.
 
 * ***Saturday, Sep 21*** - Check our [calendar](http://www.indivisibleacton.org/calendar.html) for locations and times.  
 
+---
 
 ### Charlie's Climate Catastrophe Tour Kickoff
 
