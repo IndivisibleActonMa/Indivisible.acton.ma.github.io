@@ -1,5 +1,5 @@
 ---
-title: LAST DAY to comment on  Your SNAP!
+title: LAST DAY to comment on   SNAP!
 date: 2019-07-29 07:49:00 -04:00
 is featured: true
 event-end-date: 2019-09-23 12:59:00 -04:00
