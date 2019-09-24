@@ -8,7 +8,7 @@ Indivisible Acton Area supports the **ROE Act** for reproductive rights.  We are
 
 The next two months are *critical* because the legislators take a break on November 20, so we want to generate as many calls as possible!
 
-We meet regularly on the 1st and 3rd Saturdays at Bagels Plus and on the 2nd and 4th Tuesday at the Reuben Hoar Public Library in Littleton. Check out our [CALENDAR](http://www.indivisibleacton.org/calendar.html).  Contact Linda ***roeact2019@gmail.com*** for more info.
+Contact Linda ***roeact2019@gmail.com*** for more info.  We meet regularly on the 1st and 3rd Saturdays at Bagels Plus and on the 2nd and 4th Tuesday at the Reuben Hoar Public Library in Littleton.  Check out our [CALENDAR](http://www.indivisibleacton.org/calendar.html) for details.  
 
 ---
 
