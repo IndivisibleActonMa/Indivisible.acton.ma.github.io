@@ -20,8 +20,7 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
 ### Local/State
 
-* [Suupport the ROE Act](http://www.indivisibleacton.org/2019/09/23/support-the-roe-act.html)!    
-
+* [Suupport the ROE Act](http://www.indivisibleacton.org/2019/09/23/support-the-roe-act.html)!
 
 * [Support your local Indivisible Group](http://www.indivisibleacton.org/2019/09/17/support-your-local-indivisible-group.html)!
 
