@@ -20,6 +20,8 @@ layout: page
 
 ## Biweekly Postcard Meet-ups
 
+*Special Focus on the [ROE Act](http://www.indivisibleacton.org/2019/09/23/support-the-roe-act.html) September, October and November*.
+
 ---
 
 ### Saturday, Sep 7
@@ -98,7 +100,6 @@ layout: page
 ### Sunday, Sep 22
 
 * **1-3p**, Boston: ***Charlie's Climate Catastrophe Tour Kickoff*** - March from the State House to South Station and help us challenge Governor Baker's assertion that he is leading on solutions to climate change. [RSVP HERE](https://actionnetwork.org/events/charlies-march-from-the-state-house-to-weymouth/).
-
 
 ### Saturday, Sep 28
 
