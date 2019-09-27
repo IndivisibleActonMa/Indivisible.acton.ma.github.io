@@ -14,8 +14,6 @@ layout: page
 * ### Check our [CALENDAR](http://www.indivisibleacton.org/calendar.html) for *regularly scheduled events* and other events of interest.
 
 
-* ### [MA3Grassroots Speaking Event Calendar](https://www.ma3grassroots.com/event-calendar)
-
 ---
 
 ## Biweekly Postcard Meet-ups
