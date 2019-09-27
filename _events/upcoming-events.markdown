@@ -32,6 +32,8 @@ layout: page
 
 * **6:30-8:30p**, Littleton: ***Postcard Writing Meet-up*** - Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA.
 
+
+
 ### Saturday, Oct 19
 
 * **10a-12p**, Acton: ***Postcard Writing!*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA.
@@ -66,6 +68,10 @@ layout: page
 * **6:30-8:45p**, Acton: ***Indivisible Acton Area General Monthly Meeting*** - *Senator Eldridge* is our guest speaker!  Acton Memorial Library, 486 Main St, Acton, MA  
 
 ### Thursday, Oct 17
+
+### Thursday, Oct 17
+
+* **9:30a**, Boston:  ***League of Women Voters Lobby Day*** - Let's take to the field and make our voices heard!  The program will also focus on legislation in four priority areas: Election Day Registration, the climate crisis, education funding reform and women's reproductive rights. Coffee at 9:30a and the program starts promptly at 10a. After the program ends at noon, plan to meet with your own Senator and Representative. Click [HERE](https://lwvma.org/senate-president-spilka-keynotes-lwvma-day-on-the-hill/) for more info and how to register.  MA State House, Room 428.  
 
 * **4-7p**, Westford: ***Westford Climate Action NOW Rally*** - Come protest on the Westford Town Common for climate action now! Westford Town Common, Westford, MA  
 
