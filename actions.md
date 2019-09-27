@@ -34,16 +34,11 @@ Questions?  Email us at *info@indivisibleacton.org*
 
 ---
 
-### Newsletter Deadlines
+### Newsletter Deadline
 
 Email:  *newsletter@indivisibleacton.org*
 
-* Friday's newsletter - deadline is Thursday, 4p.
-
-* Tuesday's newsletter - deadline is Sunday, 4p.
-
-***NOTE - Our summer newsletter is once a week in the summer.  Deadline is Monday, 4p.***. 
-
+* Weekly newsletter - deadline is deadline is Monday, 4p.***  
 
 ---
 
