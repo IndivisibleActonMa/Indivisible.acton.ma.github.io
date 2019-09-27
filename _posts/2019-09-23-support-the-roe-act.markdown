@@ -10,7 +10,7 @@ The next two months are *critical* because the legislators take a break on Novem
 
 Contact Linda ***roeact2019@gmail.com*** for more info.  
 
-We meet regularly on the 1st and 3rd Saturdays at Bagels Plus and on the 2nd and 4th Tuesday at the Reuben Hoar Public Library in Littleton.  Check out our [CALENDAR](http://www.indivisibleacton.org/calendar.html) for details.  
+We meet **regularly** on the **1st and 3rd Saturdays** at **Bagels Plus** in Acton and on the **2nd and 4th Tuesday** at the **Reuben Hoar Public Library** in Littleton.  Check out our [CALENDAR](http://www.indivisibleacton.org/calendar.html) for details.  
 
 ---
 
