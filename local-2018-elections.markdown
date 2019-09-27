@@ -27,9 +27,9 @@ Click [HERE](http://www.indivisibleacton.org/2018-ma-state-primary.html) for inf
 
 Want to know more about what's going in the MA House?
 
-Check out these articles:
-
 * Click [HERE](https://www.actonmass.org) to stay informed on what's happening in the State House.  
+
+Check out these articles:
 
 * [Ex-Lobbyist Reveals How House Really Works](https://commonwealthmagazine.org/opinion/ex-lobbyist-reveals-how-the-house-really-works/), Dec, 19, 2018.  
 
