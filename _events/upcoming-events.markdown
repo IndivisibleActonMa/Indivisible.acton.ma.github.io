@@ -58,6 +58,10 @@ layout: page
 
 * **7-9p**, Concord:  ***POSTCARDing for the ROE Act*** - Join us to write postcards, asking voters to call or email their MA State Representative and Senator in support of the ROE Act. Colonial Inn, Tap Room, Concord, MA  
 
+### Saturday, Oct 5
+
+* **7-9p**, Concord: ***Film: “The Last Dream”*** - A documentary about a play created by Boston-area children of adults with Temporary Protective Status (TPS).  Following the movie there will be an opportunity to hear from some of the actors/activists and to ask them questions. Refreshments will be served at this free event.   the First Parish in Concord, 20 Lexington Rd, Concord.  
+
 
 ### Thursday, Oct 10
 
@@ -69,16 +73,10 @@ layout: page
 
 ### Thursday, Oct 17
 
-### Thursday, Oct 17
-
 * **9:30a**, Boston:  ***League of Women Voters Lobby Day*** - Let's take to the field and make our voices heard!  The program will also focus on legislation in four priority areas: Election Day Registration, the climate crisis, education funding reform and women's reproductive rights. Coffee at 9:30a and the program starts promptly at 10a. After the program ends at noon, plan to meet with your own Senator and Representative. Click [HERE](https://lwvma.org/senate-president-spilka-keynotes-lwvma-day-on-the-hill/) for more info and how to register.  MA State House, Room 428.  
 
 * **4-7p**, Westford: ***Westford Climate Action NOW Rally*** - Come protest on the Westford Town Common for climate action now! Westford Town Common, Westford, MA  
 
-
-### Saturday, Oct 5
-
-* **7-9p**, Concord: ***Film: “The Last Dream”*** - A documentary about a play created by Boston-area children of adults with Temporary Protective Status (TPS).  Following the movie there will be an opportunity to hear from some of the actors/activists and to ask them questions. Refreshments will be served at this free event.   the First Parish in Concord, 20 Lexington Rd, Concord.  
 
 ### Saturday, Oct 19
 
