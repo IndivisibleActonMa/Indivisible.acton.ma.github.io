@@ -24,9 +24,15 @@ layout: page
 
 ---
 
+### Thursday, Oct 3
+
+* **5:30-7p**, Concord:  ***FORUM: Congresswoman Lori Trahan with End Citizens United Action*** - Join Congresswoman Trahan with End Citizens United Action's President Tiffany Muller to discuss getting money out of politics.  Click [HERE](https://www.facebook.com/events/1115967912126369/) for more info. Concord-Carlisle High School, 500 Walden St, Concord, MA.  
+
+
 ### Saturday, Oct 5
 
 * **10a-12p**, Acton: ***Postcard Writing!*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA.
+
 
 ### Tuesday, Oct 8
 
