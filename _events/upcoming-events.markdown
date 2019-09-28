@@ -67,7 +67,7 @@ layout: page
 * **10-11:30a**, Marlborough: ***Congresswoman Lori Trahan Town Hall*** - Get an update and voice any questions, concerns you have.  Click [HERE](https://www.facebook.com/events/375945186627945/) for more info.  Assabet Valley Regional Technical High School 215 Fitchburg St, Marlborough, MA  
 
 
-* **7-9p**, Concord: ***Film: “The Last Dream”*** - A documentary about a play created by Boston-area children of adults with Temporary Protective Status (TPS).  Following the movie there will be an opportunity to hear from some of the actors/activists and to ask them questions. Refreshments will be served at this free event.   the First Parish in Concord, 20 Lexington Rd, Concord.  
+* **7-9p**, Concord: ***Film: “The Last Dream”*** - A documentary about a play created by Boston-area children of adults with Temporary Protective Status (TPS).  Following the movie there will be an opportunity to hear from some of the actors/activists and to ask them questions. Refreshments will be served at this free event.   The First Parish in Concord, 20 Lexington Rd, Concord.  
 
 
 ### Thursday, Oct 10
