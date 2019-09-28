@@ -39,7 +39,7 @@ Email:  *newsletter@indivisibleacton.org*
 
 ---
 
-### Other Helpful Links
+### Other Resources
 
 [MA House Leadership](https://malegislature.gov/Legislators/Leadership)
 
