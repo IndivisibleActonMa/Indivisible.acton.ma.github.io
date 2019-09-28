@@ -41,6 +41,8 @@ Email:  *newsletter@indivisibleacton.org*
 
 Click [HERE](http://www.indivisibleacton.org/general-information/whats-going-on-in-the-ma-state-house.html) to find out how your State Representatives and Senators voted and more about what's going on in the MA State House!
 
+Click [HERE](http://www.indivisibleacton.org/general-information/elections.html) to read about our election policies.  
+
 ---
 
 ### Other Resources
