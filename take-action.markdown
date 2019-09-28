@@ -8,7 +8,7 @@ layout: page
 
 ---
 
-Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
+Click [HERE for Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
 
 ---
 
@@ -37,7 +37,7 @@ Click [here for Upcoming Events](http://www.indivisibleacton.org/events/upcoming
 
 ### National
 
-* Stay informed of the whistleblower case: The [whistleblower timeline is here](https://u1584542.ct.sendgrid.net/mps2/c/EgE/ni0YAA/t.2vb/5p6KkSdFRsWt3AlKwe2C9A/h12/XFi-2F0rVs9p842PWp8U4wjMiQXG8wmMqChiAGp-2Blb1Z6rblOg0X7z9kZFF34y3k8fc8g9NZQRkzIsVmwgULc3hXVOlTZTjTvtCs9dwiLuzMh672QR5Xw7P65Vz-2BWB9I6uIgKYZ6ew3VvlgyeIRsLYug07TYYCDnSwL-2BPwf1tXuGX2bR2kkizPIRo9zq-2FlnQdE33o7L8zK2V9Jyv0p1Qp7HnSDclJ4f-2BHs7O8IlkXeOcUEa6qVfCOMiIKb7sFMtepTyWKVy2bi4PbHscweNO70OETMSZLOvbpn-2BOPTlfWsdGwM3aTISHWnElC8HicPIiIVL8xO4R0hB-2BA8ZKUz2XoY5uUGiajFfKgJ94WqgFxg8oVjcAisflX-2BXPbWEaBOhR61ZSwA0LaM7Ks5lrkihztxBqI851kVovVgQ9P2bjbyu4n-2B0pfWQTHPBh183s7bLHgFBvSE97LaWZNSBu-2BQOtWT8nMzE9W9xtFh1Sdv2hudKT3Sy-2BtTV8fTRD4-2F9nvBEpMGkt3xOZpTUo3R-2BeBLboWgyLfXRnn53jepujLFybzs6i8-3D/IEQ1). But in a nutshell, [Tom Nichols explains why all of this is impeachable](https://u1584542.ct.sendgrid.net/mps2/c/EgE/ni0YAA/t.2vb/5p6KkSdFRsWt3AlKwe2C9A/h13/XFi-2F0rVs9p842PWp8U4wjMiQXG8wmMqChiAGp-2Blb1Z6rblOg0X7z9kZFF34y3k8fc8g9NZQRkzIsVmwgULc3hXZ9O0wrd-2BOz5r17Eu1xav0gPnEkIoxT7x-2Bs7xq5tXz-2BpXaP0g96g2ysbo4ZDhBy5gGYGpZ-2FcMj45fBAXs4Ui-2BFg-2FNF1LRPH1CJq2OtMbb3Vc6fferFTjvwFesLhxl4BwA4YblC6vYYr9-2Fk7573wTzUwtb-2FhHRmMFKsStOKvGpydxmI-2FrY4JyKUYT5q-2BJJCsN6GLvfIJC6MaSREoTAj35YddNqz-2FkqccRXEa0A-2FszrS3RmO56ZvY6rxVni7cm2wUFtEioiUVdwR4r1w1dwx64ynsyPyrHjTtbCYTQHqAJwjP5jYEfnzyyzNGaeNL5olRfvkGGkxy6hfwB3-2FWLU1Gf4BEsdvCIBd8cSkatT5W9Q1eChfr7UvHkQ2lqsR2twsmERtdVvG9NydSlzMOxUEOBIKVRnA2qErgRwz-2B3sXmY5t2eLrKzaW-2B-2Fr3cNW-2B5ylYYew-3D-3D/w93K). Trump reportedly sought the help of a foreign government against a potential challenger. That's the ballgame. [Schumer has called for the release of whistleblower-related information](https://u1584542.ct.sendgrid.net/mps2/c/EgE/ni0YAA/t.2vb/5p6KkSdFRsWt3AlKwe2C9A/h14/XFi-2F0rVs9p842PWp8U4wjMiQXG8wmMqChiAGp-2Blb1Z6rblOg0X7z9kZFF34y3k8fc8g9NZQRkzIsVmwgULc3hfmZVCOMJ7f3KT4cMRpkLNC-2FjFqn9B9tY-2FjEBwDVcuKQqxDYqQt8myZt2HeoVdDAlt62repDsuuGsJ2P4ZOA0vzJdbrvm4VKLUKGctnyd3qyLUPhmJUeNVKGDYkoW3EiUaMyIPeLc-2FRnSyb3FcfsCHsQsG04yCUD0QdQkN8ExzAknDQzSWAsbFibunBXgue0KvKbYEotIepq2BgRPnrIPa6n3OyD-2Bo7K0vzLYzTgAwkqbDQYjVNjl53C8Irb-2B1BEvcSZKMP1QJh6HLK56nEzjlOJd-2BhdQ0czYNvLu8aWbuDy-2F-2FyPqjQ8L4DK8l51quMJsd3-2BNlcDBVhjAGpspGKZLrbzcRfkkaRVYqcbGr-2B5OPPJDazB8-2Fd34kcu030VfU30v7fo2Z1-2BWIWd1WXOWtOBTNc-3D/kJQ_), and acting Director of National Intelligence Joseph Maguire [will be testifying THIS week in front of House Intelligence over all of this](https://u1584542.ct.sendgrid.net/mps2/c/EgE/ni0YAA/t.2vb/5p6KkSdFRsWt3AlKwe2C9A/h15/XFi-2F0rVs9p842PWp8U4wjMiQXG8wmMqChiAGp-2Blb1Z6rblOg0X7z9kZFF34y3k8fc8g9NZQRkzIsVmwgULc3hV3JtOE2-2Brs8pZuK16B7hW-2FMp0xiTK0mYrNV0Mw29JwUo-2B6SHkJaaFKt2BHZfN0jI8POv8lTOfsW4e-2FevnZn4vWOyJ0ZK3FlMKC23YDDb7VSEeDSCzdXCzb64ZaLxug4WxBZq5w81rxA3Fai6tZvud-2BGOgpyr0geQy3cskQQNOu91KFSKE9MJq4lTOz-2FNPwH-2FNz4Nb4Dfb-2Fcu9Wq-2F-2FeN0yeLW0BS7PiGjeH2zaaNX5kc1-2FgUaGVF1UXQDdhM0-2BSgN92-2FBsOl2qrAstUIte2gTQSQN-2B9vTxAkA0Kdjxkn113QOTEn66gWNY5MSfR8lrmSj2JAdRNPb2ddNGMWYHDGkcrRC-2F5-2BIG6mBQJuYEHyAY5FuiQPG1Dbr3lTe-2BvowNbNNHO0wN2-2Bmsi9BiREhiGWwrE-3D/44or). (H/T Celeste Pewter)  
+* Stay informed of the whistleblower case: The [whistleblower timeline is HERE](https://u1584542.ct.sendgrid.net/mps2/c/EgE/ni0YAA/t.2vb/5p6KkSdFRsWt3AlKwe2C9A/h12/XFi-2F0rVs9p842PWp8U4wjMiQXG8wmMqChiAGp-2Blb1Z6rblOg0X7z9kZFF34y3k8fc8g9NZQRkzIsVmwgULc3hXVOlTZTjTvtCs9dwiLuzMh672QR5Xw7P65Vz-2BWB9I6uIgKYZ6ew3VvlgyeIRsLYug07TYYCDnSwL-2BPwf1tXuGX2bR2kkizPIRo9zq-2FlnQdE33o7L8zK2V9Jyv0p1Qp7HnSDclJ4f-2BHs7O8IlkXeOcUEa6qVfCOMiIKb7sFMtepTyWKVy2bi4PbHscweNO70OETMSZLOvbpn-2BOPTlfWsdGwM3aTISHWnElC8HicPIiIVL8xO4R0hB-2BA8ZKUz2XoY5uUGiajFfKgJ94WqgFxg8oVjcAisflX-2BXPbWEaBOhR61ZSwA0LaM7Ks5lrkihztxBqI851kVovVgQ9P2bjbyu4n-2B0pfWQTHPBh183s7bLHgFBvSE97LaWZNSBu-2BQOtWT8nMzE9W9xtFh1Sdv2hudKT3Sy-2BtTV8fTRD4-2F9nvBEpMGkt3xOZpTUo3R-2BeBLboWgyLfXRnn53jepujLFybzs6i8-3D/IEQ1). But in a nutshell, [Tom Nichols explains why all of this is impeachable](https://u1584542.ct.sendgrid.net/mps2/c/EgE/ni0YAA/t.2vb/5p6KkSdFRsWt3AlKwe2C9A/h13/XFi-2F0rVs9p842PWp8U4wjMiQXG8wmMqChiAGp-2Blb1Z6rblOg0X7z9kZFF34y3k8fc8g9NZQRkzIsVmwgULc3hXZ9O0wrd-2BOz5r17Eu1xav0gPnEkIoxT7x-2Bs7xq5tXz-2BpXaP0g96g2ysbo4ZDhBy5gGYGpZ-2FcMj45fBAXs4Ui-2BFg-2FNF1LRPH1CJq2OtMbb3Vc6fferFTjvwFesLhxl4BwA4YblC6vYYr9-2Fk7573wTzUwtb-2FhHRmMFKsStOKvGpydxmI-2FrY4JyKUYT5q-2BJJCsN6GLvfIJC6MaSREoTAj35YddNqz-2FkqccRXEa0A-2FszrS3RmO56ZvY6rxVni7cm2wUFtEioiUVdwR4r1w1dwx64ynsyPyrHjTtbCYTQHqAJwjP5jYEfnzyyzNGaeNL5olRfvkGGkxy6hfwB3-2FWLU1Gf4BEsdvCIBd8cSkatT5W9Q1eChfr7UvHkQ2lqsR2twsmERtdVvG9NydSlzMOxUEOBIKVRnA2qErgRwz-2B3sXmY5t2eLrKzaW-2B-2Fr3cNW-2B5ylYYew-3D-3D/w93K). Trump reportedly sought the help of a foreign government against a potential challenger. That's the ballgame. [Schumer has called for the release of whistleblower-related information](https://u1584542.ct.sendgrid.net/mps2/c/EgE/ni0YAA/t.2vb/5p6KkSdFRsWt3AlKwe2C9A/h14/XFi-2F0rVs9p842PWp8U4wjMiQXG8wmMqChiAGp-2Blb1Z6rblOg0X7z9kZFF34y3k8fc8g9NZQRkzIsVmwgULc3hfmZVCOMJ7f3KT4cMRpkLNC-2FjFqn9B9tY-2FjEBwDVcuKQqxDYqQt8myZt2HeoVdDAlt62repDsuuGsJ2P4ZOA0vzJdbrvm4VKLUKGctnyd3qyLUPhmJUeNVKGDYkoW3EiUaMyIPeLc-2FRnSyb3FcfsCHsQsG04yCUD0QdQkN8ExzAknDQzSWAsbFibunBXgue0KvKbYEotIepq2BgRPnrIPa6n3OyD-2Bo7K0vzLYzTgAwkqbDQYjVNjl53C8Irb-2B1BEvcSZKMP1QJh6HLK56nEzjlOJd-2BhdQ0czYNvLu8aWbuDy-2F-2FyPqjQ8L4DK8l51quMJsd3-2BNlcDBVhjAGpspGKZLrbzcRfkkaRVYqcbGr-2B5OPPJDazB8-2Fd34kcu030VfU30v7fo2Z1-2BWIWd1WXOWtOBTNc-3D/kJQ_), and acting Director of National Intelligence Joseph Maguire [will be testifying THIS week in front of House Intelligence over all of this](https://u1584542.ct.sendgrid.net/mps2/c/EgE/ni0YAA/t.2vb/5p6KkSdFRsWt3AlKwe2C9A/h15/XFi-2F0rVs9p842PWp8U4wjMiQXG8wmMqChiAGp-2Blb1Z6rblOg0X7z9kZFF34y3k8fc8g9NZQRkzIsVmwgULc3hV3JtOE2-2Brs8pZuK16B7hW-2FMp0xiTK0mYrNV0Mw29JwUo-2B6SHkJaaFKt2BHZfN0jI8POv8lTOfsW4e-2FevnZn4vWOyJ0ZK3FlMKC23YDDb7VSEeDSCzdXCzb64ZaLxug4WxBZq5w81rxA3Fai6tZvud-2BGOgpyr0geQy3cskQQNOu91KFSKE9MJq4lTOz-2FNPwH-2FNz4Nb4Dfb-2Fcu9Wq-2F-2FeN0yeLW0BS7PiGjeH2zaaNX5kc1-2FgUaGVF1UXQDdhM0-2BSgN92-2FBsOl2qrAstUIte2gTQSQN-2B9vTxAkA0Kdjxkn113QOTEn66gWNY5MSfR8lrmSj2JAdRNPb2ddNGMWYHDGkcrRC-2F5-2BIG6mBQJuYEHyAY5FuiQPG1Dbr3lTe-2BvowNbNNHO0wN2-2Bmsi9BiREhiGWwrE-3D/44or). (H/T Celeste Pewter)  
 
 * [Join Stacy Abrams in Fair Fight 2020](https://fairfight.com/fair-fight-2020/)  
 
@@ -59,17 +59,17 @@ Here are some helpful tools that help share actions and news.
 
 ### Text
 
-Click [here to learn all about how to use texting to help mobilize people!](https://docs.google.com/document/d/1PvjgTv0y5wthNdlEJeMkg6K3hE4HOoeRAgTfFO2PSQM)
+Click [HERE to learn all about how to use texting to help mobilize people!](https://docs.google.com/document/d/1PvjgTv0y5wthNdlEJeMkg6K3hE4HOoeRAgTfFO2PSQM)
 
-Click [here to learn about The Open Progress Text Troop](https://www.openprogress.com/text-troop)
+Click [HERE to learn about The Open Progress Text Troop](https://www.openprogress.com/text-troop)
 
 ### Postcards
 
-Click [here to learn about writing postcards to voters](http://www.postcardstovoters.org)
+Click [HERE to learn about writing postcards to voters](http://www.postcardstovoters.org)
 
 ### Twitter
 
-Use Twitter to follow Indivisible Acton (@IndActonMA) and help spread the word!  Click [here](https://drive.google.com/file/d/0BwLIGG6Uwnr_Y0h2a3EwS0hiWTF6dHNkLXR1OUZMOGhibHpr/view) for an  introduction to twitter.
+Use Twitter to follow Indivisible Acton (@IndActonMA) and help spread the word!  Click [HERE](https://drive.google.com/file/d/0BwLIGG6Uwnr_Y0h2a3EwS0hiWTF6dHNkLXR1OUZMOGhibHpr/view) for an  introduction to twitter.
 
 ### Facebook
 
@@ -79,7 +79,7 @@ Become a member of [Indivisible Acton-Area on Facebook](https://www.facebook.com
 
 * [MA House Leadership](https://malegislature.gov/Legislators/Leadership)  
 
-* Need to communicate with your Representatives?  Click [here](http://www.indivisibleacton.org/2018-ma-state-primary.html) for contact info, and other tools for contacting your officials!
+* Need to communicate with your Representatives?  Click [HERE](http://www.indivisibleacton.org/2018-ma-state-primary.html) for contact info, and other tools for contacting your officials!
 
 * [Helpful tips](https://docs.google.com/document/d/1vKG49nreg_Y2_xr2dzYfwcPF4KOFvGRoX6caxWKrMUQ/)  to writing/emailing your representatives.
 
@@ -101,4 +101,4 @@ Become a member of [Indivisible Acton-Area on Facebook](https://www.facebook.com
 
 ---
 
-Click [here to Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
+Click [HERE to Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
