@@ -39,7 +39,7 @@ Email:  *newsletter@indivisibleacton.org*
 
 ---
 
-Click [HERE](http://www.indivisibleacton.org/general-information/elections.html) to read about our Election Policies.  
+Click [HERE](http://www.indivisibleacton.org/general-information/elections.html) to read about our Election Policies, how to find out how your State Representatives and Senators voted and more about what's going on in the MA State House!
 
 
 ---
