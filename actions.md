@@ -39,6 +39,10 @@ Email:  *newsletter@indivisibleacton.org*
 
 ---
 
+Click [HERE](http://www.indivisibleacton.org/general-information/elections.html) to read about our Election Policies.  
+
+
+---
 ### Other Resources
 
 [Indivisible MA](https://www.indivisible-ma.org)  
