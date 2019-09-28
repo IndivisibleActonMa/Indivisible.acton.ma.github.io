@@ -39,17 +39,17 @@ Email:  *newsletter@indivisibleacton.org*
 
 ---
 
-Click [HERE](http://www.indivisibleacton.org/general-information/elections.html) to read about our Election Policies, how to find out how your State Representatives and Senators voted and more about what's going on in the MA State House!
-
+Click [HERE](http://www.indivisibleacton.org/general-information/whats-going-on-in-the-ma-state-house.html) to find out how your State Representatives and Senators voted and more about what's going on in the MA State House!
 
 ---
+
 ### Other Resources
 
-[Indivisible MA](https://www.indivisible-ma.org)  
+[Indivisible MA](https://www.indivisible-ma.org)
 
 [Rogan's List](http://roganslist.blogspot.com)
 
-[Americans Of Conscience](https://americansofconscience.com)  
+[Americans Of Conscience](https://americansofconscience.com)
 
 [5calls.org](http://5calls.org)
 
