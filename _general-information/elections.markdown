@@ -1,6 +1,7 @@
 ---
 title: Elections
 date: 2019-09-28 09:14:00 -04:00
+layout: page
 ---
 
 ---
