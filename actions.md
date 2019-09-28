@@ -43,6 +43,8 @@ Email:  *newsletter@indivisibleacton.org*
 
 [MA House Leadership](https://malegislature.gov/Legislators/Leadership)
 
+[Indivisible MA](https://www.indivisible-ma.org)  
+
 [Rogan's List](http://roganslist.blogspot.com)
 
 [Americans Of Conscience](https://americansofconscience.com)  
