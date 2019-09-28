@@ -41,8 +41,6 @@ Email:  *newsletter@indivisibleacton.org*
 
 ### Other Resources
 
-[MA House Leadership](https://malegislature.gov/Legislators/Leadership)
-
 [Indivisible MA](https://www.indivisible-ma.org)  
 
 [Rogan's List](http://roganslist.blogspot.com)
