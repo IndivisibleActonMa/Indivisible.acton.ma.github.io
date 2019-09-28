@@ -5,8 +5,6 @@ main-image:
 layout: page
 ---
 
-
-
 ### Getting involved
 
 [Join Indivisible Acton-Area](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton) and you get our twice weekly newsletter!
@@ -17,10 +15,9 @@ Sign up for Indivisible MA's statewide newsletter [HERE](https://www.indivisible
 
 Sign up for emails from Indivisible National [HERE](https://indivisible.org).
 
-Learn [How to Take Action](/uploads/Indivisible%20Presentation.pdf)! 
+Learn [How to Take Action](/uploads/Indivisible%20Presentation.pdf)!
 
-
-Questions?  Email us at *info@indivisibleacton.org* 
+Questions?  Email us at *info@indivisibleacton.org*
 
 ---
 
@@ -36,10 +33,9 @@ Questions?  Email us at *info@indivisibleacton.org*
 
 ### Newsletter
 
-Our weekly newsletter comes out on Wednesday.  ***The deadline for submitting an item is Monday, 4p.***  
+Our weekly newsletter comes out on Wednesday.  ***The deadline for submitting an item is Monday, 4p.***
 
 Email:  *newsletter@indivisibleacton.org*
-
 
 ---
 
@@ -47,11 +43,9 @@ Email:  *newsletter@indivisibleacton.org*
 
 [MA House Leadership](https://malegislature.gov/Legislators/Leadership)
 
-[Representatives](http://www.indivisibleacton.org/2018-ma-state-primary.html)
+[Rogan's List](http://roganslist.blogspot.com)
 
-[Elections](http://www.indivisibleacton.org/local-2018-elections.html)
-
-[Relationships with Specific Issue Organizations - MA Chapters](http://www.indivisibleacton.org/events/relationships-with-issue-organizations.html)
+[Americans Of Conscience](https://americansofconscience.com)  
 
 [5calls.org](http://5calls.org)
 
