@@ -22,10 +22,6 @@ layout: page
 
 ---
 
-### Thursday, Oct 3
-
-* **5:30-7p**, Concord:  ***FORUM: Congresswoman Lori Trahan with End Citizens United Action*** - Join Congresswoman Trahan with End Citizens United Action's President Tiffany Muller to discuss getting money out of politics.  Click [HERE](https://www.facebook.com/events/1115967912126369/) for more info. Concord-Carlisle High School, 500 Walden St, Concord, MA.  
-
 
 ### Saturday, Oct 5
 
@@ -61,6 +57,11 @@ layout: page
 * **11a**, Boston: ***Moms Demand Aaction for Gun Safety Advocacy Day*** - Join Moms Demand Action for Advocacy Day at the Massachusetts State House. We will be lobbying with our legislators for Firearms Safety bills.  Gathering in Room 437 starting at 11:00 am. Program begins at 11:30 am, then we will break into groups to visit with legislators to advocate for our bills. You will receive info on the bills ahead of time.  [RSVP HERE](https://act.everytown.org/event/moms-demand-action-event/26060/signup).  
 
 * **7-9p**, Concord:  ***POSTCARDing for the ROE Act*** - Join us to write postcards, asking voters to call or email their MA State Representative and Senator in support of the ROE Act. Colonial Inn, Tap Room, Concord, MA  
+
+### Thursday, Oct 3
+
+* **5:30-7p**, Concord:  ***FORUM: Congresswoman Lori Trahan with End Citizens United Action*** - Join Congresswoman Trahan with End Citizens United Action's President Tiffany Muller to discuss getting money out of politics.  Click [HERE](https://www.facebook.com/events/1115967912126369/) for more info. Concord-Carlisle High School, 500 Walden St, Concord, MA.  
+
 
 ### Saturday, Oct 5
 
