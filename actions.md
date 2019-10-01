@@ -33,7 +33,12 @@ Questions?  Email us at *info@indivisibleacton.org*
 
 ### Newsletter
 
-Our weekly newsletter comes out on Wednesday.  ***The deadline for submitting an item is Monday, 4p.***
+Our bi-weekly newsletter comes out on Tuesdays and Fridays!
+
+Newsletter deadlines:  
+
+* Deadline for Tuesday:  Monday, 4p. 
+* Deadline for Friday:   Thursday, 4p. 
 
 Email:  *newsletter@indivisibleacton.org*
 
