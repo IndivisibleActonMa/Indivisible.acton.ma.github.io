@@ -66,6 +66,11 @@ layout: page
 
 * **7-9p**, Cambridge:  ***Naomi Klein - ON FIRE: The (Burning) Case for a Green New Deal***.  Click [HERE](http://www.harvard.com/event/naomi_klein1/) for more info.  Get tickets [HERE](https://www.eventbrite.com/e/naomi-klein-at-first-parish-church-tickets-70076760477?aff=efbeventtix&fbclid=IwAR2Jgj-KExTwKTPNd9-HMFp7T8dyAPgoRVkoEyvJ1z_tARD8DbFrjrBKA20).
 
+### Sunday, Oct 13  
+
+* **3:30-5:30p**, Concord: ***Candlelight Vigil "Standing Up for Migrant Children" - Join a group of concerned citizens from Concord and surrounding communities to stand up for migrant children.  Click [HERE](https://www.facebook.com/events/first-parish-in-concord-unitarian-universalist/candlelight-vigil-standing-up-for-migrant-children/688586331639765/) for more information.  First Parish in Concord, 20 Lexington Rd, Concord, MA  
+
+  
 ### Tuesday, Oct 15
 
 * **6:30-8:45p**, Acton: ***Indivisible Acton Area General Monthly Meeting*** - *Senator Eldridge* is our guest speaker!  Acton Memorial Library, 486 Main St, Acton, MA
