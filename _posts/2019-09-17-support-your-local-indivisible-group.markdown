@@ -2,7 +2,8 @@
 title: Support Your Local Indivisible Group!!
 date: 2019-09-17 19:33:00 -04:00
 is featured: true
-main-image: https://secure.actblue.com/goals/70268.png?size=large&style=dark
+main-image: "/uploads/I-AA-logo.png"
+Goal Thermometer: <img src="https://secure.actblue.com/goals/70268.png?size=large&style=dark"/>
 ---
 
 Indivisible-Acton Area is fundraising to support local activists in lobbying and education statewide.
