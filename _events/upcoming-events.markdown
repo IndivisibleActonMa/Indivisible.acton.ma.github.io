@@ -71,6 +71,8 @@ layout: page
   
 ### Tuesday, Oct 15
 
+* **1-2p**, Burlington:  ***October Jericho Walk*** - The Jericho Walk is a silent interfaith prayer and act of solidarity.  Click [HERE](https://www.facebook.com/events/2387208214940495/) for more info.  
+
 * **6:30-8:45p**, Acton: ***Indivisible Acton Area General Monthly Meeting*** - *Senator Eldridge* is our guest speaker!  Acton Memorial Library, 486 Main St, Acton, MA
 
 ### Thursday, Oct 17
