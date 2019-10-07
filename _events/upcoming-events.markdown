@@ -83,7 +83,7 @@ layout: page
 
 ### Saturday, Oct 19
 
-* **3-5p**, Boston:  \***National Period Day Rally** - Help elevate the issue of period poverty and demand real change to making period products more accessible for all.  Click [HERE](https://www.facebook.com/events/466864063878477/) for more info.  Learn about the **"I AM"** bill in Massachusetts ([S.1274](https://malegislature.gov/Bills/191/S1274)/[H.1959](https://malegislature.gov/Bills/191/H1959)).  1 City Hall Plaza, Boston, MA.
+* **3-5p**, Boston:  ***National Period Day Rally** * - Help elevate the issue of period poverty and demand real change to making period products more accessible for all.  Click [HERE](https://www.facebook.com/events/466864063878477/) for more info.  Learn about the **"I AM"** bill in Massachusetts ([S.1274](https://malegislature.gov/Bills/191/S1274)/[H.1959](https://malegislature.gov/Bills/191/H1959)).  1 City Hall Plaza, Boston, MA.
 
 ---
 
