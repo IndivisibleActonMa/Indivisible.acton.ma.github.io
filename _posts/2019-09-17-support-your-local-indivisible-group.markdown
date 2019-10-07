@@ -9,6 +9,5 @@ Indivisible-Acton Area is fundraising to support local activists in lobbying and
 
 We have a local benefactor willing to match donations ***dollar for dollar up to $100 per month***!
 
-Click [HERE](https://secure.actblue.com/donate/indivisibleama411742968) to donate.  No amount is too small!!  We have work to do!!
+Click [HERE](https://secure.actblue.com/donate/indivisibleama411742968?refcode=thermometer<img src="https://secure.actblue.com/goals/70268.png?size=large&style=dark"/>) to donate.  No amount is too small!!  We have work to do!!
 
-<img src="https://secure.actblue.com/goals/70268.png?size=large&style=dark" />
