@@ -5,7 +5,7 @@ is featured: true
 main-image: "/uploads/I-AA-logo.png"
 ---
 
-Indivisible-Acton Area is fundraising to support local activists in lobbying and education statewide.
+Indivisible-Acton Area is fundraising to support local activists as they advocate for the rights and dignity of all people through civic and electoral action statewide and nationally.
 
 We have a local benefactor willing to match donations ***dollar for dollar up to $100 per month***!
 
