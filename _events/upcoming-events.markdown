@@ -68,7 +68,7 @@ layout: page
 
 ### Sunday, Oct 13  
 
-* **3:30-5:30p**, Concord: ***Candlelight Vigil "Standing Up for Migrant Children" - Join a group of concerned citizens from Concord and surrounding communities to stand up for migrant children.  Click [HERE](https://www.facebook.com/events/first-parish-in-concord-unitarian-universalist/candlelight-vigil-standing-up-for-migrant-children/688586331639765/) for more information.  First Parish in Concord, 20 Lexington Rd, Concord, MA  
+* **3:30-5:30p**, Concord: ***Candlelight Vigil "Standing Up for Migrant Children"*** - Join a group of concerned citizens from Concord and surrounding communities to stand up for migrant children.  Click [HERE](https://www.facebook.com/events/first-parish-in-concord-unitarian-universalist/candlelight-vigil-standing-up-for-migrant-children/688586331639765/) for more information.  First Parish in Concord, 20 Lexington Rd, Concord, MA  
 
   
 ### Tuesday, Oct 15
