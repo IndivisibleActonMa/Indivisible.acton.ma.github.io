@@ -11,4 +11,4 @@ We have a local benefactor willing to match donations ***dollar for dollar up to
 
 Click [HERE](https://secure.actblue.com/donate/indivisibleama411742968) to donate.  No amount is too small!!  We have work to do!!
 
-<img src="{{ https://secure.actblue.com/goals/70268.png?size=large&style=dark }}" />
+<img src="https://secure.actblue.com/goals/70268.png?size=large&style=dark" />
