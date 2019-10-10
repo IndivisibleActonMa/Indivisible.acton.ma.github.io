@@ -70,7 +70,7 @@ layout: page
 
 ### Tuesday, Oct 15
 
-* **10a-4:30p**, Boston: ***Support Data Equity!*** - Show up for ALL communities in MA by supporting [The Data Equity Bill (H.2681)](https://malegislature.gov/Bills/191/H2681). Click [HERE](http://www.indivisibleacton.org/uploads/image2.jpeg) to learn about data equity.  Click [HERE](https://www.facebook.com/events/838868316511241/) for more info.  MA State House, 24 Beacon St, Boston, MA  02108
+* **10a-4:30p**, Boston: ***Support Data Equity!*** - Show up for ALL communities in MA by supporting [The Data Equity Bill (H.2681)](https://malegislature.gov/Bills/191/H2681). Click [HERE](http://www.indivisibleacton.org/uploads/image2.jpeg) to learn about data equity.  Click [HERE](https://www.facebook.com/events/838868316511241/) for more info.  MA State House, Gardner Auditorium, 24 Beacon St, Boston, MA  02108
 
 
 * **1-2p**, Burlington:  ***October Jericho Walk*** - The Jericho Walk is a silent interfaith prayer and act of solidarity.  Click [HERE](https://www.facebook.com/events/2387208214940495/) for more info.
