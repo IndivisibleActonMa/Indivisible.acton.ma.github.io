@@ -8,10 +8,10 @@ layout: page
 
 ---
 
-* Click [**HERE**](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal) to see events published on Indivisible Acton's Public Facebook page.
+* Click **[HERE](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal)** to see events published on Indivisible Acton's Public Facebook page.
 
 
-* Check our [**CALENDAR**](http://www.indivisibleacton.org/calendar.html) for *regularly scheduled events* and other events of interest.
+* Check our **[CALENDAR](http://www.indivisibleacton.org/calendar.html)** for *regularly scheduled events* and other events of interest.
 
 ---
 
@@ -41,7 +41,7 @@ layout: page
 
 ## Some Events to Consider
 
----  
+---
 
 ### Wednesday, Oct 2
 
@@ -64,17 +64,16 @@ layout: page
 
 * **7-9p**, Cambridge:  ***Naomi Klein - ON FIRE: The (Burning) Case for a Green New Deal***.  Click [HERE](http://www.harvard.com/event/naomi_klein1/) for more info.  Get tickets [HERE](https://www.eventbrite.com/e/naomi-klein-at-first-parish-church-tickets-70076760477?aff=efbeventtix&fbclid=IwAR2Jgj-KExTwKTPNd9-HMFp7T8dyAPgoRVkoEyvJ1z_tARD8DbFrjrBKA20).
 
-### Sunday, Oct 13  
+### Sunday, Oct 13
 
-* **3:30-5:30p**, Concord: ***Candlelight Vigil "Standing Up for Migrant Children"*** - Join a group of concerned citizens from Concord and surrounding communities to stand up for migrant children.  Click [HERE](https://www.facebook.com/events/first-parish-in-concord-unitarian-universalist/candlelight-vigil-standing-up-for-migrant-children/688586331639765/) for more information.  First Parish in Concord, 20 Lexington Rd, Concord, MA  
+* **3:30-5:30p**, Concord: ***Candlelight Vigil "Standing Up for Migrant Children"*** - Join a group of concerned citizens from Concord and surrounding communities to stand up for migrant children.  Click [HERE](https://www.facebook.com/events/first-parish-in-concord-unitarian-universalist/candlelight-vigil-standing-up-for-migrant-children/688586331639765/) for more information.  First Parish in Concord, 20 Lexington Rd, Concord, MA
 
-  
 ### Tuesday, Oct 15
 
-* **10a-4:30p**, Boston: ***Support Data Equity!*** - Show up for ALL communities in MA by supporting [The Data Equity Bill H.2681](https://malegislature.gov/Bills/191/H2681).  Click [HERE](https://www.facebook.com/events/838868316511241/) for more info.  MA State House, 24 Beacon St, Boston, MA  02108  
+* **10a-4:30p**, Boston: ***Support Data Equity!*** - Show up for ALL communities in MA by supporting [The Data Equity Bill (H.2681)](https://malegislature.gov/Bills/191/H2681). Click [HERE](http://www.indivisibleacton.org/uploads/image2.jpeg) to learn about data equity.  Click [HERE](https://www.facebook.com/events/838868316511241/) for more info.  MA State House, 24 Beacon St, Boston, MA  02108
 
 
-* **1-2p**, Burlington:  ***October Jericho Walk*** - The Jericho Walk is a silent interfaith prayer and act of solidarity.  Click [HERE](https://www.facebook.com/events/2387208214940495/) for more info.  
+* **1-2p**, Burlington:  ***October Jericho Walk*** - The Jericho Walk is a silent interfaith prayer and act of solidarity.  Click [HERE](https://www.facebook.com/events/2387208214940495/) for more info.
 
 * **6:30-8:45p**, Acton: ***Indivisible Acton Area General Monthly Meeting*** - *Senator Eldridge* is our guest speaker!  Acton Memorial Library, 486 Main St, Acton, MA
 
@@ -86,17 +85,15 @@ layout: page
 
 ### Saturday, Oct 19
 
-* **3-5p**, Boston:  ***National Period Day Rally** * - Help elevate the issue of period poverty and demand real change to making period products more accessible for all.  Click [HERE](https://www.facebook.com/events/466864063878477/) for more info.  Learn about the **"I AM"** bill in Massachusetts ([S.1274](https://malegislature.gov/Bills/191/S1274)/[H.1959](https://malegislature.gov/Bills/191/H1959)).  1 City Hall Plaza, Boston, MA.
-
+* **3-5p**, Boston:  \***National Period Day Rally** \* - Help elevate the issue of period poverty and demand real change to making period products more accessible for all.  Click [HERE](https://www.facebook.com/events/466864063878477/) for more info.  Learn about the **"I AM"** bill in Massachusetts ([S.1274](https://malegislature.gov/Bills/191/S1274)/[H.1959](https://malegislature.gov/Bills/191/H1959)).  1 City Hall Plaza, Boston, MA.
 
 ### Saturday, Oct 26
 
-* **10a-12p**, West Concord:  ***Concord Activist Huddle*** - Come join your neighbors and activist leaders to Fight for People, Planet & Democracy!  Click [HERE](https://actionnetwork.org/events/concord-activist-huddle/?link_id=1) for more info.  Harvey Wheeler Community Center•1276 Main St, West Concord, MA 01742  
+* **10a-12p**, West Concord:  ***Concord Activist Huddle*** - Come join your neighbors and activist leaders to Fight for People, Planet & Democracy!  Click [HERE](https://actionnetwork.org/events/concord-activist-huddle/?link_id=1) for more info.  Harvey Wheeler Community Center•1276 Main St, West Concord, MA 01742
 
 ### Wednesday, Oct 30
 
-* **10:30a-12:30p**, Boston:  ***ROE Act Advocacy Day*** - Help keep Massachusetts a leader in health care access and reproductive rights!  Click [HERE](https://www.facebook.com/events/2252709184837527/) for more info. MA State House, 24 Beacon St, Boston, MA 02133  
-
+* **10:30a-12:30p**, Boston:  ***ROE Act Advocacy Day*** - Help keep Massachusetts a leader in health care access and reproductive rights!  Click [HERE](https://www.facebook.com/events/2252709184837527/) for more info. MA State House, 24 Beacon St, Boston, MA 02133
 
 ---
 
