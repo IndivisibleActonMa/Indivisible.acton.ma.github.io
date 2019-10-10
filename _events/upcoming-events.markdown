@@ -85,6 +85,11 @@ layout: page
 
 * **3-5p**, Boston:  ***National Period Day Rally** * - Help elevate the issue of period poverty and demand real change to making period products more accessible for all.  Click [HERE](https://www.facebook.com/events/466864063878477/) for more info.  Learn about the **"I AM"** bill in Massachusetts ([S.1274](https://malegislature.gov/Bills/191/S1274)/[H.1959](https://malegislature.gov/Bills/191/H1959)).  1 City Hall Plaza, Boston, MA.
 
+
+### Saturday, Oct 26
+
+* **10a-12p**, West Concord:  ***Concord Activist Huddle*** - Come join your neighbors and activist leaders to Fight for People, Planet & Democracy!  Click [HERE](https://actionnetwork.org/events/concord-activist-huddle/?link_id=1) for more info.  Harvey Wheeler Community Center•1276 Main St, West Concord, MA 01742  
+
 ### Wednesday, Oct 30
 
 * **10:30a-12:30p**, Boston:  ***ROE Act Advocacy Day*** - Help keep Massachusetts a leader in health care access and reproductive rights!  Click [HERE](https://www.facebook.com/events/2252709184837527/) for more info. MA State House, 24 Beacon St, Boston, MA 02133  

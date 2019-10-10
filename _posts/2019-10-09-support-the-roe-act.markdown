@@ -1,6 +1,6 @@
 ---
 title: Support the ROE Act!
-date: 2019-09-23 21:15:00 -04:00
+date: 2019-10-09 18:15:00 -04:00
 is featured: true
 ---
 
@@ -8,13 +8,13 @@ Indivisible Acton Area supports the **ROE Act** for reproductive rights.  We are
 
 The next two months are *critical* because the legislators take a break on November 20, so we want to generate as *many calls as possible*!
 
-Contact Linda ***roeact2019@gmail.com*** for more info.  
+Contact Linda ***roeact2019@gmail.com*** for more info.
 
-We meet **regularly** on the **1st and 3rd Saturdays** at **Bagels Plus** in Acton and on the **2nd and 4th Tuesday** at the **Reuben Hoar Public Library** in Littleton.  Check out our [CALENDAR](http://www.indivisibleacton.org/calendar.html) for details.  
+We meet **regularly** on the **1st and 3rd Saturdays** at **Bagels Plus** in Acton and on the **2nd and 4th Tuesday** at the **Reuben Hoar Public Library** in Littleton.  Check out our [CALENDAR](http://www.indivisibleacton.org/calendar.html) for details.
 
 ---
 
-Join us for POSTCARDS **Wednesday, Oct 2, 7-9p** in the *Tap Room at the Colonial Inn, Concord*!
+*Please join us for **ROE Act Advocacy Day** Wednesday, Oct 30, 10:30a-12:30p at the MA State House!*  Check our [CALENDAR](http://www.indivisibleacton.org/calendar.html) or [Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html) for more info.  
 
 ---
 
