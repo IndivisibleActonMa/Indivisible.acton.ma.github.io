@@ -91,6 +91,10 @@ layout: page
 
 * **10a-12p**, West Concord:  ***Concord Activist Huddle*** - Come join your neighbors and activist leaders to Fight for People, Planet & Democracy!  Click [HERE](https://actionnetwork.org/events/concord-activist-huddle/?link_id=1) for more info.  Harvey Wheeler Community Center•1276 Main St, West Concord, MA 01742
 
+### Tuesday, Oct 29  
+
+* **7:30-8:30p**, Acton:  ***Moms Demand Action*** - This is the official launch of the new Middlesex North team!  Come learn how you can take action towards ending the epidemic of gun violence.  [RSVP HERE](https://northeast-moms.ngpvanhost.com/ngpvanforms/69604).  St. Matthews United Methodist Church, 435 Central St, Acton, MA  
+
 ### Wednesday, Oct 30
 
 * **10:30a-12:30p**, Boston:  ***ROE Act Advocacy Day*** - Help keep Massachusetts a leader in health care access and reproductive rights!  Click [HERE](https://www.facebook.com/events/2252709184837527/) for more info. MA State House, 24 Beacon St, Boston, MA 02133
