@@ -40,8 +40,9 @@ test-mailchimp: "<!-- Begin MailChimp Signup Form -->\n<link href=\"//cdn-images
   $mcj = jQuery.noConflict(true);</script>\n<!--End mc_embed_signup-->"
 test-picture: <img alt="Monthly Meetings" src=/uploads/INDIVISIBLE-%20ACTON%20Welcomes%20you%20to%20our%20upcoming%20Monthly%20Meetings.jpg;
   img {max-width:100%} />
-layout: default
+layout: page
 ---
 
 {
-<link href='https://actionnetwork.org/css/style-embed-v3.css' rel='stylesheet' type='text/css' /><script src='https://actionnetwork.org/widgets/v3/form/join-indivisible-acton?format=js&source=widget'></script><div id='can-form-area-join-indivisible-acton' style='width: 100%'></div>}
+<link href='https://actionnetwork.org/css/style-embed-v3.css' rel='stylesheet' type='text/css' /><script src='https://actionnetwork.org/widgets/v3/form/join-indivisible-acton?format=js&source=widget'></script><div id='can-form-area-join-indivisible-acton' style='width: 100%'></div>
+}
