@@ -9,9 +9,9 @@ layout: page
 
 You can become a member by clicking the links below. We provide different channels by which you can be reached, which include our newsletter, our google group and our facebook group as people have different preferences. Join one, join all!
 
-* [Click here to join](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton) and get our twice weekly newsletter!
+* Click [HERE TO JOIN](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton){:target="_blank"} and get our twice weekly newsletter!
 
-* [Please join our Facebook Group "Indivisible Acton Area"](https://www.facebook.com/groups/IndivisibleActon/)  where all the events and action are posted.
+* [Please join our Facebook Group "Indivisible Acton Area"](https://www.facebook.com/groups/IndivisibleActon/){:target="_blank"}  where all the events and action are posted.
 
 ---
 
