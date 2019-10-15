@@ -11,7 +11,7 @@ Come hear inspiring speakers and then join us for take action breakouts at Indiv
 
 *Senator Jamie Eldridge* will be our guest speaker!
 
-Click [HERE](http://www.indivisibleacton.org//uploads/General%20Meeting%20Flyer%2010.15.19.pdf) for more info.
+Click [HERE](http://www.indivisibleacton.org//uploads/General%20Meeting%20Flyer%2010.15.19.pdf){:target="_blank"} for more info.
 
 Social half hour starts at 6:30pm and the meeting starts at 7pm.
 
