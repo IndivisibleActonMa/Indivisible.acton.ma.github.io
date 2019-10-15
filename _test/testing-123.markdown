@@ -43,6 +43,4 @@ test-picture: <img alt="Monthly Meetings" src=/uploads/INDIVISIBLE-%20ACTON%20We
 layout: page
 ---
 
-{
-<link href='https://actionnetwork.org/css/style-embed-v3.css' rel='stylesheet' type='text/css' /><script src='https://actionnetwork.org/widgets/v3/form/join-indivisible-acton?format=js&source=widget'></script><div id='can-form-area-join-indivisible-acton' style='width: 50%'></div>
-}
+{<link href='https://actionnetwork.org/css/style-embed-v3.css' rel='stylesheet' type='text/css' /><script src='https://actionnetwork.org/widgets/v3/form/join-indivisible-acton?format=js&source=widget'></script><div id='can-form-area-join-indivisible-acton' style='width: 40%'></div>}
