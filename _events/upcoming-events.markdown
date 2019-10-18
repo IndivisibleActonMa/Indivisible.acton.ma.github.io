@@ -97,7 +97,7 @@ Click [HERE](https://parentingjourney.org/social-family-justice-institute/){:tar
  
 ### Saturday, Oct 26
 
-* **10a-12p**, West Concord:  ***Concord Activist Huddle*** - Come join your neighbors and activist leaders to Fight for People, Planet & Democracy!  Click [HERE](https://actionnetwork.org/events/concord-activist-huddle/?link_id=1){:target="_blank"} for more info.  Harvey Wheeler Community Center•1276 Main St, West Concord, MA 01742
+* **10a-12p**, West Concord:  ***Concord Activist Huddle*** - Come join your neighbors and activist leaders to Fight for People, Planet & Democracy!  Click [HERE](https://actionnetwork.org/events/concord-activist-huddle/?link_id=1){:target="_blank"} for more info.  Harvey Wheeler Community Center•1276 Main St, West Concord, MA 01742  
 
 ### Tuesday, Oct 29  
 
