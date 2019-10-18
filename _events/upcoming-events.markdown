@@ -111,7 +111,7 @@ Click [HERE](https://parentingjourney.org/social-family-justice-institute/){:tar
 * **10:30a-12:30p**, Boston:  ***ROE Act Advocacy Day*** - Help keep Massachusetts a leader in health care access and reproductive rights!  Click [HERE](https://www.facebook.com/events/2252709184837527/){:target="_blank"} for more info. MA State House, 24 Beacon St, Boston, MA 02133  
 
 ---
-### Save the Date
+### Save the Date  
 
 ###  Saturday, Nov 2
 
