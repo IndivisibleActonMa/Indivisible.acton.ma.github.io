@@ -106,7 +106,9 @@ Click [HERE](https://parentingjourney.org/social-family-justice-institute/){:tar
 
 * **7:30-8:30p**, Acton:  ***Moms Demand Action*** - This is the official launch of the new Middlesex North team!  Come learn how you can take action towards ending the epidemic of gun violence.  [RSVP HERE](https://northeast-moms.ngpvanhost.com/ngpvanforms/69604){:target="_blank"}.  St. Matthews United Methodist Church, 435 Central St, Acton, MA  
 
+### Wednesday Oct 30
 
+* NOTE - Due to the large response, the ***ROE Act Advocacy Day*** has been rescheduled to Thursday Nov 14 (see below).  
 
 ---
 ### Save the Date  
