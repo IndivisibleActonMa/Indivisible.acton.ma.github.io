@@ -117,6 +117,10 @@ Click [HERE](https://parentingjourney.org/social-family-justice-institute/){:tar
 
 * **8-11p**, Hudson:  ***Emma's Revolution Free Our Children*** - A Benefit Concert for Families Belong Together and UU Mass Action!  Click [HERE](https://www.facebook.com/events/2164138003883746/?active_tab=about){:target="_blank"} for more info.  
 
+### Monday, Nov 4
+
+* **6:30-8:45p**, Acton: ***November General Meeting*** - Join us for our November General Meeting at the Acton Memorial Library, 486 Main St, Acton, MA.  Stay tuned for more details!  
+
 ---
 
 
