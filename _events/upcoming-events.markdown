@@ -121,6 +121,9 @@ Click [HERE](https://parentingjourney.org/social-family-justice-institute/){:tar
 
 * **6:30-8:45p**, Acton: ***November General Meeting*** - Join us for our November General Meeting at the Acton Memorial Library, 486 Main St, Acton, MA.  Stay tuned for more details!  
 
+### Tuesday, Nov 5
+
+* **8-9a**, Burlington:  ***November Jericho Walk at Burlington ICE*** - The Jericho Walk is a silent interfaith prayer and act of solidarity.   Burlington ICE, 1000 District Avenue, Burlington (behind Burlington Mall).  
 ---
 
 
