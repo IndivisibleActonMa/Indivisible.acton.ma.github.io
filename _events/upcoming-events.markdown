@@ -106,9 +106,7 @@ Click [HERE](https://parentingjourney.org/social-family-justice-institute/){:tar
 
 * **7:30-8:30p**, Acton:  ***Moms Demand Action*** - This is the official launch of the new Middlesex North team!  Come learn how you can take action towards ending the epidemic of gun violence.  [RSVP HERE](https://northeast-moms.ngpvanhost.com/ngpvanforms/69604){:target="_blank"}.  St. Matthews United Methodist Church, 435 Central St, Acton, MA  
 
-### Wednesday, Oct 30
 
-* **10:30a-12:30p**, Boston:  ***ROE Act Advocacy Day*** - Help keep Massachusetts a leader in health care access and reproductive rights!  Click [HERE](https://www.facebook.com/events/2252709184837527/){:target="_blank"} for more info. MA State House, 24 Beacon St, Boston, MA 02133  
 
 ---
 ### Save the Date  
@@ -124,6 +122,11 @@ Click [HERE](https://parentingjourney.org/social-family-justice-institute/){:tar
 ### Tuesday, Nov 5
 
 * **8-9a**, Burlington:  ***November Jericho Walk at Burlington ICE*** - The Jericho Walk is a silent interfaith prayer and act of solidarity.   Burlington ICE, 1000 District Avenue, Burlington (behind Burlington Mall).  
+
+### Thursday, Nov 14  
+
+
+* **10a-3p**, Boston:  ***ROE Act Advocacy Day*** - Help keep Massachusetts a leader in health care access and reproductive rights!  Click [HERE](https://www.facebook.com/events/2252709184837527/){:target="_blank"} for more info. SEIU 32BJ Meeting Hall, 26 West Street, Boston, MA 02111 
 
 ---
 
