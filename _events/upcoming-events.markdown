@@ -80,7 +80,7 @@ layout: page
 
 ### Thursday, Oct 17
 
-* **9:30a**, Boston:  ***League of Women Voters Lobby Day*** - Let's take to the field and make our voices heard!  The program will also focus on legislation in four priority areas: Election Day Registration, the climate crisis, education funding reform and women's reproductive rights. Coffee at 9:30a and the program starts promptly at 10a. After the program ends at noon, plan to meet with your own Senator and Representative. Click [HERE](https://lwvma.org/senate-president-spilka-keynotes-lwvma-day-on-the-hill/){:target="_blank"} for more info and how to register.  MA State House, Room 428.
+* **9:30a**, Boston:  ***League of Women Voters Lobby Day*** - Let's take to the field and make our voices heard!  The program will also focus on legislation in four priority areas: Election Day Registration, the climate crisis, education funding reform and women's reproductive rights. Coffee at 9:30a and the program starts promptly at 10a. After the program ends at noon, plan to meet with your own Senator and Representative.  Click [HERE](https://lwvma.org/senate-president-spilka-keynotes-lwvma-day-on-the-hill/){:target="_blank"} for more info and how to register.  MA State House, Room 428.
 
 * **4-7p**, Westford: ***Westford Climate Action NOW Rally*** - Come protest on the Westford Town Common for climate action now! Westford Town Common, Westford, MA
 
@@ -93,7 +93,7 @@ layout: page
 
 ### Tuesday, Oct 22
 
-* **8-11a**, Boston:  ***[Parenting Journey Social & Family Justice Institute](https://parentingjourney.org/social-family-justice-institute/){:target="_blank"}*** Join like-minded professionals from non-profits, government agencies, philanthropic foundations, and corporations to address systems in our society that disproportionately affect people of color, low-income families, and immigrants.  
+* **8-11a**, Boston:  ***[Parenting Journey Social & Family Justice Institute](https://parentingjourney.org/social-family-justice-institute/){:target="_blank"}*** Join like-minded professionals from non-profits, government agencies, philanthropic foundations, and corporations to address systems in our society that disproportionately affect people of color, low-income families, and immigrants. 
 Click [HERE](https://parentingjourney.org/social-family-justice-institute/){:target="_blank"} for more info and to reserve your ticket!  
 
 * **7:30-9p**, Concord:  ***Born on Third Base: Engaging Wealth and Power to Reverse Inequality*** - Chuck Collins, an expert on U.S. inequality and the racial divide, will speak at First Parish, 20 Lexington Road, Concord  .  
