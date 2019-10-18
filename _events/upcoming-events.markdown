@@ -86,6 +86,9 @@ layout: page
 
 ### Saturday, Oct 19
 
+* **Anytime between 9a-4p**, Anywhere: ***Wave of Women Massachusetts*** - invites you to continue to act visibly in your own community, to raise your voice and make your message known in *YOUR TOWN*, on *YOUR TIME*, about *YOUR TOPIC*. Join us for the third annual WAVE as we take to our hometown corners across Massachusetts on October 19, 2019. Find a visible place in your town to stand with a sign of your making anytime between 9am and 4pm, for twenty minutes, to spread your message of love, peace, solidarity, social justice, equality, inclusion, human rights, education, the environment. Go it alone, with a friend, or better yet as a group. Participants are encouraged to post photos to social media with the hashtag #waveofwomenma.  Please direct questions to Cristin Hodgens at this e-mail address, waveofwomenma@gmail.com. 
+
+
 * **3-5p**, Boston:  ***National Period Day Rally*** - Help elevate the issue of period poverty and demand real change to making period products more accessible for all.  Click [HERE](https://www.facebook.com/events/466864063878477/){:target="_blank"} for more info.  Learn about the **"I AM"** bill in Massachusetts ([S.1274](https://malegislature.gov/Bills/191/S1274){:target="_blank"}/[H.1959](https://malegislature.gov/Bills/191/H1959){:target="_blank"}).  1 City Hall Plaza, Boston, MA.
 
 ### Tuesday, Oct 22
