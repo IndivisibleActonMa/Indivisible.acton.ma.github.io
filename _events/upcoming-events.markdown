@@ -124,6 +124,7 @@ Click [HERE](https://parentingjourney.org/social-family-justice-institute/){:tar
 ### Tuesday, Nov 5
 
 * **8-9a**, Burlington:  ***November Jericho Walk at Burlington ICE*** - The Jericho Walk is a silent interfaith prayer and act of solidarity.   Burlington ICE, 1000 District Avenue, Burlington (behind Burlington Mall).  
+
 ---
 
 
