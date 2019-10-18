@@ -33,6 +33,7 @@ layout: page
 
 * **10a-12p**, Acton: ***Postcard Writing!*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA.
 
+
 ### Tuesday, Oct 29
 
 * **6:30-8:30p**, Littleton: ***Postcard Writing Meet-up*** - Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA 01460
@@ -87,6 +88,13 @@ layout: page
 
 * **3-5p**, Boston:  ***National Period Day Rally*** - Help elevate the issue of period poverty and demand real change to making period products more accessible for all.  Click [HERE](https://www.facebook.com/events/466864063878477/){:target="_blank"} for more info.  Learn about the **"I AM"** bill in Massachusetts ([S.1274](https://malegislature.gov/Bills/191/S1274){:target="_blank"}/[H.1959](https://malegislature.gov/Bills/191/H1959){:target="_blank"}).  1 City Hall Plaza, Boston, MA.
 
+### Tuesday, Oct 22
+
+* **8-11a**, Boston:  ***[Parenting Journey Social & Family Justice Institute](https://parentingjourney.org/social-family-justice-institute/){:target="_blank"}*** Join like-minded professionals from non-profits, government agencies, philanthropic foundations, and corporations to address systems in our society that disproportionately affect people of color, low-income families, and immigrants.  
+Click [HERE](https://parentingjourney.org/social-family-justice-institute/){:target="_blank"} for more info and to reserve your ticket!  
+
+* **7:30-9p**, Concord:  ***Born on Third Base: Engaging Wealth and Power to Reverse Inequality*** - Chuck Collins, an expert on U.S. inequality and the racial divide, will speak at First Parish, 20 Lexington Road, Concord  .  
+ 
 ### Saturday, Oct 26
 
 * **10a-12p**, West Concord:  ***Concord Activist Huddle*** - Come join your neighbors and activist leaders to Fight for People, Planet & Democracy!  Click [HERE](https://actionnetwork.org/events/concord-activist-huddle/?link_id=1){:target="_blank"} for more info.  Harvey Wheeler Community Center•1276 Main St, West Concord, MA 01742
