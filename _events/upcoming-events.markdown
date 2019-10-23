@@ -102,6 +102,12 @@ Click [HERE](https://parentingjourney.org/social-family-justice-institute/){:tar
 
 * **10a-12p**, West Concord:  ***Concord Activist Huddle*** - Come join your neighbors and activist leaders to Fight for People, Planet & Democracy!  Click [HERE](https://actionnetwork.org/events/concord-activist-huddle/?link_id=1){:target="_blank"} for more info.  Harvey Wheeler Community Center•1276 Main St, West Concord, MA 01742  
 
+### Monday, Oct 28
+
+* **11a-4p**, Boston:  ***Public Hearing for An Act Regulating Bodyworks*** - MA Bill [S.168](https://malegislature.gov/Bills/191/S168){:target="_blank"} is being presented as a solution to abolish human trafficking and prostitution.  As written, S.168 would arbitrarily and inaccurately redefine hundreds of holistic occupations as bodywork.  
+Click [HERE](https://www.change.org/p/stop-s168-formerly-sd1840-protect-the-right-to-practice-teach-access-natural-healing-therapies-in-ma){:target="_blank"} for more info.  Gardiner Auditorium, MA State House, 24 Beacon St, Boston, MA 02133. 
+
+
 ### Tuesday, Oct 29  
 
 * **7:30-8:30p**, Acton:  ***Moms Demand Action*** - This is the official launch of the new Middlesex North team!  Come learn how you can take action towards ending the epidemic of gun violence.  [RSVP HERE](https://northeast-moms.ngpvanhost.com/ngpvanforms/69604){:target="_blank"}.  St. Matthews United Methodist Church, 435 Central St, Acton, MA  
