@@ -66,7 +66,7 @@ Click [HERE](https://www.change.org/p/stop-s168-formerly-sd1840-protect-the-righ
 * NOTE - Due to the large response, the ***ROE Act Advocacy Day*** has been rescheduled to Thursday Nov 14 (see below).  
 
 ---
-### Save the Date  
+## Save the Date  
 ---
 ###  Saturday, Nov 2
 
