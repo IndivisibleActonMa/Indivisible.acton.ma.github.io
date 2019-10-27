@@ -13,6 +13,8 @@ layout: page
 
 * Check our **[CALENDAR](http://www.indivisibleacton.org/calendar.html){:target="_blank"}** for *regularly scheduled events* and other events of interest.
 
+* [Sign up for our newsletter](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton){:target="_blank"} to find out more ways you can get involved!
+
 ---
 
 ## Biweekly Postcard Meet-ups
