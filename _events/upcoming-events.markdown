@@ -125,7 +125,7 @@ Click [HERE](https://www.change.org/p/stop-s168-formerly-sd1840-protect-the-righ
 
 ### Monday, Nov 4
 
-* **6:30-8:45p**, Acton: ***November General Meeting*** - Join us for our November General Meeting at the Acton Memorial Library, 486 Main St, Acton, MA.  Stay tuned for more details!  
+* **6:30-8:45p**, Acton: ***November General Meeting*** - Join us for our November General Meeting at the Acton Memorial Library, 486 Main St, Acton, MA.  Click [HERE](http://www.indivisibleacton.org/2019/10/26/general-meeting-and-future-plans.html) for more info.  
 
 ### Tuesday, Nov 5
 
