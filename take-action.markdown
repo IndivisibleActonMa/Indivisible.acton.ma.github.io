@@ -10,6 +10,9 @@ layout: page
 
 Click [HERE for Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
 
+Click [HERE for Indivisible MA newsletters](https://us17.campaign-archive.com/home/?u=3129bf2656ae4f5f1dcba96ad&id=70e7531ca3){:target="_blank"}
+
+
 ---
 
 ### Take Action for Immigration
