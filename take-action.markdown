@@ -57,45 +57,45 @@ Here are some helpful tools that help share actions and news.
 
 ### Text
 
-Click [HERE to learn all about how to use texting to help mobilize people!](https://docs.google.com/document/d/1PvjgTv0y5wthNdlEJeMkg6K3hE4HOoeRAgTfFO2PSQM)
+Click [HERE to learn all about how to use texting to help mobilize people!](https://docs.google.com/document/d/1PvjgTv0y5wthNdlEJeMkg6K3hE4HOoeRAgTfFO2PSQM){:target="_blank"}
 
-Click [HERE to learn about The Open Progress Text Troop](https://www.openprogress.com/text-troop)
+Click [HERE to learn about The Open Progress Text Troop](https://www.openprogress.com/text-troop){:target="_blank"}
 
 ### Postcards
 
-Click [HERE to learn about writing postcards to voters](http://www.postcardstovoters.org)
+Click [HERE to learn about writing postcards to voters](http://www.postcardstovoters.org){:target="_blank"}
 
 ### Twitter
 
-Use Twitter to follow Indivisible Acton (@IndActonMA) and help spread the word!  Click [HERE](https://drive.google.com/file/d/0BwLIGG6Uwnr_Y0h2a3EwS0hiWTF6dHNkLXR1OUZMOGhibHpr/view) for an  introduction to twitter.
+Use Twitter to follow Indivisible Acton (@IndActonMA) and help spread the word!  Click [HERE](https://drive.google.com/file/d/0BwLIGG6Uwnr_Y0h2a3EwS0hiWTF6dHNkLXR1OUZMOGhibHpr/view){:target="_blank"} for an  introduction to twitter.
 
 ### Facebook
 
-Become a member of [Indivisible Acton-Area on Facebook](https://www.facebook.com/groups/indivisibleacton) to find out about events, share ideas, stay informed.
+Become a member of [Indivisible Acton-Area on Facebook](https://www.facebook.com/groups/indivisibleacton){:target="_blank"} to find out about events, share ideas, stay informed.
 
 ### Representantives
 
-* [MA House Leadership](https://malegislature.gov/Legislators/Leadership)  
+* [MA House Leadership](https://malegislature.gov/Legislators/Leadership){:target="_blank"}  
 
-* Need to communicate with your Representatives?  Click [HERE](http://www.indivisibleacton.org/2018-ma-state-primary.html) for contact info, and other tools for contacting your officials!
+* Need to communicate with your Representatives?  Click [HERE](http://www.indivisibleacton.org/2018-ma-state-primary.html){:target="_blank"} for contact info, and other tools for contacting your officials!
 
-* [Helpful tips](https://docs.google.com/document/d/1vKG49nreg_Y2_xr2dzYfwcPF4KOFvGRoX6caxWKrMUQ/)  to writing/emailing your representatives.
+* [Helpful tips](https://docs.google.com/document/d/1vKG49nreg_Y2_xr2dzYfwcPF4KOFvGRoX6caxWKrMUQ/){:target="_blank"}  to writing/emailing your representatives.
 
 ### State Legislature - Bills & Laws
 
-* Click [HERE](https://www.actonmass.org) to keep track of what's going on in the MA State House.
+* Click [HERE](https://www.actonmass.org){:target="_blank"} to keep track of what's going on in the MA State House.
 
-* Click [HERE](https://malegislature.gov/Bills/Search) to search for a specific legislation, for legislation sponsored by a particular legislator, by Senate, by House, external group, type of legislation and more!
+* Click [HERE](https://malegislature.gov/Bills/Search){:target="_blank"} to search for a specific legislation, for legislation sponsored by a particular legislator, by Senate, by House, external group, type of legislation and more!
 
 ---
 
 ### Other resources
 
-* [Swing Left Greater Boston](https://swingleftboston.org)
+* [Swing Left Greater Boston](https://swingleftboston.org){:target="_blank"}
 
-* [Americans of Conscience](https://americansofconscience.com)
+* [Americans of Conscience](https://americansofconscience.com){:target="_blank"}
 
-* [Rogan's List](http://roganslist.blogspot.com)
+* [Rogan's List](http://roganslist.blogspot.com){:target="_blank"}
 
 ---
 
