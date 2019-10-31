@@ -80,6 +80,11 @@ Click [HERE](https://www.change.org/p/stop-s168-formerly-sd1840-protect-the-righ
 
 * **8-9a**, Burlington:  ***November Jericho Walk at Burlington ICE*** - The Jericho Walk is a silent interfaith prayer and act of solidarity.   Burlington ICE, 1000 District Avenue, Burlington (behind Burlington Mall).  
 
+### Saturday, Nov 9  
+
+* **5:30-8:00p**, Andover: ***International Festival*** - Fundraiser for Justice for Our Neighbors ([JFON](http://www.newenglandjfon.org)).  Food and Entertainment!  Silent Auction!  Click [HERE](http://www.newenglandjfon.org/new-events/2019/11/9/international-festival){:target="_blank"} for more info.  
+
+
 ### Thursday, Nov 14  
 
 
