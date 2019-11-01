@@ -46,28 +46,6 @@ layout: page
 
 ---
  
- 
-### Saturday, Oct 26
-
-* **10a-12p**, West Concord:  ***Concord Activist Huddle*** - Come join your neighbors and activist leaders to Fight for People, Planet & Democracy!  Click [HERE](https://actionnetwork.org/events/concord-activist-huddle/?link_id=1){:target="_blank"} for more info.  Harvey Wheeler Community Center•1276 Main St, West Concord, MA 01742  
-
-### Monday, Oct 28
-
-* **11a-4p**, Boston:  ***Public Hearing for An Act Regulating Bodyworks*** - MA Bill [S.168](https://malegislature.gov/Bills/191/S168){:target="_blank"} is being presented as a solution to abolish human trafficking and prostitution.  As written, S.168 would arbitrarily and inaccurately redefine hundreds of holistic occupations as bodywork.  
-Click [HERE](https://www.change.org/p/stop-s168-formerly-sd1840-protect-the-right-to-practice-teach-access-natural-healing-therapies-in-ma){:target="_blank"} for more info.  Gardiner Auditorium, MA State House, 24 Beacon St, Boston, MA 02133. 
-
-
-### Tuesday, Oct 29  
-
-* **7:30-8:30p**, Acton:  ***Moms Demand Action*** - This is the official launch of the new Middlesex North team!  Come learn how you can take action towards ending the epidemic of gun violence.  [RSVP HERE](https://northeast-moms.ngpvanhost.com/ngpvanforms/69604){:target="_blank"}.  St. Matthews United Methodist Church, 435 Central St, Acton, MA  
-
-### Wednesday Oct 30
-
-* NOTE - Due to the large response, the ***ROE Act Advocacy Day*** has been rescheduled to Thursday Nov 14 (see below).  
-
----
-## Save the Date  
----
 ###  Saturday, Nov 2
 
 * **8-11p**, Hudson:  ***Emma's Revolution Free Our Children*** - A Benefit Concert for Families Belong Together and UU Mass Action!  Click [HERE](https://www.facebook.com/events/2164138003883746/?active_tab=about){:target="_blank"} for more info.  
@@ -89,6 +67,13 @@ Click [HERE](https://www.change.org/p/stop-s168-formerly-sd1840-protect-the-righ
 
 
 * **10a-3p**, Boston:  ***ROE Act Advocacy Day*** - Help keep Massachusetts a leader in health care access and reproductive rights!  Click [HERE](https://www.facebook.com/events/2252709184837527/){:target="_blank"} for more info. SEIU 32BJ Meeting Hall, 26 West Street, Boston, MA 02111 
+
+---
+## Save the Date  
+---
+### Saturday, Dec 7
+
+* **8:30a-5:30p**, Worcester:  ***Indivisible MA Conference*** - Everyone welcome.  Many topics will be addressed.  Click [HERE](https://www.indivisible-ma.org/convening-2019/){:target="_blank"} for more info.  
 
 ---
 
