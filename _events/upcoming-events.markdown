@@ -68,6 +68,12 @@ layout: page
 
 * **10a-3p**, Boston:  ***ROE Act Advocacy Day*** - Help keep Massachusetts a leader in health care access and reproductive rights!  [SIGN UP HERE](https://actionnetwork.org/forms/roe-act-advocacy-day){:target="_blank"} to join us for Advocacy Day.  Click [HERE](https://www.facebook.com/events/2252709184837527/){:target="_blank"} for more info. SEIU 32BJ Meeting Hall, 26 West Street, Boston, MA 02111 
 
+### Saturday, Nov 16
+
+* **7-9p**, Stow:  ***[An Evening of Storytelling](https://www.facebook.com/events/389504865054442/?active_tab=about){:target="_blank"}*** - Please join us for an evening of storytelling to benefit Asylum Seekers in our Local Community.  Tickets are $20 [HERE](https://asylum-support.bpt.me){:target="_blank"} or at the door.  Click [HERE](https://www.uumassaction.org/new-events/2019/11/16/an-evening-of-storytelling-fpc-stow-amp-acton){:target="_blank"} for more info.  
+First Parish Church of Stow & Acton, 353 Great Road Stow, MA, 01775  
+
+
 ---
 ## Save the Date  
 ---
