@@ -14,7 +14,7 @@ We meet **regularly** on the **1st and 3rd Saturdays** at **Bagels Plus** in Act
 
 ---
 
-*Please join us for **ROE Act Advocacy Day** Wednesday, Nov 14, 10a-3p at the MA State House!*  Check our [CALENDAR](http://www.indivisibleacton.org/calendar.html) or [Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html) for more info.  
+*Please join us for **ROE Act Advocacy Day** Wednesday, Nov 14, 11a at the MA State House!*  Check our [CALENDAR](http://www.indivisibleacton.org/calendar.html) or [Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html) for more info.  
 
 ---
 
