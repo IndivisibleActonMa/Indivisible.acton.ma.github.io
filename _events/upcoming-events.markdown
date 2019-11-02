@@ -66,7 +66,7 @@ layout: page
 ### Thursday, Nov 14  
 
 
-* **10a-3p**, Boston:  ***ROE Act Advocacy Day*** - Help keep Massachusetts a leader in health care access and reproductive rights!  [SIGN UP HERE](https://actionnetwork.org/forms/roe-act-advocacy-day){:target="_blank"} to join us for Advocacy Day.  Click [HERE](https://www.facebook.com/events/2252709184837527/){:target="_blank"} for more info. SEIU 32BJ Meeting Hall, 26 West Street, Boston, MA 02111 
+* **11a-2p**, Boston:  ***ROE Act Advocacy Day*** - Help keep Massachusetts a leader in health care access and reproductive rights!  [SIGN UP HERE](https://actionnetwork.org/forms/roe-act-advocacy-day){:target="_blank"} to join us for Advocacy Day.  Click [HERE](https://www.facebook.com/events/2252709184837527/){:target="_blank"} for more info. SEIU 32BJ Meeting Hall, 26 West Street, Boston, MA 02111 
 
 ### Saturday, Nov 16
 
