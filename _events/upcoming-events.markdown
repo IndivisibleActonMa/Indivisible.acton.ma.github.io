@@ -23,6 +23,8 @@ layout: page
 
 * **6:30-9p**, Concord: ***Drop in anytime and help us finish the last postcards asking voters to call their representatives in support of the ROE Act!***  Please join us to finish the last 650 postcards to be mailed by Nov 9!! Caffè Nero, 55 Main St, Concord, MA 01742
 
+---
+
 ## Biweekly Postcard Meet-ups
 
 *Special Focus on the [ROE Act](http://www.indivisibleacton.org/2019/09/23/support-the-roe-act.html){:target="_blank"} September, October and November*.
