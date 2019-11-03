@@ -77,6 +77,11 @@ layout: page
 
 * **7-9p**, Stow:  ***[An Evening of Storytelling](https://www.facebook.com/events/389504865054442/?active_tab=about){:target="_blank"}*** - Please join us for an evening of storytelling to benefit Asylum Seekers in our Local Community.  Tickets are $20 [HERE](https://asylum-support.bpt.me){:target="_blank"} or at the door.  Click [HERE](https://www.uumassaction.org/new-events/2019/11/16/an-evening-of-storytelling-fpc-stow-amp-acton){:target="_blank"} for more info. First Parish Church of Stow & Acton, 353 Great Road Stow, MA, 01775
 
+
+### Monday, Sep 18
+
+* **7:30-9p**, Concord:  ***Film: [Suppressed: The Fight to Vote](https://www.bravenewfilms.org/suppressed){:target="_blank"}*** - Come see this documentary and see how the basic constitutional right to vote continues to be under siege in America. [RSVP HERE](https://www.bravenewfilms.org/suppressed_concordma){:target="_blank"}. First Parish Concord, 20 Lexington Rd, Concord, MA.  
+
 ---
 
 ## Save the Date
