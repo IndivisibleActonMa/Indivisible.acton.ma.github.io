@@ -65,6 +65,11 @@ layout: page
 
 * **8-9a**, Burlington:  ***November Jericho Walk at Burlington ICE*** - The Jericho Walk is a silent interfaith prayer and act of solidarity.   Burlington ICE, 1000 District Avenue, Burlington (behind Burlington Mall).
 
+### Wednesday, Nov 6
+
+* **1-5p**, Boston: ***Ranked Choice Voting Hearing*** - Please join us to advocate on behalf of this legislation. Click [HERE] (https://malegislature.gov/Events/Hearings/Detail/3350){:target="_blank"} for more info. MA State House, Hearing Room A-1. 
+
+
 ### Saturday, Nov 9
 
 * **5:30-8:00p**, Andover: ***International Festival*** - Fundraiser for Justice for Our Neighbors ([JFON](http://www.newenglandjfon.org)).  Food and Entertainment!  Silent Auction!  Click [HERE](http://www.newenglandjfon.org/new-events/2019/11/9/international-festival){:target="_blank"} for more info.
