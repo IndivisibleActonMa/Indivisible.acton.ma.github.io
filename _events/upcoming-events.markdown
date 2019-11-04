@@ -67,7 +67,7 @@ layout: page
 
 ### Wednesday, Nov 6
 
-* **1-5p**, Boston: ***Ranked Choice Voting Hearing*** - Please join us to advocate on behalf of this legislation. Click [HERE] (https://malegislature.gov/Events/Hearings/Detail/3350){:target="_blank"} for more info. MA State House, Hearing Room A-1. 
+* **1-5p**, Boston: ***Ranked Choice Voting Hearing*** - Please join us to advocate on behalf of this legislation. Click [HERE](https://malegislature.gov/Events/Hearings/Detail/3350){:target="_blank"} for more info. MA State House, Hearing Room A-1. 
 
 
 ### Saturday, Nov 9
