@@ -53,6 +53,10 @@ Click [HERE for Indivisible MA newsletters](https://us17.campaign-archive.com/ho
 
 * Call your Members of Congress and explain that you object to imposing asylum application fees on people fleeing persecution and danger. Not only is this amoral and inhumane, the American Immigration Lawyers Association says the president’s plan “contradicts international law” and still “fails to ensure orderly processing.” Ask your MOCs are doing to stop the president’s asylum fee and instead heal the root causes of life-threatening conditions in Guatemala, Honduras, and El Salvador? (H/T Americans of Conscience Checklist).
 
+### Other
+
+* Universal Basic Income:  Read about the proposed pilot program in Massachusetts [H.1632](https://malegislature.gov/Bills/191/H1632){:target="_blank"}.  Learn more about Alex Howlett's Basic Income theory [HERE](http://www.greshm.org){:target="_blank"}.  
+
 
 ---
 
