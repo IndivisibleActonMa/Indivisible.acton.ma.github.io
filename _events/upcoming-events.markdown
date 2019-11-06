@@ -70,7 +70,9 @@ layout: page
 * **1-5p**, Boston: ***Ranked Choice Voting Hearing*** - Please join us to advocate on behalf of this legislation. Click [HERE](https://malegislature.gov/Events/Hearings/Detail/3350){:target="_blank"} for more info. MA State House, Hearing Room A-1. 
 
 
-### Saturday, Nov 9
+### Saturday, Nov 9  
+
+* **10a-12p**, Concord:  ***Concord Activist Huddle*** - Join fellow activists to get informed and take action!  Check [Concord Indivisible's calendar](https://concordindivisible.org/current-actions/) for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742
 
 * **5:30-8:00p**, Andover: ***International Festival*** - Fundraiser for Justice for Our Neighbors ([JFON](http://www.newenglandjfon.org)).  Food and Entertainment!  Silent Auction!  Click [HERE](http://www.newenglandjfon.org/new-events/2019/11/9/international-festival){:target="_blank"} for more info.
 
