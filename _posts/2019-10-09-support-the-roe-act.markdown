@@ -24,10 +24,6 @@ We meet **regularly** on the **1st and 3rd Saturdays** at **Bagels Plus** in Act
 
 ---
 
-*Please join us for **ROE Act Advocacy Day** Wednesday, Nov 14, 11a at the MA State House!*  Check our [CALENDAR](http://www.indivisibleacton.org/calendar.html) or [Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html) for more info.
-
----
-
 Find out if your [lawmakers](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors){:target="_blank"} support the **ROE Act**.
 
 Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act){:target="_blank"} for more information about the **ROE Act**.
