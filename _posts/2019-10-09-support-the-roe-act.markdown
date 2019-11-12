@@ -14,7 +14,7 @@ Contact Linda ***roeact2019@gmail.com*** for more info.
 
 ### ROE Act Advocacy Day!
 
-Please join us for the ***ROE Act Advocacy Day***!  You've written postcards. You've called your Representatives. Now come and meet with lawmakers and encourage them to swiftly move this important bill forward. Check your newsletter or click [HERE](https://www.facebook.com/events/2252709184837527/){:target="_blank"} for more info.  
+Please join us for the ***ROE Act Advocacy Day***!  You've written postcards. You've called your Representatives. Now come and meet with lawmakers and encourage them to swiftly move this important bill forward. Check the [CALENDAR](http://www.indivisibleacton.org/calendar.html), your newsletter or click [HERE](https://www.facebook.com/events/2252709184837527/){:target="_blank"} for more info.  
 
 ***THANK YOU*** to everyone who has written postcards for the ROE Act! *We have sent out over 10,000 postcards*.
 
