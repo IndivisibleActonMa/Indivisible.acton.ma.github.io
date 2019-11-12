@@ -12,15 +12,9 @@ Contact Linda ***roeact2019@gmail.com*** for more info.
 
 ---
 
-### Special Postcarding event
+### ROE Act Advocacy Day!
 
-**Wednesday, Nov 6, 6:30-9:00p** (drop by anytime) at Caffè Nero, 55 Main St, Concord, MA 01742.
-
-We will be writing to voters asking them to call their representative in support of the ROE Act.  *Only 650 postcards left to write!*
-
-Enjoy some tea and pastry or take some postcards to write at home.
-
-Help us finish these to be mailed by November 9th.  Legislators go on break Nov 20 so this the last week to mail these postcards.
+Please join us for the ROE Act Advocacy Day!  You've written postcards. You've called your Representatives. Now come and meet with lawmakers and encourage them to swiftly move this important bill forward. Check your newsletter or click [HERE](https://www.facebook.com/events/2252709184837527/){:target="_blank"} for more info.  
 
 ***THANK YOU*** to everyone who has written postcards for the ROE Act! *We have sent out over 10,000 postcards*.
 
@@ -34,9 +28,9 @@ We meet **regularly** on the **1st and 3rd Saturdays** at **Bagels Plus** in Act
 
 ---
 
-Find out if your [lawmakers](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors) support the **ROE Act**.
+Find out if your [lawmakers](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors){:target="_blank"} support the **ROE Act**.
 
-Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act) for more information about the **ROE Act**.
+Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act){:target="_blank"} for more information about the **ROE Act**.
 
 ---
 
