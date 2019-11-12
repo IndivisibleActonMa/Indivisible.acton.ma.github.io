@@ -20,8 +20,6 @@ layout: page
 
 ## Biweekly Postcard Meet-ups
 
-*Special Focus on the [ROE Act](http://www.indivisibleacton.org/2019/09/23/support-the-roe-act.html){:target="_blank"} September, October and November*.
-
 ---
 
 ### Saturday, Nov 2
