@@ -1,6 +1,6 @@
 ---
 title: December General Meeting!
-date: 2019-10-26 23:25:00 -04:00
+date: 2019-11-12 07:25:00 -05:00
 is featured: true
 event-start-date: 2019-12-02 18:30:00 -05:00
 event-end-date: 2019-12-02 20:45:00 -05:00
