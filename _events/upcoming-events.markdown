@@ -90,7 +90,7 @@ layout: page
 
 ### Monday, Dec 2
 
-* **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - Come join us for the December General Meeting.  Guest speakers are [ACT on MASS](https://actonmass.org)!  Learn how to stay informed about what's happening in our State House and how to talk with our legislators.  
+* **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - Come join us for the December General Meeting.  Guest speakers are [ACT on MASS](https://actonmass.org){:target="_blank"}!  Learn how to stay informed about what's happening in our State House and how to talk with our legislators.  
 
 * **9a-5p**, Boston:  ***Safe Communities Act Public Hearing*** - Join immigrants and allies across the State to support the Safe Communities Act!  Click [HERE](https://www.facebook.com/events/561186044654289/){:target="_blank"} for more info.  MA State House, Gardner Auditorium, 24 Beacon St, Boston.  
 
