@@ -15,13 +15,6 @@ layout: page
 
 * [Sign up for our newsletter](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton){:target="_blank"} to find out more ways you can get involved!
 
----
-
-## Special ROE Postcard Meetup
-
-### Wednesday, Nov 6
-
-* **6:30-9p**, Concord: ***Drop in anytime and help us finish the last postcards asking voters to call their representatives in support of the ROE Act!***  Please join us to finish the last 650 postcards to be mailed by Nov 9!! Caffè Nero, 55 Main St, Concord, MA 01742
 
 ---
 
