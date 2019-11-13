@@ -4,7 +4,13 @@ date: 2019-05-06 10:41:00 -04:00
 layout: page
 ---
 
-![45665167_10214842620752195_8233914530812395520_n.jpg](/uploads/45665167_10214842620752195_8233914530812395520_n.jpg)
+![Indivisible MA conference.jpeg](/uploads/Indivisible%20MA%20conference.jpeg)
+
+**WE NEED YOU!** 
+
+256 days left until November 3, 2020. *We must FLIP THE SENATE, KEEP THE HOUSE, and TAKE BACK THE STATE LEGISLATURES to repair Democracy.* 
+
+*Please* don't wait on the sidelines - it's all hands on deck now until election day.
 
 ---
 
