@@ -10,7 +10,7 @@ layout: page
 
 256 days left until November 3, 2020. *We must FLIP THE SENATE, KEEP THE HOUSE, and TAKE BACK THE STATE LEGISLATURES to repair Democracy.* 
 
-*Please* don't wait on the sidelines - it's all hands on deck now until election day.
+*Please* don't wait on the sidelines - ***it's all hands on deck now until election day.***
 
 ---
 
