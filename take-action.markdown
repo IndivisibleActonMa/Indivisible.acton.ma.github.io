@@ -4,7 +4,7 @@ date: 2019-05-06 10:41:00 -04:00
 layout: page
 ---
 
-![Indivisible MA conference.jpeg](/uploads/Indivisible%20MA%20conference.jpeg)
+![Indivisible MA conference copy.jpg](/uploads/Indivisible%20MA%20conference%20copy.jpg)
 
 **WE NEED YOU!** 
 
