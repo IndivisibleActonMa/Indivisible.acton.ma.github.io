@@ -12,6 +12,8 @@ layout: page
 
 *Please* don't wait on the sidelines - ***it's all hands on deck now until election day.***
 
+***Ezra Levine, the co-founder and co-director of Indivisible, will be speaking at the Conference. He will lead a working session on Impeachment and the Strategy for 2020.***  
+
 ---
 
 Click [HERE for the Activist Alliance Newsletter](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?usp=sharing){:target="_blank"}  
