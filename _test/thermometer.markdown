@@ -10,16 +10,11 @@ No amount is too small!!  We have work to do!!
 
 Have a nice day!
 
+### We Need You
+
 ---
 
-<html>
-<head>
 <meta name="viewport" content="width=device-width, initial-scale=1">
-<style>
-
-</style>
-</head>
-<body>
 
 ### WE NEED YOU!
 
@@ -53,9 +48,6 @@ var x = setInterval(function() {
   }
 }, 1000);
 </script>
-
-</body>
-</html>
 
 We must ***FLIP the SENATE, KEEP the HOUSE and TAKE BACK the State Legislatures to repair Democracy***.
 
