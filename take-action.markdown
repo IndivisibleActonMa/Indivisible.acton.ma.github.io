@@ -12,9 +12,9 @@ layout: page
 
 *Please* don't wait on the sidelines - ***it's all hands on deck now until election day.***
 
-***Ezra Levine, the co-founder and co-director of Indivisible, will be speaking at the Conference. He will lead a working session on Impeachment and the Strategy for 2020.  Also, Congresswoman Ayanna Pressley, Senators Becca Raush and Jamie Eldridge, plus Swing Left, Progressive Mass, Act on Mass to name a few!***
+***Ezra Levine, the co-founder and co-director of Indivisible, will be speaking at the Conference. He will lead a working session on Impeachment and the Strategy for 2020.  Congresswoman Ayanna Pressley is our keynote speaker!  Also joining us -  Senators Becca Raush and Jamie Eldridge, plus Swing Left, Progressive Mass, Act on Mass to name a few!***
 
-[REGISTER HERE](https://www.indivisible-ma.org/register/){:target="_blank"}!!  
+[REGISTER HERE](https://www.indivisible-ma.org/register/){:target="_blank"}!!
 
 Look forward to seeing *YOU* there!
 
