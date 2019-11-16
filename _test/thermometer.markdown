@@ -22,7 +22,7 @@ p {
 </head>
 <body>
 
-<p id="demo"></p> <p>days left! </p>
+<p id="demo"></p>
 
 <script>
 // Set the date we're counting down to
@@ -41,7 +41,7 @@ var x = setInterval(function() {
   var days = Math.floor(distance / (1000 * 60 * 60 * 24));
  
   // Output the result in an element with id="demo"
-  document.getElementById("demo").innerHTML = days;
+  document.getElementById("demo").innerHTML = days + " days left";
     
   // If the count down is over, write some text 
   if (distance < 0) {
