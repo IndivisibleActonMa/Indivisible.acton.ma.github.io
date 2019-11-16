@@ -1,7 +1,7 @@
 ---
 title: Thermometer
 date: 2019-10-06 21:42:00 -04:00
-viewport: "{<html>\n<head>\n<meta name=\"viewport\" content=\"width=device-width,
+viewport: "{\n<html>\n<head>\n<meta name=\"viewport\" content=\"width=device-width,
   initial-scale=1\">\n<style>\np {\n  text-align: center;\n  font-size: 60px;\n  margin-top:
   0px;\n}\n</style>\n</head>\n<body>\n\n<p id=\"demo\"></p>\n\n<script>\n// Set the
   date we're counting down to\nvar countDownDate = new Date(\"Nov 3 2020 20:00\").getTime();\n\n//
