@@ -21,7 +21,8 @@ Have a nice day!
 </head>
 <body>
 
-<p id="demo"></p>
+<p id="demo">
+</p>
 
 <script>
 // Set the date we're counting down to
