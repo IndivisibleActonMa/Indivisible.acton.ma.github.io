@@ -40,7 +40,7 @@ var x = setInterval(function() {
   var days = Math.floor(distance / (1000 * 60 * 60 * 24));
  
   // Output the result in an element with id="demo"
-  document.getElementById("demo").innerHTML = days + " days left";
+  document.getElementById("demo").innerHTML = days + " days left until Nov 3, 2020!";
     
   // If the count down is over, write some text 
   if (distance < 0) {
@@ -53,8 +53,8 @@ var x = setInterval(function() {
 </body>
 </html>
 
-***More stuff goes here***
+We must ***FLIP the SENATE, KEEP the HOUSE and TAKE BACK the State Legislatures to repair Democracy***.
 
-**BOLD**
+Please don't wait on the sidelines.  **It's all hands on deck now until election day!**
 
 *Italics*
