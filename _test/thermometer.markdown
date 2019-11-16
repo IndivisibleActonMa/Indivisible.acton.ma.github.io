@@ -14,6 +14,11 @@ script: "<script>\n// Set the date we're counting down to\nvar countDownDate = n
 layout: page
 ---
 
+<p id="demo">
+</p>
+
+
+
 [<img src="https://secure.actblue.com/goals/70268.png?size=large&style=dark"/>](https://secure.actblue.com/donate/indivisibleama411742968?refcode=thermometer){:target="_blank"} to donate.
 
 No amount is too small!!  We have work to do!!
@@ -29,8 +34,6 @@ Have a nice day!
 ### WE NEED YOU!
 
 
-<p id="demo">
-</p>
 
 
 We must ***FLIP the SENATE, KEEP the HOUSE and TAKE BACK the State Legislatures to repair Democracy***.
