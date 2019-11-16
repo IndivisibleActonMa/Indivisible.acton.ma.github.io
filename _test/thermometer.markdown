@@ -22,7 +22,7 @@ p {
 </head>
 <body>
 
-<p id="demo"> days left</p>
+<p id="demo"></p> days left!
 
 <script>
 // Set the date we're counting down to
