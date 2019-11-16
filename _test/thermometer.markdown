@@ -14,6 +14,7 @@ viewport: "<html>\n<head>\n<meta name=\"viewport\" content=\"width=device-width,
   \n  if (distance < 0) {\n    clearInterval(x);\n    document.getElementById(\"demo\").innerHTML
   = \"EXPIRED\";\n  }\n}, 1000);\n</script>\n\n</body>\n</html>\n\n***More stuff goes
   here***\n\n**BOLD**\n\n*Italics*\n"
+layout: page
 ---
 
 [<img src="https://secure.actblue.com/goals/70268.png?size=large&style=dark"/>](https://secure.actblue.com/donate/indivisibleama411742968?refcode=thermometer){:target="_blank"} to donate.
