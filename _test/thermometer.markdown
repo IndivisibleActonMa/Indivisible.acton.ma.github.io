@@ -15,14 +15,14 @@ Have a nice day!
 <style>
 p {
   text-align: left;
-  font-size: 60px;
+  font-size: 20px;
   margin-top: 0px;
 }
 </style>
 </head>
 <body>
 
-<p id="demo"></p>
+<p id="demo"> days left</p>
 
 <script>
 // Set the date we're counting down to
