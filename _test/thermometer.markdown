@@ -5,6 +5,13 @@ layout: page
 ---
 
 [<img src="https://secure.actblue.com/goals/70268.png?size=large&style=dark"/>](https://secure.actblue.com/donate/indivisibleama411742968?refcode=thermometer){:target="_blank"} to donate.
+<style>
+p {
+  text-align: left;
+  font-size: 20px;
+  margin-top: 0px;
+}
+</style>
 
 No amount is too small!!  We have work to do!!
 
