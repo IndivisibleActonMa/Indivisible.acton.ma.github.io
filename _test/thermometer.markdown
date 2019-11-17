@@ -35,7 +35,7 @@ test1.innerHTML = days + " days left until Nov 3, 2020!";
     clearInterval(x);
     document.getElementById("demo").innerHTML = "EXPIRED";
   }
-}, 1000);
+}, 60*60*1000);
 </script>
 
 ---
