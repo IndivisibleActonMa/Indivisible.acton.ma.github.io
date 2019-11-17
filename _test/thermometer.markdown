@@ -7,6 +7,7 @@ layout: page
 <p id="demo">
 </p>
 
+
 <script>
 // Set the date we're counting down to
 var countDownDate = new Date("Nov 3 2020 00:00");
@@ -36,6 +37,7 @@ test1.innerHTML = days + " days left until Nov 3, 2020!";
 }, 1000);
 </script>
 
+---
 
 [<img src="https://secure.actblue.com/goals/70268.png?size=large&style=dark"/>](https://secure.actblue.com/donate/indivisibleama411742968?refcode=thermometer){:target="_blank"} to donate.
 
