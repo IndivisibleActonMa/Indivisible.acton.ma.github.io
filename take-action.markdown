@@ -7,7 +7,6 @@ layout: page
 <p id="demo">
 </p>
 
-
 <script>
 // Set the date we're counting down to
 var countDownDate = new Date("Nov 3 2020 00:00");
@@ -35,7 +34,7 @@ test1.innerHTML = days + " days left until Nov 3, 2020!";
     clearInterval(x);
     document.getElementById("demo").innerHTML = "EXPIRED";
   }
-}, 60*60*1000);
+},500);
 </script>
 
 ---
