@@ -4,11 +4,47 @@ date: 2019-05-06 10:41:00 -04:00
 layout: page
 ---
 
+<p id="demo">
+</p>
+
+
+<script>
+// Set the date we're counting down to
+var countDownDate = new Date("Nov 3 2020 00:00");
+
+// Update the count down every 1 second
+var x = setInterval(function() {
+
+  // Get today's date
+  var now = new Date();
+    
+  // Find the distance between now and the count down date
+  var distance = countDownDate - now;
+    
+  // Time calculations for days
+  var days = Math.floor(distance / (1000 * 60 * 60 * 24));
+ 
+  // Output the result in an element with id="demo"
+  var test1 = document.getElementById("demo");
+  test1.style.font = "italic bold 30px arial,serif"; 
+  //test1.style.textAlign = "center";
+test1.innerHTML = days + " days left until Nov 3, 2020!";
+    
+  // If the count down is over, write some text 
+  if (distance < 0) {
+    clearInterval(x);
+    document.getElementById("demo").innerHTML = "EXPIRED";
+  }
+}, 60*60*1000);
+</script>
+
+---
+
 ![Indivisible MA conference copy.jpg](/uploads/Indivisible%20MA%20conference%20copy.jpg)
 
 **WE NEED YOU!**
 
-Less than 353 days left until November 3, 2020. *We must FLIP THE SENATE, KEEP THE HOUSE, and TAKE BACK THE STATE LEGISLATURES to repair Democracy.*
+*We must **FLIP the SENATE, KEEP the HOUSE, and TAKE BACK the STATE LEGISLATURES** to repair Democracy.*
 
 *Please* don't wait on the sidelines - ***it's all hands on deck now until election day.***
 
@@ -16,7 +52,7 @@ Less than 353 days left until November 3, 2020. *We must FLIP THE SENATE, KEEP T
 
 [REGISTER HERE](https://www.indivisible-ma.org/register/){:target="_blank"}!!
 
-Look forward to seeing *YOU* there!
+Look forward to seeing ***YOU*** there!
 
 ---
 
