@@ -29,3 +29,6 @@ Here is just some of who will be in Worcester on December 7th
 ◦    400+ local activists from every part of Massachusetts
 
 ◦    And, we hope, **YOU**!
+
+
+![Indivisible MA conference copy.jpg](/uploads/Indivisible%20MA%20conference%20copy.jpg)
