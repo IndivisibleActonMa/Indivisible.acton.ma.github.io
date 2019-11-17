@@ -15,7 +15,7 @@ var countDownDate = new Date("Nov 3 2020 00:00");
 // Update the count down every 1 second
 var x = setInterval(function() {
 
-  // Get today's date and time
+  // Get today's date
   var now = new Date();
     
   // Find the distance between now and the count down date
@@ -26,7 +26,8 @@ var x = setInterval(function() {
  
   // Output the result in an element with id="demo"
   var test1 = document.getElementById("demo");
-  test1.style.font = "italic bold 30px arial,serif";    
+  test1.style.font = "italic bold 30px arial,serif"; 
+  test1.style.textAlign = "center";
 test1.innerHTML = days + " days left until Nov 3, 2020!";
     
   // If the count down is over, write some text 
