@@ -93,6 +93,8 @@ Click [HERE for Indivisible MA newsletters](https://us17.campaign-archive.com/ho
 
 * [101 Ways to Fight Climate Change](https://www.curbed.com/2017/6/7/15749900/how-to-stop-climate-change-actions){:target="_blank"}
 
+* Let's call Mitch McConnell at (202) 224-2541 and tell him that last week's mass shooting lies squarely at his feet. He needs to pass [HR 8](https://www.congress.gov/bill/116th-congress/house-bill/8/text){:target="_blank"} and Red Flag laws now. You can also fill out [this form](https://act.everytown.org/sign/smarter-gun-laws/){:target="_blank"} from [Everytown.org](https://everytown.org/){:target="_blank"} which will send a message to Senate Majority Leader Mitch McConnell and your U.S. Senators to pass background checks and a strong red flag law that will help prevent further gun violence tragedies.  
+
 
 * Take the [Indivisible Unity Pledge](http://pledge.indivisible.org){:target="_blank"}: The pledge is that no matter our differences in the primary, once Democrats have a nominee, we’ll do everything in our power to get the nominee elected.  Click [HERE](https://www.youtube.com/watch?v=HojK7c7X3WE&link_id=18&can_id=9a7cc198611ac2a74f284fdda8e14f7e&source=email-2019-5-7-indivisible-acton-weekly-newsletter&email_referrer=email_540613&email_subject=2019-5-7-indivisible-acton-weekly-newsletter){:target="_blank"} to watch a clip about the Pledge on Rachel Maddow.
 
