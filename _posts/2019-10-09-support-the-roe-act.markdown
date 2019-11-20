@@ -30,13 +30,13 @@ Call/email all your friends/relatives in other districts especially in Western M
 
 Read and distribute [Summary of the ROE Act](https://prochoicemass.org/2019/06/06/statement-roe-act-coalition/){:target="_blank"}.
 
+Contact Linda ***roeact2019@gmail.com*** for more info.
+
+---
 
 Find out if your [lawmakers](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors){:target="_blank"} support the **ROE Act**.
 
 Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act){:target="_blank"} for more information about the **ROE Act**.
-
-Contact Linda ***roeact2019@gmail.com*** for more info.
-
 
 ---
 
