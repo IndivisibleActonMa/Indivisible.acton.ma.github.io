@@ -80,6 +80,10 @@ layout: page
 
 * **7:30-9p**, Concord:  ***Film: [Suppressed: The Fight to Vote](https://www.bravenewfilms.org/suppressed){:target="_blank"}*** - Come see this documentary and see how the basic constitutional right to vote continues to be under siege in America. [RSVP HERE](https://www.bravenewfilms.org/suppressed_concordma){:target="_blank"}. First Parish Concord, 20 Lexington Rd, Concord, MA.  
 
+### Saturday, Nov 23  
+
+* **10a-12p**, Concord: ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742
+
 ---
 
 ## Save the Date
