@@ -5,29 +5,38 @@ published: false
 is featured: true
 ---
 
-Indivisible Acton Area supports the **ROE Act** for reproductive rights.  We are writing postcards to our fellow voters asking them to contact their lawmakers and ask them to support the **ROE Act**.
 
-The next two months are *critical* because the legislators take a break on November 20, so we want to generate as *many calls as possible*!
+***THANK YOU*** to everyone who has written postcards for the ROE Act! *We have sent out over 10,000 postcards*.  
 
-Contact Linda ***roeact2019@gmail.com*** for more info.
+**Here is what needs to happen next and how you can help make that happen**. 
 
----
+The ROE Act is in the Joint Judiciary Committee and had a hearing on June 21, 2019. The committee has to take action by the 3rd Wednesday in February 2020 and has 3 options: 
 
-### ROE Act Advocacy Day!
+* Vote the bill favorably out of committee so it can be brought to the floor for a vote (this is what we want) 
+* Vote the bill unfavorably out of committee or 
+* Assign it to another committee, both of which means the bill dies.
 
-Please join us for the ***ROE Act Advocacy Day***!  You've written postcards. You've called your Representatives. Now come and meet with lawmakers and encourage them to swiftly move this important bill forward. Check the [CALENDAR](http://www.indivisibleacton.org/calendar.html), your newsletter or click [HERE](https://www.facebook.com/events/2252709184837527/){:target="_blank"} for more info.  
+### What can we do:
 
-***THANK YOU*** to everyone who has written postcards for the ROE Act! *We have sent out over 10,000 postcards*.
+It is too late for a legislator to become a cosponsor so the pressure needs to be on the members of the Judiciary Committee and other legislators to get it voted favorably out of committee. 
 
----
+Call all members on the Judiciary committee who are cosponsors to ask them to bring the ROE Act for a vote out of committee. (There are 17 legislators on this committee, 12 of which are cosponsors).  
 
-We meet **regularly** on the **1st and 3rd Saturdays** at **Bagels Plus** in Acton and on the **2nd and 4th Tuesday** at the **Reuben Hoar Public Library** in Littleton.  Check out our [CALENDAR](http://www.indivisibleacton.org/calendar.html) for details.
+Call your Representative and Senator.  Even if you have already done it, please do it again and ask 5 friends to do the same.  
 
----
+Have an in-district meeting with your Senator and Representative.  Our Senators and Reps need to know this is a priority and asked why has this bill has not been acted on.  
+
+Call/email all your friends/relatives in other districts especially in Western MA and ask them to call their legislators as well as have an in-district meeting about the ROE Act.  
+
+Read and distribute [Summary of the ROE Act](https://prochoicemass.org/2019/06/06/statement-roe-act-coalition/){:target="_blank"}.
+
 
 Find out if your [lawmakers](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors){:target="_blank"} support the **ROE Act**.
 
 Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act){:target="_blank"} for more information about the **ROE Act**.
+
+Contact Linda ***roeact2019@gmail.com*** for more info.
+
 
 ---
 
