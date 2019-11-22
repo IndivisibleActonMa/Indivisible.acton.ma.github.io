@@ -24,7 +24,7 @@ layout: page
 
 ### Tuesday, Nov 26
 
-* **6:30-8:30p**, Littleton: ***Postcard Writing Meet-up*** - Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA 01460 - **Please note this event is CANCELLED.**
+* **6:30-8:30p**, Littleton: ***Postcard Writing Meet-up*** - Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA 01460 - **PLEASE  note this event is CANCELLED.**
 
 ### Saturday, Dec 7
 
