@@ -84,6 +84,10 @@ layout: page
 
 * **10a-12p**, Concord: ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742
 
+### Sunday, Nov 24
+
+* **4-6p**, Chelmsford:  ***Film:  The Last Dream*** - The Congregation Shalom Social Action & Justice Committee is excited to invite you to the showing of *[The Last Dream](https://masstps.com/the-last-dream/){:target="_blank"}*, a play written and performed by children in MA whose parents have Temporary Protective Status (TPS).  Discussion group to follow.  Congregation Shalom, 87 Richardson Rd, North Chelmsford, MA 01863  
+
 ---
 
 ## Save the Date
