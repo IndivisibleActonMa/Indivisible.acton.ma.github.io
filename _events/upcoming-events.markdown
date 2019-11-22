@@ -22,59 +22,24 @@ layout: page
 
 ---
 
-### Saturday, Nov 2
-
-* **10a-12p**, Acton: ***Postcard Writing!*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA.
-
-### Tuesday, Nov 12
-
-* **6:30-8:30p**, Littleton: ***Postcard Writing Meet-up*** - Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA.
-
-### Saturday, Nov 16
-
-* **10a-12p**, Acton: ***Postcard Writing!*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA.
-
 ### Tuesday, Nov 26
 
 * **6:30-8:30p**, Littleton: ***Postcard Writing Meet-up*** - Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA 01460 - **Please note this event is CANCELLED.**
+
+### Saturday, Dec 7
+
+* **10a-12p**, Acton: ***Postcards*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA  **PLEASE note this event is CANCELLED due to the [Indivisible MA conference](http://www.indivisibleacton.org/2019/11/17/indivisible-ma-2019-conference.html){:target="_blank"}.**  
+
+### Saturday, Dec 21  
+
+* **10a-12p**, Acton: ***Postcards*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA  
+
 
 ---
 
 ## Some Events to Consider
 
 ---
-
-### Saturday, Nov 2
-
-* **8-11p**, Hudson:  ***Emma's Revolution Free Our Children*** - A Benefit Concert for Families Belong Together and UU Mass Action!  Click [HERE](https://www.facebook.com/events/2164138003883746/?active_tab=about){:target="_blank"} for more info.
-
-### Monday, Nov 4
-
-* **6:30-8:45p**, Acton: ***November General Meeting*** - Join us for our November General Meeting at the Acton Memorial Library, 486 Main St, Acton, MA.  Click [HERE](http://www.indivisibleacton.org/2019/10/26/general-meeting-and-future-plans.html) for more info.
-
-### Tuesday, Nov 5
-
-* **8-9a**, Burlington:  ***November Jericho Walk at Burlington ICE*** - The Jericho Walk is a silent interfaith prayer and act of solidarity.   Burlington ICE, 1000 District Avenue, Burlington (behind Burlington Mall).
-
-### Wednesday, Nov 6
-
-* **1-5p**, Boston: ***Ranked Choice Voting Hearing*** - Please join us to advocate on behalf of this legislation. Click [HERE](https://malegislature.gov/Events/Hearings/Detail/3350){:target="_blank"} for more info. MA State House, Hearing Room A-1. 
-
-
-### Saturday, Nov 9  
-
-* **10a-12p**, Concord:  ***Concord Activist Huddle*** - Join fellow activists to get informed and take action!  Check [Concord Indivisible's calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742
-
-* **5:30-8:00p**, Andover: ***International Festival*** - Fundraiser for Justice for Our Neighbors ([JFON](http://www.newenglandjfon.org)).  Food and Entertainment!  Silent Auction!  Click [HERE](http://www.newenglandjfon.org/new-events/2019/11/9/international-festival){:target="_blank"} for more info.
-
-### Thursday, Nov 14
-
-* **11a-2p**, Boston:  ***ROE Act Advocacy Day*** - Help keep Massachusetts a leader in health care access and reproductive rights!  [SIGN UP HERE](https://actionnetwork.org/forms/roe-act-advocacy-day){:target="_blank"} to join us for Advocacy Day.  Click [HERE](https://www.facebook.com/events/2252709184837527/){:target="_blank"} for more info. SEIU 32BJ Meeting Hall, 26 West Street, Boston, MA 02111
-
-### Saturday, Nov 16
-
-* **7-9p**, Stow:  ***[An Evening of Storytelling](https://www.facebook.com/events/389504865054442/?active_tab=about){:target="_blank"}*** - Please join us for an evening of storytelling to benefit Asylum Seekers in our Local Community.  Tickets are $20 [HERE](https://asylum-support.bpt.me){:target="_blank"} or at the door.  Click [HERE](https://www.uumassaction.org/new-events/2019/11/16/an-evening-of-storytelling-fpc-stow-amp-acton){:target="_blank"} for more info. First Parish Church of Stow & Acton, 353 Great Road Stow, MA, 01775
-
 
 ### Monday, Nov 18
 
