@@ -8,7 +8,7 @@ Location: Worcester State University
 RSVP-link: https://www.indivisible-ma.org/register/
 ---
 
-We are excited to announce that Congresswoman Ayanna Pressley will be our keynote speaker at the [December 7th Indivisible conference](https://www.indivisible-ma.org/convening-2019/), bringing activists from across the state together to launch change for 2020 and beyond. Will you join us as we lay out a blueprint to restore democracy?
+We are excited to announce that Congresswoman Ayanna Pressley will be our keynote speaker at the [December 7th Indivisible conference](https://www.indivisible-ma.org/convening-2019/){:target="_blank"}, bringing activists from across the state together to launch change for 2020 and beyond. Will you join us as we lay out a blueprint to restore democracy?
 
 Here is just some of who will be in Worcester on December 7th
 
