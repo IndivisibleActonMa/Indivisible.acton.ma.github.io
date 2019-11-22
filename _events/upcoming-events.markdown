@@ -28,7 +28,7 @@ layout: page
 
 ### Saturday, Dec 7
 
-* **10a-12p**, Acton: ***Postcards*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA  **PLEASE note this event is CANCELLED due to the [Indivisible MA conference](http://www.indivisibleacton.org/2019/11/17/indivisible-ma-2019-conference.html){:target="_blank"}.**  
+* **10a-12p**, Acton: ***Postcards*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA - **PLEASE note this event is CANCELLED due to the [Indivisible MA conference](http://www.indivisibleacton.org/2019/11/17/indivisible-ma-2019-conference.html){:target="_blank"}.**  
 
 ### Saturday, Dec 21  
 
