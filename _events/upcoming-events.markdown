@@ -88,6 +88,11 @@ layout: page
 
 * **4-6p**, Chelmsford:  ***Film:  The Last Dream*** - The Congregation Shalom Social Action & Justice Committee is excited to invite you to the showing of *[The Last Dream](https://masstps.com/the-last-dream/){:target="_blank"}*, a play written and performed by children in MA whose parents have Temporary Protective Status (TPS).  Discussion group to follow.  Congregation Shalom, 87 Richardson Rd, North Chelmsford, MA 01863  
 
+### Saturday, Nov 30  
+
+* **7:30-9:30p**, Littleton:  ***Film: Say Her Name: The Life and Death of Sandra Bland*** - Please join us for this film and discussion.  Click [HERE](https://www.uumassaction.org/new-events/2019/11/30/say-her-name-the-life-and-death-of-sandra-bland){:target="_blank"} for more info.  Sponsored by First Church Unitarian, 19 Foster St, Littleton, MA  
+
+
 ---
 
 ## Save the Date
