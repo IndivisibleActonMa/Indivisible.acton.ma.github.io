@@ -1,7 +1,6 @@
 ---
 title: Events
 date: 2019-11-22 08:43:00 -05:00
-published: false
 ---
 
 ![5D9A5596-20180120-865ea0.jpg](/uploads/5D9A5596-20180120-865ea0.jpg)
