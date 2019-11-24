@@ -43,6 +43,9 @@ Newsletter deadlines:
 Email:  *newsletter@indivisibleacton.org*
 
 ---
+### Representatives  
+
+Click [HERE](http://www.indivisibleacton.org/general-information/representatives.html) for information on how to contact your representatives.  
 
 Click [HERE](http://www.indivisibleacton.org/general-information/whats-going-on-in-the-ma-state-house.html) to find out how your State Representatives and Senators voted and more about what's going on in the MA State House!
 
