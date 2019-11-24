@@ -15,7 +15,7 @@ Acton Memorial Library, First Floor Meeting Room, 486 Main St, Acton, MA 01720, 
 
 ### Monday, November 4
 
-### Monday, December 2
+### [Monday, December 2](http://www.indivisibleacton.org/2019/11/12/general-meeting-and-future-plans.html)
 
 ---
 
