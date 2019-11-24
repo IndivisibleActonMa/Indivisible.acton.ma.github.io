@@ -19,7 +19,7 @@ Click [HERE](http://www.indivisibleacton.org/2018-ma-state-primary.html) for inf
 
 Want to know more about what's going in the MA House?
 
-* Click [HERE](https://www.actonmass.org) to stay informed on what's happening in the State House.  
+* Go to [ACT on MASS](https://www.actonmass.org){:target="_blank"} to stay informed on what's happening in the State House.  
 
 Check out these articles:
 
