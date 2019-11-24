@@ -27,7 +27,7 @@ Questions?  Email us at *info@indivisibleacton.org*
 
 [Calendar](http://www.indivisibleacton.org/calendar.html)
 
-[Upcoming Events](http://www.indivisibleacton.org/events/upcoming-events.html)
+[Upcoming Events](http://www.indivisibleacton.org/events.html)
 
 ---
 
