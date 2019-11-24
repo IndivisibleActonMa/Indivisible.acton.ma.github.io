@@ -1,6 +1,7 @@
 ---
 title: Representatives
 date: 2019-11-24 09:29:00 -05:00
+layout: page
 ---
 
 ### US Senator Elizabeth Warren
