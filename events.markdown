@@ -73,6 +73,10 @@ date: 2019-11-22 08:43:00 -05:00
 
 * **8:30a-5:30p**, Worcester:  ***Indivisible MA Conference*** - Everyone welcome.  Many topics will be addressed.  Click [HERE](https://www.indivisible-ma.org/convening-2019/){:target="_blank"} for more info.
 
+### Sunday, Dec 15
+
+* **3-5p**, Concord: ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742
+
 ---
 
 Click [HERE](http://www.indivisibleacton.org/take-action.html) for other ways to take action.
