@@ -69,6 +69,12 @@ date: 2019-11-22 08:43:00 -05:00
 
 * **9a-5p**, Boston:  ***Safe Communities Act Public Hearing*** - Join immigrants and allies across the State to support the Safe Communities Act!  Click [HERE](https://www.facebook.com/events/561186044654289/){:target="_blank"} for more info.  [RSVP HERE](https://docs.google.com/forms/d/e/1FAIpQLSdSJoryHyH7CyCQlbvfGIFtUGi5HbLfgNp6vbikVLDH2CF8vQ/viewform){:target="_blank"}.  MA State House, Gardner Auditorium, 24 Beacon St, Boston.  
 
+
+### Tuesday, Dec 3. 
+
+* **10a-12p**, Acton: ***First Tuesday*** - [League of Women Voters Acton-Area](http://www.lwv-aa.org){:target="_blank"} gather at Bagels Plus (upstairs) in Acton. There’s no program; there’s no agenda. It’s just a free-wheeling discussion of whatever people want to talk about. 
+
+
 ### Saturday, Dec 7
 
 * **8:30a-5:30p**, Worcester:  ***Indivisible MA Conference*** - Everyone welcome.  Many topics will be addressed.  Click [HERE](https://www.indivisible-ma.org/convening-2019/){:target="_blank"} for more info.
