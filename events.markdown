@@ -74,7 +74,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Monday, Jan 13
 
-* **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - Come join us for the January General Meeting.  
+* **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - Come join us for the January General Meeting.  Stay tuned for more details!  
 
 
 ### Sunday, Jan 19
