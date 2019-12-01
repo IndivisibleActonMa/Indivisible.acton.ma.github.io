@@ -66,7 +66,21 @@ date: 2019-11-22 08:43:00 -05:00
 ## Save the Date
 
 ---
+
+### Sunday, Jan 5  
+
+* **3-5p**, Concord: ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742 
+
+
+### Monday, Jan 13
+
 * **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - Come join us for the January General Meeting.  
+
+
+### Sunday, Jan 19
+
+* **3-5p**, Concord:  ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742  
+
 
 ---
 
