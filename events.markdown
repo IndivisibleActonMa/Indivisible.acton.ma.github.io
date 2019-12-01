@@ -66,6 +66,7 @@ date: 2019-11-22 08:43:00 -05:00
 ## Save the Date
 
 ---
+* **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - Come join us for the January General Meeting.  
 
 ---
 
