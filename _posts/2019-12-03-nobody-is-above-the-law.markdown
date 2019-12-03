@@ -6,7 +6,7 @@ Location: First Parish in Concord,  20 Lexington Rd, Concord, MA 01742
 RSVP-link: https://www.impeach.org/event/impeach-and-remove/126078/signup/?akid=&zip=&source=&s=
 ---
 
-[Concord Indivisible, Reclaim Our Democracy]{:target="_blank"}(https://concordindivisible.org) and [Indivisible Acton](http://www.indivisibleacton.org){:target="_blank"} will be holding a ***Nobody is Above the Law*** event *the eve before the House files articles of impeachment* on the steps of First Parish of Concord.
+[Concord Indivisible, Reclaim Our Democracy](https://concordindivisible.org){:target="_blank"} and [Indivisible Acton](http://www.indivisibleacton.org){:target="_blank"} will be holding a ***Nobody is Above the Law*** event *the eve before the House files articles of impeachment* on the steps of First Parish of Concord.
 
 Guest speakers include Representative Tami Gouveia, US Representative Lori Trahan, Mara Dolan and Jimmy Tingle to name a few.
 
