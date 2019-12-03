@@ -69,7 +69,10 @@ Click [HERE for Indivisible MA newsletters](https://us17.campaign-archive.com/ho
 
 ### Local/State
 
-* [Suupport the ROE Act](http://www.indivisibleacton.org/2019/10/09/support-the-roe-act.html)!
+* Join a local *Nobody Is Above the Law* event!  Click [HERE](http://www.indivisibleacton.org/2019/12/03/nobody-is-above-the-law.html) for more info.  
+
+
+* [Support the ROE Act](http://www.indivisibleacton.org/2019/10/09/support-the-roe-act.html)!
 
 * [Support your local Indivisible Group](http://www.indivisibleacton.org/2019/09/17/support-your-local-indivisible-group.html)!
 
