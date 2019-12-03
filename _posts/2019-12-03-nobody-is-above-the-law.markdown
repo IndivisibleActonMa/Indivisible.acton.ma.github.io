@@ -12,4 +12,4 @@ Guest speakers include Representative Tami Gouveia, US Representative Lori Traha
 
 Come make signs at the Concord Indivisible Activist Huddle on Sunday, December 15, 3-5p at the Harvey Wheeler Community Center in West Concord. 
 
-[RSVP HERE to attend](https://www.impeach.org/event/impeach-and-remove/126078/signup/?akid=&zip=&source=&s=){:target="_blank"}
+[RSVP HERE to attend](https://www.impeach.org/event/impeach-and-remove/126078/signup/?akid=&zip=&source=&s=){:target="_blank"}.  
