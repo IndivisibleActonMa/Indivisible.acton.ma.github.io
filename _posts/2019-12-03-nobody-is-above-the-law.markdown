@@ -6,9 +6,10 @@ Location: First Parish in Concord,  20 Lexington Rd, Concord, MA 01742
 RSVP-link: https://www.impeach.org/event/impeach-and-remove/126078/signup/?akid=&zip=&source=&s=
 ---
 
-[Concord Indivisible, Reclaim Our Democracy](https://concordindivisible.org){:target="_blank"} and [Indivisible Acton](http://www.indivisibleacton.org){:target="_blank"} will be holding a ***Nobody is Above the Law*** event.
+[Concord Indivisible, Reclaim Our Democracy](https://concordindivisible.org){:target="_blank"} and [Indivisible Acton](http://www.indivisibleacton.org){:target="_blank"} will be holding a ***Nobody is Above the Law*** event.  
 
-**When**:  *The eve before the House files articles of impeachment* 
+**When**:  *The eve before the House files articles of impeachment*  
+
 **Where**:  On the steps of First Parish in Concord,  20 Lexington Rd, Concord, MA 01742  
 
 [RSVP HERE to attend](https://www.impeach.org/event/impeach-and-remove/126078/signup/?akid=&zip=&source=&s=){:target="_blank"}.  
