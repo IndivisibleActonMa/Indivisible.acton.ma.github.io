@@ -40,21 +40,6 @@ test1.innerHTML = days + " days left until Nov 3, 2020!";
 
 ---
 
-![Indivisible MA conference copy.jpg](/uploads/Indivisible%20MA%20conference%20copy.jpg)
-
-**WE NEED YOU!**
-
-*We must **FLIP the SENATE, KEEP the HOUSE, and TAKE BACK the STATE LEGISLATURES** to repair Democracy.*
-
-*Please* don't wait on the sidelines - ***it's all hands on deck now until election day.***
-
-***Ezra Levine, the co-founder and co-director of Indivisible, will be speaking at the Conference. He will lead a working session on Impeachment and the Strategy for 2020.  Congresswoman Ayanna Pressley is our keynote speaker!  Also joining us -  Senators Becca Raush and Jamie Eldridge, plus Swing Left, Progressive Mass, Act on Mass to name a few!***
-
-[REGISTER HERE](https://www.indivisible-ma.org/register/){:target="_blank"}!!
-
-Look forward to seeing ***YOU*** there!
-
----
 
 Click [HERE for the Activist Alliance Newsletter](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?usp=sharing){:target="_blank"}
 
@@ -71,7 +56,8 @@ Click [HERE for Indivisible MA newsletters](https://us17.campaign-archive.com/ho
 
 * Join a local ***Nobody Is Above the Law*** event!  Click [HERE](http://www.indivisibleacton.org/2019/12/03/nobody-is-above-the-law.html) for more info.  
 
-
+* Join [Raise Up Massachusetts](https://www.raiseupma.org), a coalition of community organizations, religious groups, and labor unions who are committed to building an economy that works for Massachusetts.  
+ 
 * [Support the ROE Act](http://www.indivisibleacton.org/2019/10/09/support-the-roe-act.html)!
 
 * [Support your local Indivisible Group](http://www.indivisibleacton.org/2019/09/17/support-your-local-indivisible-group.html)!
