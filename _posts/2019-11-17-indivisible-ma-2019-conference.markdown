@@ -1,6 +1,7 @@
 ---
 title: Indivisible MA 2019 Conference
 date: 2019-11-17 10:37:00 -05:00
+published: false
 is featured: true
 event-start-date: 2019-12-07 09:30:00 -05:00
 event-end-date: 2019-12-07 17:30:00 -05:00
