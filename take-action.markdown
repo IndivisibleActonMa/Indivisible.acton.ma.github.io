@@ -56,6 +56,8 @@ Click [HERE for Indivisible MA newsletters](https://us17.campaign-archive.com/ho
 
 * Join a local ***Nobody Is Above the Law*** event!  Click [HERE](http://www.indivisibleacton.org/2019/12/03/nobody-is-above-the-law.html) for more info.  
 
+* Want to help [Stop Gun Madness](http://stopgunmadness.org){:target="_blank"}?  Sign up [HERE](http://stopgunmadness.org/resources/){:target="_blank"} to get action alerts about what's going on with gun bills and other actions.  
+ 
 * Join [Raise Up Massachusetts](https://www.raiseupma.org), a coalition of community organizations, religious groups, and labor unions who are committed to building an economy that works for Massachusetts.  
  
 * [Support the ROE Act](http://www.indivisibleacton.org/2019/10/09/support-the-roe-act.html)!
