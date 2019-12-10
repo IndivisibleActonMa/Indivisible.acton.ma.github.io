@@ -57,6 +57,11 @@ date: 2019-11-22 08:43:00 -05:00
 
 * **8:30a-5:30p**, Worcester:  ***Indivisible MA Conference*** - Everyone welcome.  Many topics will be addressed.  Click [HERE](https://www.indivisible-ma.org/convening-2019/){:target="_blank"} for more info.
 
+### Wednesday, Dec 12
+
+* **6-7:30p**, Lowell:  ***Know Your Rights Workshop*** - Attorney Adelina Janiak from the NE Justice Center will talk about the challenges faced by immigrants in the quest for citizenship. These workshops are designed to increase your understanding of the [JFON](http://www.newenglandjfon.org){:target="_blank"} mission to support immigrants. All JFON Volunteers are encouraged to attend one of these sessions. The workshops are also open to the immigrant community. Centralville United Methodist Church, 800 Bridge St, Lowell  
+
+
 ### Sunday, Dec 15
 
 * **3-5p**, Concord: ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742
