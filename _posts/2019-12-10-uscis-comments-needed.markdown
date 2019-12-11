@@ -2,10 +2,6 @@
 title: Comments Needed!
 date: 2019-12-10 23:58:00 -05:00
 is featured: true
-event-start-date: 2019-12-07 09:30:00 -05:00
-event-end-date: 2019-12-07 17:30:00 -05:00
-Location: Worcester State University
-RSVP-link: https://www.indivisible-ma.org/register/
 ---
 
 Submit your comments opposing the proposed increase in fees for legal immigration by the US Citizenship and Immigration Services (USCIS). 
