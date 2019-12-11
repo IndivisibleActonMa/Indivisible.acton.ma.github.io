@@ -127,7 +127,7 @@ Become a member of [Indivisible Acton-Area on Facebook](https://www.facebook.com
 
 * [MA House Leadership](https://malegislature.gov/Legislators/Leadership){:target="_blank"}
 
-* Need to communicate with your Representatives?  Click [HERE](http://www.indivisibleacton.org/2018-ma-state-primary.html){:target="_blank"} for contact info, and other tools for contacting your officials!
+* Need to communicate with your Representatives?  Click [HERE](http://www.indivisibleacton.org/general-information/representatives.html){:target="_blank"} for contact info, and other tools for contacting your officials!
 
 * [Helpful tips](https://docs.google.com/document/d/1vKG49nreg_Y2_xr2dzYfwcPF4KOFvGRoX6caxWKrMUQ/){:target="_blank"}  to writing/emailing your representatives.
 
