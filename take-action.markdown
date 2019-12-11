@@ -121,7 +121,9 @@ Use Twitter to follow Indivisible Acton (@IndActonMA) and help spread the word! 
 
 ### Facebook
 
-Become a member of [Indivisible Acton-Area on Facebook](https://www.facebook.com/groups/indivisibleacton){:target="_blank"} to find out about events, share ideas, stay informed.
+Become a member of [Indivisible Acton-Area on Facebook](https://www.facebook.com/groups/indivisibleacton){:target="_blank"} to find out about events, share ideas, stay informed.  
+
+***NEW*** : Please see our [Social Media Policy for the Primaries](https://docs.google.com/document/d/1k-N7qZ5fBR2wRGOcRI8ZJxQGbO5CfsXbZlZSKHm4N18/){:target="_blank"}.  
 
 ### Representantives
 
