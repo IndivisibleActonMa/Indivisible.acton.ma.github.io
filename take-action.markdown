@@ -46,6 +46,10 @@ Click [HERE for the Activist Alliance Newsletter](https://docs.google.com/docume
 
 Click [HERE for Indivisible MA newsletters](https://us17.campaign-archive.com/home/?u=3129bf2656ae4f5f1dcba96ad&id=70e7531ca3){:target="_blank"}
 
+--- 
+
+Click [HERE](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3OzOec4BoEzGRjU/edit?usp=sharing){:target="_blank"} to learn how **YOU** can join the Postcard Hosting Team and help make the Blue Wave happen!! 
+
 ---
 
 ### Take Action for Immigration
