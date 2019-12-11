@@ -9,7 +9,9 @@ layout: page
 
 [Join Indivisible Acton-Area](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton){:target="_blank"} and you get our twice weekly newsletter!
 
-[Join the Indivisible Acton-Area Facebook Group](https://www.facebook.com/groups/indivisibleacton){:target="_blank"} to find out about events, share ideas and news, and connect with other Indivisible members.
+[Join the Indivisible Acton-Area Facebook Group](https://www.facebook.com/groups/indivisibleacton){:target="_blank"} to find out about events, share ideas and news, and connect with other Indivisible members.  
+
+*NEW* Please see our [Social Media Policy for the Primaries](https://docs.google.com/document/d/1k-N7qZ5fBR2wRGOcRI8ZJxQGbO5CfsXbZlZSKHm4N18/){:target="_blank"}. 
 
 Sign up for Indivisible MA's statewide newsletter [HERE](https://indma.wufoo.com/forms/m13l3bt20lcdgiv/){:target="_blank"}.  
 
