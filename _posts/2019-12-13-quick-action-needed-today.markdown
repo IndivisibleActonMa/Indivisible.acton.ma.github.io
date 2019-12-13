@@ -10,8 +10,6 @@ From Indivisible:
 
 Date: Thu, Dec 12, 2019, 11:46 AM\
 Subject: Quick action needed today: Vote next week (Impeachment)\
- \
- 
 
 Short update on impeachment: we’re hearing news from Congress that offices are being deluged with calls about impeachment, but not the calls we want. Some offices are reporting three times as many calls from right-wing anti-impeachment callers than pro-impeachment voices. And we're getting reports from the Hill that some moderate Democrats are waffling on their position.
 
@@ -25,7 +23,7 @@ It takes under 5 minutes and has a huge impact. Here’s your three-step plan fo
 
 3. Once you’ve made a call, amplify your impact by [writing a letter to the editor of your local paper](https://act.indivisible.org/lte/submit-letter-editor-impeachment-nobody-above-law?action_id=5013543&akid=56489.412625.jEvGZw&ar=1&rd=1&source=email20191212link3) to make sure your elected officials and your neighbors hear the message everywhere they go.
 
-Remember: it’s important to call your members of Congress even if they’ve already said they’re supporting impeachment, both to give them positive reinforcement and also because it gives them a good talking point to use when trying to convince their colleagues. 
+Remember: it’s important to call your members of Congress even if they’ve already said they’re supporting impeachment, both to give them positive reinforcement and also because it gives them a good talking point to use when trying to convince their colleagues.
 
 If you’d like more information to get up to speed on the latest, click here to read our impeachment resource.
 
