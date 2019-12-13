@@ -56,7 +56,7 @@ Click [HERE](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3Oz
 
 * Click [HERE](http://www.indivisibleacton.org/events/support-immigration-justice.html) to learn how you can contribute time and/or money to organizations which support immigrant justice.
 
-***Comments Needed opposing the proposed increase in fees for legal immigration.  Click [HERE](http://www.indivisibleacton.org/2019/12/10/uscis-comments-needed.html) for more info.***
+* ***Please submit your comments opposing the proposed increase in fees for legal immigration.  Comment period closes Dec 30.  Click [HERE](http://www.indivisibleacton.org/2019/12/10/uscis-comments-needed.html) for more info.***
 
 ### Local/State
 
