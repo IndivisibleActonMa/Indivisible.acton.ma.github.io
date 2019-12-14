@@ -1,5 +1,5 @@
 ---
-title: December General Meeting - CANCELLED
+title: January General Meeting
 date: 2019-11-12 07:25:00 -05:00
 is featured: true
 event-start-date: 2019-12-02 18:30:00 -05:00
