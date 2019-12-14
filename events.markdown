@@ -23,14 +23,25 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
-### Saturday, Dec 7
-
-* **10a-12p**, Acton: ***Postcards*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA - **PLEASE note this event is CANCELLED due to the [Indivisible MA conference](http://www.indivisibleacton.org/2019/11/17/indivisible-ma-2019-conference.html){:target="_blank"}.**  
-
 ### Saturday, Dec 21  
 
 * **10a-12p**, Acton: ***Postcards*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA  
 
+### Saturday, Jan 4
+
+* **10a-12p**, Acton: ***Postcards*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA 
+
+### Tuesday, Jan 14  
+
+* **7-9p**, Littleton: ***Blue Wave Postcards 2020*** - Description:Hi All,  Join us in the Couper room for postcards and more!  Please note the time change for this Tuesday.  Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA  
+
+### Saturday, Jan 18
+
+* **10a-12p**, Acton: ***Postcards*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA 
+
+### Tuesday, Jan 28  
+
+* **6:30-8:30p**, Littleton: ***Blue Wave Postcards 2020*** - Description:Hi All,  Join us in the Couper room for postcards and more!  Please note the time change for this Tuesday.  Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA  
 
 ---
 
