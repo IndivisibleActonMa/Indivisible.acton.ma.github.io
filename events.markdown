@@ -94,7 +94,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Friday, Jan 24
 
-* **10a-5p**, Boston: ***Safe Communities Act Public Hearing - Join immigrants and allies across the State to support the Safe Communities Act! Click [HERE](https://www.facebook.com/events/810339706082219/){:target="_blank"} for more info. [RSVP HERE](https://docs.google.com/forms/d/e/1FAIpQLSc8qVvipg0EeoXQjPtkSWbM3FMZkl5-AwIRcmc5t7ogxlNKEA/viewform?fbclid=IwAR3Pl28GTBn_lkNjPS2Nee8iIOpN5RYC8t74Uk7IcK4ifUTWX_xrXDUS048){:target="_blank"}. MA State House, Gardner Auditorium, 24 Beacon St, Boston. 
+* **10a-5p**, Boston: ***Safe Communities Act Public Hearing*** - Join immigrants and allies across the State to support the Safe Communities Act! Click [HERE](https://www.facebook.com/events/810339706082219/){:target="_blank"} for more info. [RSVP HERE](https://docs.google.com/forms/d/e/1FAIpQLSc8qVvipg0EeoXQjPtkSWbM3FMZkl5-AwIRcmc5t7ogxlNKEA/viewform?fbclid=IwAR3Pl28GTBn_lkNjPS2Nee8iIOpN5RYC8t74Uk7IcK4ifUTWX_xrXDUS048){:target="_blank"}. MA State House, Gardner Auditorium, 24 Beacon St, Boston. 
 
 
 ---
