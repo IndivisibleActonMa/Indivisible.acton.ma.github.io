@@ -20,12 +20,12 @@ Join TPS Leaders, TPS Holders, and allies in Boston at the JFK Federal Building 
 Can't make it tonight. Be sure to call your representative and Congressional leaders today to include TPS in their deal! 
 Don’t know who your congressional representative is click below 
 
-https://www.house.gov/representatives/find-your-representative
+[https://www.house.gov/representatives/find-your-representative](http://www.house.gov/representatives/find-your-representative)
 
-Speaker Nancy Pelosi: (202) 225-4965 
-Senator Rubio: (202) 224-3041 
-Senator Schumer: (202) 224-6542 
-Senator McConnell: (202) 224-2541
+Speaker Nancy Pelosi: (202) 225-4965  
+Senator Rubio: (202) 224-3041  
+Senator Schumer: (202) 224-6542  
+Senator McConnell: (202) 224-2541 
 
 
 Únete a nosotros ,TPSaños y aliadas de los TPS en Boston esta noche alas 6, enfrente del JFK edificio federal. 
@@ -47,10 +47,13 @@ Senator McConnell: (202) 224-2541
 
 Questions: masstps@gmail.com
 
-On December 16th at 11:00 AM, TPS holders will gather outside the district office of Speaker Nancy Pelosi to respectfully issue the following demands:
-● Include the extension of TPS in the negotiations of the budget for next year
+On December 16th at 11:00 AM, TPS holders will gather outside the district office of Speaker Nancy Pelosi to respectfully issue the following demands:  
+
+● Include the extension of TPS in the negotiations of the budget for next year.  
+
 ● Initiate bipartisan conversations to place TPS holders on a path to permanent residency.
-Our lives are not temporary
+Our lives are not temporary. 
+
 ● Include the issue of migration, deportation, TPS, DACA, etc., in any upcoming debate among
 
 Click [HERE](https://facebook.com/events/1160815300790026/?ti=icl) for more info. 
