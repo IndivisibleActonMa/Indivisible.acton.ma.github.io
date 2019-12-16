@@ -3,7 +3,7 @@ title: Emergency TPS Vigil tonight
 date: 2019-12-16 13:21:00 -05:00
 is featured: true
 event-start-date: 2019-12-16 18:00:00 -05:00
-event-end-date: 2019-12-16 00:00:00 -05:00
+event-end-date: 2019-12-16 19:00:00 -05:00
 Location: 2400 JFK Federal Building, 24 Federal St, Boston, MA 02114
 ---
 
