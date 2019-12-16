@@ -79,8 +79,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Tuesday, Dec 17
 
-* **1-2p**, Burlington: ***Jericho Walks make a difference!***  Please attend the Next Jericho Walk, 1000 District Avenue, Burlington.  Sponsored by [Burlington Area Clergy 4 Justice](https://www.facebook.com/events/1285095605032108/){:target="_blank"}  
- 
+* **1-2p**, Burlington: ***Jericho Walks make a difference!***  Please attend the Next Jericho Walk, 1000 District Avenue, Burlington.  Sponsored by [Burlington Area Clergy 4 Justice](https://www.facebook.com/events/1285095605032108/){:target="_blank"}  **Please Note - this event has been cancelled due to the weather.**  
 
 ---
 
