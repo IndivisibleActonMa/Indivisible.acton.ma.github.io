@@ -40,10 +40,10 @@ Búscalo aquí
 
 https://www.house.gov/representatives/find-your-representative
 
-Speaker Nancy Pelosi: (202) 225-4965 
-Senator Rubio: (202) 224-3041 
-Senator Schumer: (202) 224-6542 
-Senator McConnell: (202) 224-2541
+Speaker Nancy Pelosi: (202) 225-4965   
+Senator Rubio: (202) 224-3041  
+Senator Schumer: (202) 224-6542   
+Senator McConnell: (202) 224-2541   
 
 Questions: masstps@gmail.com
 
