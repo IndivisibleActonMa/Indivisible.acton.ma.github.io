@@ -2,7 +2,7 @@
 title: Quick action needed TODAY
 date: 2019-12-13 08:33:00 -05:00
 published: false
-is featured: true
+is featured: false
 ---
 
 From Indivisible:
