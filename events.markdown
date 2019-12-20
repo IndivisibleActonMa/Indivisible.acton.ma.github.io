@@ -77,9 +77,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 * **3-5p**, Concord: ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742
 
-### Tuesday, Dec 17
 
-* **1-2p**, Burlington: ***Jericho Walks make a difference!***  Please attend the Next Jericho Walk, 1000 District Avenue, Burlington.  Sponsored by [Burlington Area Clergy 4 Justice](https://www.facebook.com/events/1285095605032108/){:target="_blank"}  **Please Note - this event has been cancelled due to the weather.**  
 
 ---
 
@@ -101,11 +99,23 @@ date: 2019-11-22 08:43:00 -05:00
 
 * **3-5p**, Concord:  ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742  
 
+### Monday, Jan 20  
+
+* **8:30-10:30a**, Acton: ***18th Annual Martin Luther King, Jr Breakfast*** - Presenter is Rev. Mariama White-Hammond, founder and preacher of New Roots Bethel Church, Boston. Event is free but donations are encouraged.  Don't miss this special community event! Please sign up to volunteer [HERE](https://www.signupgenius.com/go/10c0c48a8aa2ea1fe3-18th){:target="_blank"}.  Congregation Beth Elohim, 133 Prospect St, Acton, MA 01720  
+
+
+ 
+### Tuesday, Jan 21
+
+* **1-2p**, Burlington: ***Jericho Walks make a difference!***  Please attend the Next Jericho Walk, 1000 District Avenue, Burlington.  Sponsored by [Burlington Area Clergy 4 Justice]  
 
 ### Friday, Jan 24
 
 * **10a-5p**, Boston: ***Safe Communities Act Public Hearing*** - Join immigrants and allies across the State to support the Safe Communities Act! Click [HERE](https://www.facebook.com/events/810339706082219/){:target="_blank"} for more info. [RSVP HERE](https://docs.google.com/forms/d/e/1FAIpQLSc8qVvipg0EeoXQjPtkSWbM3FMZkl5-AwIRcmc5t7ogxlNKEA/viewform?fbclid=IwAR3Pl28GTBn_lkNjPS2Nee8iIOpN5RYC8t74Uk7IcK4ifUTWX_xrXDUS048){:target="_blank"}. MA State House, Gardner Auditorium, 24 Beacon St, Boston. 
 
+### Tuesday, Jan 28  
+
+* **7-8p**, Acton:  ***Climate Response Forum at Congregation Beth Elohim*** - The purpose of the forum is to inform congregants and residents in our area about pending legislation and other actions that can reduce carbon emissions.  The forum is co-sponsored by Senator Jamie Eldridge and Congregation Beth Elohim. Other legislators and community groups will be represented at the forum with Rabbi Mike as moderator.  Congregation Beth Elohim, 133 Prospect St, Acton, MA 01720  
 
 ---
 
