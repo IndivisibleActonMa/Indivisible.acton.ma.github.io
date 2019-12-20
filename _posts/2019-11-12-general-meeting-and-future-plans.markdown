@@ -7,13 +7,8 @@ event-end-date: 2019-12-02 20:45:00 -05:00
 Location: Acton Memorial Library 486 Main St., Acton, MA 01720
 ---
 
-### Due to the pending storm, the December General Meeting has been cancelled.
 
-Stay safe and warm!!  
-
----
-
-Come hear inspiring speakers and then join us for take action breakouts at our December General Meeting.  
+Come hear inspiring speakers and then join us for take action breakouts at our January General Meeting.  
 
 Our featured speakers are from [ACT on MASS](https://actonmass.org){:target="_blank"}. 
 
