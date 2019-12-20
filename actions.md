@@ -55,9 +55,21 @@ Email:  *newsletter@indivisibleacton.org*
 
 ---
 
-### Other Resources
+### Other Indivisible Resources Nearby
 
 [Indivisible MA](https://www.indivisible-ma.org){:target="_blank"}  
+
+[Indivisible Concord](https://concordindivisible.org){:target="_blank"}   
+
+[Indivisible Nashoba](http://indivisiblenashoba.org){:target="_blank"}  
+
+[Indivisible Westford](https://indivisiblewestford.org){:target="_blank"} 
+
+[Minuteman Indivisible](https://www.minutemanindivisible.org){:target="_blank"} 
+
+
+
+### Other Resources
 
 [Rogan's List](http://roganslist.blogspot.com){:target="_blank"}  
 
