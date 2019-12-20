@@ -49,7 +49,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
-*Please consider making a comment opposing increase in fees for legal immigration.*  The deadline is **Dec 30**.  Read about the [Fee Schedule Changes](https://cliniclegal.org/issues/fee-schedule-changes){:target="_blank"} and submit your comments using their template or make your own comments [HERE](https://www.federalregister.gov/documents/2019/12/09/2019-26521/us-citizenship-and-immigration-services-fee-schedule-and-changes-to-certain-other-immigration){:target="_blank"}.  
+*Please consider submitting a comment opposing increase in fees for legal immigration.*  The deadline is **Dec 30**.  Read about the [Fee Schedule Changes](https://cliniclegal.org/issues/fee-schedule-changes){:target="_blank"} and submit your comments using their template or make your own comments [HERE](https://www.federalregister.gov/documents/2019/12/09/2019-26521/us-citizenship-and-immigration-services-fee-schedule-and-changes-to-certain-other-immigration){:target="_blank"}.  
 
 Have a happy and restful holiday season!
 
