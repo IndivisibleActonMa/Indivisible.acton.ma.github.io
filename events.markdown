@@ -89,8 +89,7 @@ Have a happy and restful holiday season!
 
 ### Tuesday, Jan 28  
 
-* **10a-12p**, Boston: ***Election Day Registration Lobby Day at the State House*** - Every election, Massachusetts disenfranchises thousands of its own citizens by denying eligible voters the ability to register or update their information on Election Day. Two out of three of those prevented from casting a ballot are actually registered but rendered ineligible because their registration contains simple and fixable errors. [Register HERE](bit.ly/EDRLobbyDay){:target="_blank"}.  Click [HERE](https://www.facebook.com/events/736703633492888/?active_tab=about){:target="_blank"} for more info.  
-
+* **10a-12p**, Boston: ***Election Day Registration Lobby Day at the State House*** - Every election, Massachusetts disenfranchises thousands of its own citizens by denying eligible voters the ability to register or update their information on Election Day. Two out of three of those prevented from casting a ballot are actually registered but rendered ineligible because their registration contains simple and fixable errors. [Register HERE](bit.ly/EDRLobbyDay){:target="_blank"}.  Click [HERE](https://www.facebook.com/events/736703633492888/?active_tab=about){:target="_blank"} to see the Facebook event.  
 
 * **7-8p**, Acton:  ***Climate Response Forum at Congregation Beth Elohim*** - The purpose of the forum is to inform congregants and residents in our area about pending legislation and other actions that can reduce carbon emissions.  The forum is co-sponsored by Senator Jamie Eldridge and Congregation Beth Elohim. Other legislators and community groups will be represented at the forum with Rabbi Mike as moderator.  Congregation Beth Elohim, 133 Prospect St, Acton, MA 01720  
 
