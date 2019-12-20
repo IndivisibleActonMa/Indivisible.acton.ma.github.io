@@ -49,35 +49,9 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
-### Monday, Dec 2
+*Please consider making a comment opposing increase in fees for legal immigration.*  The deadline is **Dec 30**.  Read about the [Fee Schedule Changes](https://cliniclegal.org/issues/fee-schedule-changes){:target="_blank"} and submit your comments using their template or make your own comments [HERE](https://www.federalregister.gov/documents/2019/12/09/2019-26521/us-citizenship-and-immigration-services-fee-schedule-and-changes-to-certain-other-immigration){:target="_blank"}.  
 
-***PLEASE NOTE - Mondays events have been cancelled due to the pending storm.***.
-
-* **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - Come join us for the December General Meeting.  Guest speakers are [ACT on MASS](https://actonmass.org){:target="_blank"}!  Learn how to stay informed about what's happening in our State House and how to talk with our legislators.  ***PLEASE NOTE - This event has been cancelled due to the pending storm.***. 
-
-
-* **9a-5p**, Boston:  ***Safe Communities Act Public Hearing*** - Join immigrants and allies across the State to support the Safe Communities Act!  Click [HERE](https://www.facebook.com/events/561186044654289/){:target="_blank"} for more info.  [RSVP HERE](https://docs.google.com/forms/d/e/1FAIpQLSdSJoryHyH7CyCQlbvfGIFtUGi5HbLfgNp6vbikVLDH2CF8vQ/viewform){:target="_blank"}.  MA State House, Gardner Auditorium, 24 Beacon St, Boston.  ***PLEASE NOTE - This event has been re-scheduled Friday, Jan 24 (see below)***.
-
-
-### Tuesday, Dec 3. 
-
-* **10a-12p**, Acton: ***First Tuesday*** - [League of Women Voters Acton-Area](http://www.lwv-aa.org){:target="_blank"} gather at Bagels Plus (upstairs) in Acton. There’s no program; there’s no agenda. It’s just a free-wheeling discussion of whatever people want to talk about. 
-
-
-### Saturday, Dec 7
-
-* **8:30a-5:30p**, Worcester:  ***Indivisible MA Conference*** - Everyone welcome.  Many topics will be addressed.  Click [HERE](https://www.indivisible-ma.org/convening-2019/){:target="_blank"} for more info.
-
-### Wednesday, Dec 12
-
-* **6-7:30p**, Lowell:  ***Know Your Rights Workshop*** - Attorney Adelina Janiak from the NE Justice Center will talk about the challenges faced by immigrants in the quest for citizenship. These workshops are designed to increase your understanding of the [JFON](http://www.newenglandjfon.org){:target="_blank"} mission to support immigrants. All JFON Volunteers are encouraged to attend one of these sessions. The workshops are also open to the immigrant community. Centralville United Methodist Church, 800 Bridge St, Lowell  
-
-
-### Sunday, Dec 15
-
-* **3-5p**, Concord: ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742
-
-
+Have a happy and restful holiday season!
 
 ---
 
