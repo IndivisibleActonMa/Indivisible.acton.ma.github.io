@@ -8,6 +8,4 @@ Submit your comments opposing the proposed increase in fees for legal immigratio
 
 ***Comments close Dec 30.***
 
-Read more about the [Proposed changes to the USCIS Schedule and Certain Other Immigration Benefit Request Requirements](https://cliniclegal.org/fee-schedule-changes){:target="_blank"}.
-
-Submit your comments [HERE](https://www.federalregister.gov/documents/2019/12/09/2019-26521/us-citizenship-and-immigration-services-fee-schedule-and-changes-to-certain-other-immigration){:target="_blank"}.
+Read more about the [Proposed UCIS fee schedule changes](https://cliniclegal.org/fee-schedule-changes){:target="_blank"} and submit your comments using their template or submit your comments [HERE](https://www.federalregister.gov/documents/2019/12/09/2019-26521/us-citizenship-and-immigration-services-fee-schedule-and-changes-to-certain-other-immigration){:target="_blank"}.
