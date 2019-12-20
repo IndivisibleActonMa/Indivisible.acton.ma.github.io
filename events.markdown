@@ -72,7 +72,11 @@ Have a happy and restful holiday season!
 
 * **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - Come join us for the January General Meeting!  Guest speakers are [ACT on MASS](https://actonmass.org){:target="_blank"}!  Learn how to stay informed about what's happening in our State House and how to talk with our legislators.  
 
+### Wednesday, Jan 15
 
+* **10a-12:30p**, Boston:  ***Clean Energy & Environmental Justice Lobby Day*** - Join [Mass Power Forward](https://vmohanka.wixsite.com/mapf){:target="_blank"} for a Climate Advocacy Day at the State House!  Click [HERE](https://www.facebook.com/events/513263346066822/){:target="_blank"} for the Facebook event.  RSVP [HERE](https://docs.google.com/forms/d/e/1FAIpQLScJBLWz3Dj6_CYhS8RG0is1LfWei9OQEGwfQ6G9eSG9a4rfBQ/viewform){:target="_blank"}.  
+
+ 
 ### Sunday, Jan 19
 
 * **3-5p**, Concord:  ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742  
