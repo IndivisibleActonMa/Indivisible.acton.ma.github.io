@@ -81,7 +81,7 @@ Have a happy and restful holiday season!
  
 ### Tuesday, Jan 21
 
-* **1-2p**, Burlington: ***Jericho Walks make a difference!***  Please attend the Next Jericho Walk, 1000 District Avenue, Burlington.  Sponsored by [Burlington Area Clergy 4 Justice]  
+* **1-2p**, Burlington: ***Jericho Walks make a difference!***  Please attend the Next Jericho Walk, 1000 District Avenue, Burlington.  Sponsored by Burlington Area Clergy 4 Justice. 
 
 ### Friday, Jan 24
 
