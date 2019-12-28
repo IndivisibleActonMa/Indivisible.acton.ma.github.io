@@ -23,10 +23,6 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
-### Saturday, Dec 21  
-
-* **10a-12p**, Acton: ***Postcards*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA  
-
 ### Saturday, Jan 4
 
 * **10a-12p**, Acton: ***Postcards*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA 
