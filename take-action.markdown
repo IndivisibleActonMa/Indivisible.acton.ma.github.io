@@ -99,6 +99,8 @@ Click [HERE](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3Oz
 
 * Universal Basic Income:  Read about the proposed pilot program in Massachusetts [H.1632](https://malegislature.gov/Bills/191/H1632){:target="_blank"}.  Learn more about Alex Howlett's Basic Income theory [HERE](http://www.greshm.org){:target="_blank"}.
 
+* [2020 N.H. Primary Candidate Tracker: Where and When to See the Candidates](https://www.nhpr.org/post/2020-nh-primary-candidate-tracker-where-and-when-see-candidates#stream/0)  
+
 ---
 
 ### Tools
