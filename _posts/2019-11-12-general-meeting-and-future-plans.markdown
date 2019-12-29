@@ -23,5 +23,4 @@ Social half hour starts at 6:30pm and the meeting starts at 7pm.
 Look forward to seeing you!!
 
 ---
-
-![December General Meeting flyer.jpg](/uploads/December%20General%20Meeting%20flyer.jpg)
+![Jan 13 Flyer.jpg](/uploads/Jan%2013%20Flyer.jpg)
