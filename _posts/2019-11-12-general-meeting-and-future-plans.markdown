@@ -2,6 +2,7 @@
 title: January General Meeting
 date: 2019-11-12 07:25:00 -05:00
 is featured: true
+main-image: '!<img src="/uploads/Jan%2013%20Flyer.jpg" width="400" height="500">'
 event-start-date: 2020-01-13 18:30:00 -05:00
 event-end-date: 2020-01-13 20:45:00 -05:00
 Location: Acton Memorial Library 486 Main St., Acton, MA 01720
