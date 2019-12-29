@@ -24,5 +24,4 @@ Look forward to seeing you!!
 
 ---
 
-![Jan 13 Flyer.jpg](/uploads/Jan%2013%20Flyer.jpg)
-<img src="/uploads/Jan%2013%20Flyer.jpg" width="400" height="500">
+!<img src="/uploads/Jan%2013%20Flyer.jpg" width="400" height="500">
