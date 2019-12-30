@@ -69,7 +69,7 @@ Have a happy and restful holiday season!
 
 ### Monday, Jan 13
 
-* **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - Come join us for the January General Meeting!  Guest speakers are [ACT on MASS](https://actonmass.org){:target="_blank"}!  Learn how to stay informed about what's happening in our State House and how to talk with our legislators.  
+* **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - Come join us for the [January General Meeting](http://www.indivisibleacton.org/2019/11/12/general-meeting-and-future-plans.html){:target="_blank"}!  Guest speakers are [ACT on MASS](https://actonmass.org){:target="_blank"}!  Learn how to stay informed about what's happening in our State House and how to talk with our legislators.  
 
 ### Wednesday, Jan 15
 
