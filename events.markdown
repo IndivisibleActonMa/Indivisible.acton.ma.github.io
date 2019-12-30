@@ -57,7 +57,7 @@ Have a happy and restful holiday season!
 
 ### Sunday, Jan 5  
 
-* **3-5p**, Concord: ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742 
+* **2-4p**, Concord: ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742 ***Please note NEW time***.   
 
 * **6-7:30p**, Acton: ***Green New Deal Town Hall with Senator Ed Markey*** - Join Senator Markey for a town hall discussion on the Green New Deal and more.  R.J. Grey Junior High School, 16 Charter Road, Acton. *Doors open at 5:30p*. Click [HERE](https://www.facebook.com/events/486843838606636/){:target="_blank"} to see the Facebook event.  
 
