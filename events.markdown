@@ -59,6 +59,9 @@ Have a happy and restful holiday season!
 
 * **3-5p**, Concord: ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742 
 
+* **6-7:30p**, Acton: ***Green New Deal Town Hall with Senator Ed Markey*** - Join Senator Markey for a town hall discussion on the Green New Deal and more.  R.J. Grey Junior High School, 16 Charter Road, Acton. Doors open at 5:30p.  
+
+
 ### Thursday, Jan 9  
 
 * **7:30-9p**, Needham:  ***Immigration Justice Community Forum*** - A forum to discuss immigrant justice action in Massachusetts and what you can do to support your immigrant neighbors.  Click [HERE](https://drive.google.com/file/d/1pkN-HGIBYRJCCM3vqJPMGw-rpo0zEFE3/view){:target="_blank"} for more info.  Temple Beth Shalom, 670 Highland Ave, Needham, MA  
