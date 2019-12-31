@@ -43,18 +43,6 @@ date: 2019-11-22 08:43:00 -05:00
 
 ## Some Events to Consider
 
----
-
-*Please consider submitting a comment opposing increase in fees for legal immigration.*  The deadline is **Dec 30**.  Read about the [Fee Schedule Changes](https://cliniclegal.org/issues/fee-schedule-changes){:target="_blank"} and submit your comments using their template or make your own comments [HERE](https://www.federalregister.gov/documents/2019/12/09/2019-26521/us-citizenship-and-immigration-services-fee-schedule-and-changes-to-certain-other-immigration){:target="_blank"}.  
-
-Have a happy and restful holiday season!
-
----
-
-## Save the Date
-
----
-
 ### Sunday, Jan 5  
 
 * **2-4p**, Concord: ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742.  ***Please note NEW time***.   
@@ -103,6 +91,18 @@ Have a happy and restful holiday season!
 
 * **7-8p**, Acton:  ***Climate Response Forum at Congregation Beth Elohim*** - The purpose of the forum is to inform congregants and residents in our area about pending legislation and other actions that can reduce carbon emissions.  The forum is co-sponsored by Senator Jamie Eldridge and Congregation Beth Elohim. Other legislators and community groups will be represented at the forum with Rabbi Mike as moderator.  Congregation Beth Elohim, 133 Prospect St, Acton, MA 01720  
 
----
+---  
 
+## Save the Date
+
+### Tuesday, Mar 3
+
+* MA Presidential Primary and for 37th Middlesex District Representative (Jen Benson's seat).  
+
+### Tuesday, Mar 31
+
+* Special Election for 37th Middlesex District Representative (Jen Benson's seat).
+
+
+---
 Click [HERE](http://www.indivisibleacton.org/take-action.html) for other ways to take action.
