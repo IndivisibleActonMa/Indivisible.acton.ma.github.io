@@ -28,7 +28,7 @@ Now we have 44 weeks to finish the job. To take back our country, we must flip t
 
 **AND THE NUMBER ONE WAY TO TAKE BACK OUR COUNTRY:**
 
-**1. INCLUDE SOMEONE NEW WHEN YOU TAKE ACTION.** Bring a friend, a neighbor, a relative, or someone you just met at an event. It's time to encourage everyone to participate, in whatever cause they care about. There's a lot to work on. Find your passion, include others and have fun!  
+**1. INCLUDE SOMEONE NEW WHEN YOU TAKE ACTION.** Bring a friend, a neighbor, a relative, or someone you just met at an event. It's time to encourage everyone to participate, in whatever cause they care about. *There's a lot to work on. Find your passion, include others and have fun!*  
 
 See you there!  
 
