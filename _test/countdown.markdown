@@ -39,7 +39,7 @@ var x = setInterval(function() {
   test1.style.font = "italic bold 30px arial,serif"; 
   //test1.style.textAlign = "center";
 //test1.innerHTML = days + " days left until Nov 3, 2020!";
-  test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s left until Nov 3, 2020!";
+  test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s until Nov 3, 2020!";
   
   
   // If the count down is over, write some text 
