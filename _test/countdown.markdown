@@ -1,7 +1,7 @@
 ---
 title: Countdown
 date: 2019-12-30 23:20:00 -05:00
-layout: default
+layout: page
 ---
 
 
