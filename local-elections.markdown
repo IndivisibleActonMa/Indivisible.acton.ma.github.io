@@ -1,7 +1,6 @@
 ---
 title: Elections
 date: 2019-12-30 22:56:00 -05:00
-published: false
 ---
 
 ---
