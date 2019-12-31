@@ -97,7 +97,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Tuesday, Mar 3
 
-* MA Presidential Primary and Primary for 37th Middlesex District Representative (Jen Benson's seat).  
+* MA Presidential Primary and State Primary for 37th Middlesex District Representative (Jen Benson's seat).  
 
 ### Tuesday, Mar 31
 
