@@ -22,7 +22,7 @@ Now we have 44 weeks to finish the job. To take back our country, we must flip t
 
 **5. Canvass Locally:** This will be essential for the special election for Rep Benson's seat. Help Ranked Choice Voting cross the finish line. Talk to people about your favorite candidates. Fun and proven to work!  
 
-**3. Donate to a Candidate:** Do you want big money out of politics? Do you want to help democrats get elected in other states? Small donations matter! Adopt a candidate and share why. Check out www.elect535.org and our February General meeting to get ideas. This will be pivotal in flipping the Senate.
+**3. Donate to a Candidate:** Do you want big money out of politics? Do you want to help democrats get elected in other states? Small donations matter! Adopt a candidate and share why. Check out [www.elect535.org](https://www.elect535.org){:target="_blank"} and our February General meeting to get ideas. This will be pivotal in flipping the Senate.
 
 **2. Organize:** We need people to help organize and run local events! Indivisible Acton Area has all the materials and social media support set up. What is your passion? Can you help a few hours a week? Join our team!  
 
