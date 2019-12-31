@@ -32,9 +32,8 @@ var seconds = Math.floor((t % (1000 * 60)) / 1000);
   var test1 = document.getElementById("demo");
   test1.style.font = "italic bold 30px arial,serif"; 
   //test1.style.textAlign = "center";
-//test1.innerHTML = days + " days left until Nov 3, 2020!";
-  test.innerHTML = days + "d "  
-      + hours + "h " + minutes + "m " + seconds + "s to Remove Trump & Flip the Senate!";     
+test1.innerHTML = days + "d " + hours + "h left until Nov 3, 2020!";
+     
   // If the count down is over, write some text 
   if (distance < 0) {
     clearInterval(x);
