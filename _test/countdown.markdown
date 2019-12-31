@@ -54,7 +54,7 @@ var x = setInterval(function() {
 
 Embedding countdown here:
 
-<iframe width="300" height="154" src="https://w2.countingdownto.com/2799792" frameborder="0"></iframe>
+<iframe width="300" height="154" src="https://w3.countingdownto.com/g/xt003v4xc4qLFw" frameborder="0"></iframe>
 
 ---
 ### End of test
