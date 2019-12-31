@@ -10,7 +10,7 @@ Here we are on the last day of 2019, and I feel so lucky to have met you all. I 
 
 Now we have 44 weeks to finish the job. To take back our country, we must flip the Senate. We must remove Trump. It’s all hands-on deck for the next 308 days. I know it can feel overwhelming, but I promise that working on something you care about, whatever it is, makes a HUGE difference, for your country and yourself. Here is my personal top ten list on taking action.
 
-**10. Donate to A Cause:** From [Fair Fight ](https://fairfight.com){:target="_blank"} to [Dignity in Asylum ](https://www.dignityinasylum.org){:target="_blank"} there are lots of organizations fighting the GOP agenda. What is your passion? Share it with others. *Small donations matter!*
+**10. Donate to A Cause:** From [Fair Fight ](https://fairfight.com){:target="_blank"} to [Dignity in Asylum ](https://www.dignityinasylum.org){:target="_blank"} there are lots of organizations fighting the GOP agenda. *What is your passion?* Share it with others. *Small donations matter!*
 
 **9. Vote:** Reach out personally to everyone you know, especially people in other states. Ask them to make sure they are [still registered ](https://www.vote.org/am-i-registered-to-vote/){:target="_blank"} after all the voter purges.
 
