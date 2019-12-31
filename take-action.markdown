@@ -103,6 +103,11 @@ Click [HERE](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3Oz
 
 ---
 
+### Concerned about disinformation?
+
+Check out this website [Disarm Disinformation](https://www.disarmdisinfo.com){:target="_blank"}  and learn how to become educated consumers and fight disinformation.  
+
+---
 ### Tools
 
 Here are some helpful tools that help share actions and news.
