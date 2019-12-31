@@ -47,7 +47,7 @@ var x = setInterval(function() {
 
 ### Candidate and Campaign Policy and Etiquette
 
-Indivisible Acton welcomes candidates and their staff. In order to assure productive, fair and healthy discourse between campaigns and Indivisible Acton members these policies have been put in place. Please see our [Candidate and Campaign Etiquette and Policy](https://docs.google.com/document/d/1-G3_GKFkz3fC0VDkfGh4DbC820mzi23yyMG1-EqapfE/edit) document.
+Indivisible Acton welcomes candidates and their staff. In order to assure productive, fair and healthy discourse between campaigns and Indivisible Acton members these policies have been put in place. Please see our [Candidate and Campaign Etiquette and Policy](https://docs.google.com/document/d/1-G3_GKFkz3fC0VDkfGh4DbC820mzi23yyMG1-EqapfE/){:target="_blank"}  document.
 
 Any questions or concerns should be directed to the membership coordinator Christine B: christine@indivisibleacton.org.
 
