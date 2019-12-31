@@ -1,5 +1,5 @@
 ---
-title: Happy New Year
+title: Happy New Year!
 date: 2019-12-31 09:06:00 -05:00
 is featured: true
 ---
@@ -8,7 +8,7 @@ Dear Activist Family,
 
 Here we are on the last day of 2019, and I feel so lucky to have met you all. I honestly could not have made it through the trump years without you. Our hard work has shown real results. Without the Blue Wave of 2018 flipping the House, there would be no impeachment, and the GOP would have had a blank check to wreck even more havoc.
 
-Now we have 44 weeks to finish the job. To take back our country, we must flip the Senate. We must remove trump. It’s all hands-on deck for the next 308 days. I know it can feel overwhelming, but I promise that working on something you care about, whatever it is, makes a HUGE difference, for your country and yourself. Here is my personal top ten list on taking action.
+Now we have 44 weeks to finish the job. To take back our country, we must flip the Senate. We must remove Trump. It’s all hands-on deck for the next 308 days. I know it can feel overwhelming, but I promise that working on something you care about, whatever it is, makes a HUGE difference, for your country and yourself. Here is my personal top ten list on taking action.
 
 **10.Donate to A Cause:**From [Fair Fight ](https://fairfight.com){:target="_blank"} to [Dignity in Asylum ](https://www.dignityinasylum.org){:target="_blank"} there are lots of organizations fighting the GOP agenda. What is your passion? Share it with others. *Small donations matter!*
 
