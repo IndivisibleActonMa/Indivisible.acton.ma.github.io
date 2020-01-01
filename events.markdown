@@ -91,6 +91,10 @@ date: 2019-11-22 08:43:00 -05:00
 
 * **7-8p**, Acton:  ***Climate Response Forum at Congregation Beth Elohim*** - The purpose of the forum is to inform congregants and residents in our area about pending legislation and other actions that can reduce carbon emissions.  The forum is co-sponsored by Senator Jamie Eldridge and Congregation Beth Elohim. Other legislators and community groups will be represented at the forum with Rabbi Mike as moderator.  Congregation Beth Elohim, 133 Prospect St, Acton, MA 01720  
 
+* **7-9p**, Acton: ***[Book Discussion - Raising White Kids: Bringing Up Children in a Racially Unjust America by Jennifer Harvey](https://www.facebook.com/events/2852968308089260/){:target="_blank"}*** - Hosted by [Fostering Racial Justice Group](https://www.facebook.com/FosteringRacialJustice/?eid=ARCOQuAO_PmoUtlH7CKGimAMsLqB4E_nGVGY4_9w8SUebRsrI9ifrr3ua_JoFdBSRDPlPPDjitBqj3fh){:target="_blank"} and [The Silver Unicorn Bookstore](https://www.facebook.com/SilverUnicornBooks/){:target="_blank"}.  The Silver Unicorn Bookstore
+12 Spruce St., Acton, Massachusetts 01720  
+
+
 ---  
 
 ## Save the Date
