@@ -97,16 +97,19 @@ Click [HERE](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3Oz
 
 ### Other
 
-* Universal Basic Income:  Read about the proposed pilot program in Massachusetts [H.1632](https://malegislature.gov/Bills/191/H1632){:target="_blank"}.  Learn more about Alex Howlett's Basic Income theory [HERE](http://www.greshm.org){:target="_blank"}.
+* [2020 N.H. Primary Candidate Tracker: Where and When to See the Candidates](https://www.nhpr.org/post/2020-nh-primary-candidate-tracker-where-and-when-see-candidates#stream/0){:target="_blank"}.  NH Primary is Feb 11, 2019.  Get out and canvass for your candidate!
 
-* [2020 N.H. Primary Candidate Tracker: Where and When to See the Candidates](https://www.nhpr.org/post/2020-nh-primary-candidate-tracker-where-and-when-see-candidates#stream/0)  
+* Universal Basic Income:  Read about the proposed pilot program in Massachusetts [H.1632](https://malegislature.gov/Bills/191/H1632){:target="_blank"}.  Learn more about Alex Howlett's Basic Income theory [HERE](http://www.greshm.org){:target="_blank"}.
 
 ---
 
 ### Concerned about disinformation?
 
-Check out this website [Disarm Disinformation](https://www.disarmdisinfo.com){:target="_blank"}  and learn how to become educated consumers and fight disinformation.  
+* Check out this website [Disarm Disinformation](https://www.disarmdisinfo.com){:target="_blank"}  and learn how to become educated consumers and fight disinformation.  
 
+* Check out this newsletter about the history behind today's politics: [Letters from An American](https://heathercoxrichardson.substack.com){:target="_blank"}  
+
+ 
 ---
 ### Tools
 
