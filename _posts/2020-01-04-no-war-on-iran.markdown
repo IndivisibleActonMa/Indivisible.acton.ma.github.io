@@ -4,7 +4,7 @@ date: 2020-01-04 07:22:00 -05:00
 is featured: true
 ---
 
-### There are various protests being held **TODAY** Jan 4, 2 020. 
+### There are various protests being held **TODAY** Jan 4, 2020. 
 
 * ***[Boston: No War On Iran! US Troops Out of Iraq! Rally & Teach In](https://www.facebook.com/events/575486923029832/){:target="_blank"}*** - 2-3p, Park Street, Boston.  
 
