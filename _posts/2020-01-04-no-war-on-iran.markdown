@@ -23,3 +23,11 @@ Let's make our voices heard!
 ### Petitions
 
 * [Stop War with Iran](https://sign.moveon.org/petitions/stop-war-with-iran-1){:target="_blank"} - Sign a petition to the House of Representatives and The US Senate.
+
+### Press Releases/Statements
+
+* [Trahan Statement on Airstrike in Iraq Against High-Level Iranian Military Officials](https://trahan.house.gov/news/documentsingle.aspx?DocumentID=1341&fbclid=IwAR2s4rRH444aL7dLUJzjdFcTXI_hJfGn-9NZafYhrhcabRcELs5vJxPavMI){:target="_blank"} 
+
+* [Senator Markey Statement on Killing of Iranian General Qassem Soleimani](https://www.markey.senate.gov/news/press-releases/senator-markey-statement-on-killing-of-iranian-general-qassem-soleimani){:target="_blank"}  
+
+* Senator Warren (@ewarren):  Soleimani was a murderer, responsible for the deaths of thousands, including hundreds of Americans. But this reckless move escalates the situation with Iran and increases the likelihood of more deaths and new Middle East conflict. Our priority must be to avoid another costly war.  
