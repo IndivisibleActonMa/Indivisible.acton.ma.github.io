@@ -68,5 +68,7 @@ Click [HERE](https://docs.google.com/document/d/1k-N7qZ5fBR2wRGOcRI8ZJxQGbO5CfsX
 
 Click [HERE](https://www.sec.state.ma.us/ele/elespeif/37middlesexcal.htm){:target="_blank"} for more info
 
+[Letter from Rep Benson to her constituents](https://jenbenson.org/2019/12/19/a-letter-to-my-constituents/){:target="_blank"} 
+
 ---
 
