@@ -6,12 +6,6 @@ is featured: true
 
 Let's make our voices heard!
 
-### Protests **TODAY** Jan 4, 2020  
-
-* ***[Boston: No War On Iran! US Troops Out of Iraq! Rally & Teach In](https://www.facebook.com/events/575486923029832/){:target="_blank"}*** - 2-3p, Park Street, Boston.  
-
-* ***Andover: Protest at 11a at the corner of 133 and 28 to align with other protests against escalations with Iran.***
-
 ### Actions being taken in Congress:
 
 * [Senator Tim Kaine introduces resolution to block war with Iran](https://thehill.com/homenews/senate/476702-kaine-introduces-resolution-to-block-war-with-iran){:target="_blank"}
