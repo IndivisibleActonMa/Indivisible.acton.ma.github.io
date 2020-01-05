@@ -25,3 +25,8 @@ Let's make our voices heard!
 * [Senator Markey Statement on Killing of Iranian General Qassem Soleimani](https://www.markey.senate.gov/news/press-releases/senator-markey-statement-on-killing-of-iranian-general-qassem-soleimani){:target="_blank"}  
 
 * Senator Warren (@ewarren):  Soleimani was a murderer, responsible for the deaths of thousands, including hundreds of Americans. But this reckless move escalates the situation with Iran and increases the likelihood of more deaths and new Middle East conflict. Our priority must be to avoid another costly war.  
+
+### Additional Reading
+
+* Get historian [Heather Cox Richardson's perspective](https://heathercoxrichardson.substack.com/p/january-3-2020?utm_campaign=post&utm_medium=web&utm_source=copy){:target="_blank"}.  
+
