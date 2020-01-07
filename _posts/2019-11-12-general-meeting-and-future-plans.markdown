@@ -7,14 +7,17 @@ event-end-date: 2020-01-13 20:45:00 -05:00
 Location: Acton Memorial Library 486 Main St., Acton, MA 01720
 ---
 
+### Welcome to 2020!!!
 
-Come hear inspiring speakers and then join us for take action breakouts at our January General Meeting.  
+This is a *BIG* year!!  We have a lot of work to do!
 
-Our featured speakers are from [ACT on MASS](https://actonmass.org){:target="_blank"}. 
+Come hear inspiring speakers and then join us for take action breakouts at our 2020 Kick-Off Meeting!
 
-Join us to learn about how the Massachusetts State House works and how we can build power for passing our progressive agenda into law. 
+Our featured speakers are from [ACT on MASS](https://actonmass.org){:target="_blank"}.
 
-We will practice tactical skills on how to effectively engage with your representatives and senators. We will also discuss the recent history of the lack of transparency on Beacon Hill and what us activists can do about it. 
+Join us to learn about how the Massachusetts State House works and how we can build power for passing our progressive agenda into law.
+
+We will practice tactical skills on how to effectively engage with your representatives and senators. We will also discuss the recent history of the lack of transparency on Beacon Hill and what us activists can do about it.
 
 ——
 
