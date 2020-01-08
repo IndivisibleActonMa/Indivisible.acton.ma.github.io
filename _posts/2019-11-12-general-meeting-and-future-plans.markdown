@@ -19,6 +19,14 @@ Join us to learn about how the Massachusetts State House works and how we can bu
 
 We will practice tactical skills on how to effectively engage with your representatives and senators. We will also discuss the recent history of the lack of transparency on Beacon Hill and what us activists can do about it.
 
+Also: 
+
+* Special election for Middlesex 37th District (Rep Jen Benson's seat).
+
+* Climate Crisis - Local Action
+
+* 10 Ways to Make Change!
+
 ——
 
 Social half hour starts at 6:30pm and the meeting starts at 7pm.
