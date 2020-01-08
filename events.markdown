@@ -11,6 +11,8 @@ date: 2019-11-22 08:43:00 -05:00
 
 Please join us as we kickoff 2020 and take action to rebuild our democracy! 
 
+Monday, Jan 13, 6:30-8:45p, Acton Memorial Library.
+
 ---
 
 * Click **[HERE](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal){:target="_blank"}** to see events published on Indivisible Acton's Public Facebook page.
