@@ -7,6 +7,12 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
+## [January General Meeting - Kickoff 2020!](http://www.indivisibleacton.org/2019/11/12/general-meeting-and-future-plans.html){:target="_blank"}
+
+Please join us as we kickoff 2020 and take action to rebuild our democracy! 
+
+---
+
 * Click **[HERE](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal){:target="_blank"}** to see events published on Indivisible Acton's Public Facebook page.
 
 
