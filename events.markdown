@@ -11,7 +11,8 @@ date: 2019-11-22 08:43:00 -05:00
 
 Please join us as we kickoff 2020 and take action to rebuild our democracy! 
 
-Monday, Jan 13, 6:30-8:45p, Acton Memorial Library.
+When:  Monday, Jan 13, 6:30-8:45p
+Where: Acton Memorial Library  
 
 ---
 
