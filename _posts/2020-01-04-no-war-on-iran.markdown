@@ -23,7 +23,7 @@ Click [HERE](https://act.moveon.org/event/no-war-with-iran-attend/search/){:targ
 
 * [Sen. Bernie Sanders and Rep. Ro Khanna Friday night unveiled new legislation that would bar any Pentagon funding for "military force in or against Iran" without congressional approval, an effort to forestall what many in the U.S., Middle East, and around the world fear is a march to war by the Trump administration.](https://www.commondreams.org/news/2020/01/04/sanders-and-khanna-introduce-new-bill-stop-donald-trump-illegally-taking-us-war){:target="_blank"}
 
-***Write your Senators and MOC's asking them to support these efforts***.
+***Write your Senators and MOC's asking them to cosponsor War Powers Resolutions [S.J.Res.63](https://www.congress.gov/bill/115th-congress/senate-joint-resolution/63){:target="_blank"} and [H.J.Res.82](https://www.congress.gov/bill/116th-congress/house-joint-resolution/82?q=%7B%22search%22%3A%5B%22war+powers+resolution%22%5D%7D&s=1&r=5){:target="_blank"}***.
 
 ### Petitions
 
