@@ -1,10 +1,21 @@
 ---
-title: No War On Iran
+title: No War With Iran
 date: 2020-01-04 07:22:00 -05:00
 is featured: true
 ---
 
 Let's make our voices heard!
+
+### Join a Rally to protest war with Iran Thursday, Jan 9, 5p
+
+Click [HERE](https://act.moveon.org/event/no-war-with-iran-attend/search/){:target="_blank"} to find an event near you.
+
+* Protest Iran War - Kelly's Corner, Acton, MA
+
+* Peace Vigil, First Parish Church of Stow & Acton, Stow, MA
+
+* Concord Rises: No War with Iran, Monument Square, Concord, MA
+
 
 ### Actions being taken in Congress:
 
