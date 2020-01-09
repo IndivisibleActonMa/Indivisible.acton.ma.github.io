@@ -6,7 +6,7 @@ is featured: true
 
 Let's make our voices heard!
 
-### Join a Rally to protest war with Iran Thursday, Jan 9, 5p
+### Join a Rally - Thursday, Jan 9, 5p
 
 Click [HERE](https://act.moveon.org/event/no-war-with-iran-attend/search/){:target="_blank"} to find an event near you.
 
