@@ -1,7 +1,7 @@
 ---
 title: No War With Iran
 date: 2020-01-04 07:22:00 -05:00
-is featured: true
+is featured: false
 ---
 
 Let's make our voices heard!
