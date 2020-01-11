@@ -1,7 +1,7 @@
 ---
 title: Support the ROE Act!
 date: 2019-10-09 18:15:00 -04:00
-is featured: true
+is featured: false
 ---
 
 ***THANK YOU*** to everyone who has written postcards for the ROE Act! *We have sent out over 10,000 postcards*.
