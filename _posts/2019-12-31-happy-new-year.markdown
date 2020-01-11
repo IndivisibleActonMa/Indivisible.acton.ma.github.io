@@ -1,7 +1,7 @@
 ---
 title: Happy New Year!
 date: 2019-12-31 09:06:00 -05:00
-is featured: true
+is featured: false
 ---
 
 Dear Activist Family,
