@@ -58,6 +58,6 @@ Embedding countdown here:
 
 ---
 
-***Please check the [calendar](http://www.indivisibleacton.org/calendar.html){:target="_blank"} for **NEW Winning Wednesday** postcard events!***
+*Please check the [calendar](http://www.indivisibleacton.org/calendar.html){:target="_blank"} for **NEW Winning Wednesday** postcard events!*
 
 ### End of test
