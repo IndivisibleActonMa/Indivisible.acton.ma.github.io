@@ -48,6 +48,8 @@ Please join us as we kickoff 2020 and take action to rebuild our democracy!
 
 * **6:30-8:30p**, Littleton: ***Blue Wave Postcards 2020*** - Join us in the Couper room for postcards and more!  Please note the time change for this Tuesday.  Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA  
 
+***Please check the [calendar](http://www.indivisibleacton.org/calendar.html){:target="_blank"} for **NEW Winning Wednesday** postcard events!***
+
 ---
 
 ## Some Events to Consider
