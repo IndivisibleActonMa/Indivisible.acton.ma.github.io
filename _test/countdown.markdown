@@ -57,4 +57,7 @@ Embedding countdown here:
 <iframe width="300" height="154" src="https://w2.countingdownto.com/2799792" frameborder="0"></iframe>
 
 ---
+
+***Please check the [calendar](http://www.indivisibleacton.org/calendar.html){:target="_blank"} for **NEW Winning Wednesday** postcard events!***
+
 ### End of test
