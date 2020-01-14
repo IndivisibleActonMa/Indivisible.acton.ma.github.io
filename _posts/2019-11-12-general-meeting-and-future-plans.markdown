@@ -1,6 +1,7 @@
 ---
 title: January General Meeting
 date: 2019-11-12 07:25:00 -05:00
+published: false
 is featured: true
 event-start-date: 2020-01-13 18:30:00 -05:00
 event-end-date: 2020-01-13 20:45:00 -05:00
