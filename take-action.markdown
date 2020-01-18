@@ -54,9 +54,15 @@ Click [HERE](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3Oz
 
 ### Take Action for Immigration
 
-* Click [HERE](http://www.indivisibleacton.org/events/support-immigration-justice.html) to learn how you can contribute time and/or money to organizations which support immigrant justice.
+* Click [HERE](http://www.indivisibleacton.org/events/support-immigration-justice.html){:target="_blank"} to learn how you can contribute time and/or money to organizations which support immigrant justice.
 
-* ***Please submit your comments opposing the proposed increase in fees for legal immigration.  Comment period closes Dec 30.  Click [HERE](http://www.indivisibleacton.org/2019/12/10/uscis-comments-needed.html) for more info.***
+* Tell MIT Not to Cooperate with ICE 
+
+Faculty and staff at the Massachusetts Institute of Technology (MIT) received a memo telling them to expect a visit from the Department of Homeland Security and [asking them to cooperate with requests for information on the immigration status of researchers, visiting scholars and post-doctoral students at the university](https://commonwealthmagazine.org/immigration/mit-tells-staff-to-expect-visits-from-ice-2/?link_id=6&can_id=2367f63e076c12dadb092e1de7ba101c&source=email-january-11-mass-action-indivisible-newsletter-2&email_referrer=email_697784___subject_935158&email_subject=mass-action-indivisible-newsletter){:target="_blank"}. 
+
+  Let’s contact the President of MIT, Rafael Reif (president@mit.edu; 617-253-0148) and the author of this memo, Director of the International Scholars Office, Penny Rosser (pennysun@mit.edu; 617-253-2851) and ask them not to cooperate with an agency that has been recklessly deporting innocent people, separating children from their parents, and violating individuals’ basic human rights. 
+
+  H/T Rogan's List 
 
 ### Local/State
 
