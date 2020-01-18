@@ -7,14 +7,6 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
-### NEW Winning Wednesday Postcard Events!!
-
-* **Wednesday, Jan 22, 2p** - Dunkin', 1641 Sudbury Rd, Concord, MA 01742
-
-* **Wednesday, Jan 29, 7p** - Armory’s Tomb Brewery, 76 Main St, Maynard
-
-
----
 * Click **[HERE](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal){:target="_blank"}** to see events published on Indivisible Acton's Public Facebook page.
 
 
@@ -48,6 +40,14 @@ date: 2019-11-22 08:43:00 -05:00
 * **6:30-8:30p**, Littleton: ***Blue Wave Postcards 2020*** - Join us in the Couper room for postcards and more!  Please note the time change for this Tuesday.  Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA  
 
 *Please check the [calendar](http://www.indivisibleacton.org/calendar.html){:target="_blank"} for **NEW Winning Wednesday** postcard events!*  
+
+---
+
+### NEW Winning Wednesday Postcard Events!!
+
+* **Wednesday, Jan 22, 2p** - Dunkin', 1641 Sudbury Rd, Concord, MA 01742
+
+* **Wednesday, Jan 29, 7p** - Armory’s Tomb Brewery, 76 Main St, Maynard
 
 ---
 
