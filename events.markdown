@@ -43,7 +43,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
-### NEW Winning Wednesday Postcard Events!!
+### *NEW* Winning Wednesday Postcard Events!!
 
 * **Wednesday, Jan 22, 2p** - Dunkin', 1641 Sudbury Rd, Concord, MA 01742
 
