@@ -88,6 +88,8 @@ date: 2019-11-22 08:43:00 -05:00
 
 * **1-2p**, Burlington: ***Jericho Walks make a difference!***  Please attend the Next Jericho Walk, 1000 District Avenue, Burlington.  Sponsored by Burlington Area Clergy 4 Justice. 
 
+* **7:30-9p**, Concord:  ***Varshini Prakash: Climate Solutions Speaker Series*** - The Climate Solutions Speaker Series will host Varshini Prakash, Co-founder and Executive Director of the Sunrise Movement, to present her vision for the climate movement. One of TIME Magazine's 2019 100 NEXT Rising Stars, this is a speaker you won't want to miss. The Sunrise Movement is a youth-led grassroots organization to stop climate change and create millions of good jobs in the process.  Willard Elementary School, 185 Powder Mill Rd, Concord.  Doors open at 7p.  Click [HERE](https://www.facebook.com/events/564880554361743/){:target="_blank"} for the Facebook event.  
+
 ### Friday, Jan 24
 
 * **10-11:30a**, Wayland:  ***Suppressed: The Fight to Vote - 9-Minute Film Excerpt, Discussion, and Activity*** - Join Joel Silberman and Jean Milburn of Wayland to watch a 9-minute excerpt of [the film](https://tinyurl.com/SuppressedExcerpt){:target="_blank"} and engage in a brief, facilitated discussion. Attendees will also have an optional opportunity to fill out postcards encouraging eligible voters who have been purged to re-enroll and vote!  Wayland Free Public Library, 5 Concord Road, Wayland, MA 01778   
