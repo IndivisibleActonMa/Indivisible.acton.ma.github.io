@@ -110,6 +110,9 @@ date: 2019-11-22 08:43:00 -05:00
 
 * **7:30-9:30p**, Acton: ***2020 Green New Deal Launch Party*** - The *Green New Deal* is a 10-year plan to mobilize every aspect of American society to 100% clean and renewable energy by 2030, a guaranteed living-wage job for anyone who needs one, and a just transition for both workers and frontline communities. *All ages welcome!*  Common House, 25 Half Moon Hill, Acton.  [RSVP HERE](https://actionnetwork.org/events/green-new-deal-launch-party-west-acton?source=email&&link_id=6&can_id=9a7cc198611ac2a74f284fdda8e14f7e&email_referrer=email_703551&email_subject=indivisible-acton-weekly-newsletter-1212020){:target="_blank"} or email Lee@newview.org  
 
+### Thursday, Jan 30
+
+* **7-9p**, Acton: ***Racial Justice Working Group*** - This is a new group just getting started.  Congregation Beth Elohim, 133 Prospect Street, Acton
 ---  
 
 ## Save the Date
