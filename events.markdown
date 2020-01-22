@@ -99,7 +99,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Sunday, Jan 26
 
-* **2p**, Groton:  ***Film and Conversation: The Work of 1000*** -  Marion Stoddart is a legendary grassroots environmental activist who championed the cleanup of the Nashua River, starting in the early 1960s.  There will be a free screening of the film followed by a panel discussion about how to make a positive change through grassroots activism. Click [HERE](https://www.libraryinsight.com/eventdetails.asp?v=3&jx=ii&lmx=%CFca%25%AD%A4s){:target="_blank"} to RSVP and for more info.  The Front Center, 163 W Main St, Groton.
+* **2-4p**, Groton:  ***Film and Conversation: The Work of 1000*** -  Marion Stoddart is a legendary grassroots environmental activist who championed the cleanup of the Nashua River, starting in the early 1960s.  There will be a free screening of the film followed by a panel discussion about how to make a positive change through grassroots activism. Click [HERE](https://www.libraryinsight.com/eventdetails.asp?v=3&jx=ii&lmx=%CFca%25%AD%A4s){:target="_blank"} to RSVP and for more info.  The Front Center, 163 W Main St, Groton.
 
 ### Tuesday, Jan 28  
 
