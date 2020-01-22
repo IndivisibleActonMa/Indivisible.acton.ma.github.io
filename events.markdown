@@ -110,7 +110,7 @@ date: 2019-11-22 08:43:00 -05:00
 * **7-9p**, Acton: ***[Book Discussion - Raising White Kids: Bringing Up Children in a Racially Unjust America by Jennifer Harvey](https://www.facebook.com/events/2852968308089260/){:target="_blank"}*** - Hosted by [Fostering Racial Justice Group](https://www.facebook.com/FosteringRacialJustice/?eid=ARCOQuAO_PmoUtlH7CKGimAMsLqB4E_nGVGY4_9w8SUebRsrI9ifrr3ua_JoFdBSRDPlPPDjitBqj3fh){:target="_blank"} and [The Silver Unicorn Bookstore](https://www.facebook.com/SilverUnicornBooks/){:target="_blank"}.  The Silver Unicorn Bookstore
 12 Spruce St, Acton, MA 01720  
 
-### Wednesday,Jan 29
+### Wednesday, Jan 29
 
 * **7:30-9:30p**, Acton: ***2020 Green New Deal Launch Party*** - The *Green New Deal* is a 10-year plan to mobilize every aspect of American society to 100% clean and renewable energy by 2030, a guaranteed living-wage job for anyone who needs one, and a just transition for both workers and frontline communities. *All ages welcome!*  Common House, 25 Half Moon Hill, Acton.  [RSVP HERE](https://actionnetwork.org/events/green-new-deal-launch-party-west-acton?source=email&&link_id=6&can_id=9a7cc198611ac2a74f284fdda8e14f7e&email_referrer=email_703551&email_subject=indivisible-acton-weekly-newsletter-1212020){:target="_blank"} or email Lee@newview.org  
 
