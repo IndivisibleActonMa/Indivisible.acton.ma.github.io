@@ -112,7 +112,8 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Thursday, Jan 30
 
-* **7-9p**, Acton: ***Racial Justice Working Group*** - This is a new group just getting started.  Congregation Beth Elohim, 133 Prospect Street, Acton
+* **7-9p**, Acton: ***Racial Justice Working Group*** - This is a new group just getting started.  Congregation Beth Elohim, 133 Prospect Street, Acton  
+
 ---  
 
 ## Save the Date
