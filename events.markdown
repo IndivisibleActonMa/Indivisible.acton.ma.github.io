@@ -97,6 +97,10 @@ date: 2019-11-22 08:43:00 -05:00
 
 * **10a-5p**, Boston: ***Safe Communities Act Public Hearing*** - Join immigrants and allies across the State to support the Safe Communities Act! Click [HERE](https://www.facebook.com/events/810339706082219/){:target="_blank"} for more info. [RSVP HERE](https://docs.google.com/forms/d/e/1FAIpQLSc8qVvipg0EeoXQjPtkSWbM3FMZkl5-AwIRcmc5t7ogxlNKEA/viewform?fbclid=IwAR3Pl28GTBn_lkNjPS2Nee8iIOpN5RYC8t74Uk7IcK4ifUTWX_xrXDUS048){:target="_blank"}. MA State House, Gardner Auditorium, 24 Beacon St, Boston. 
 
+### Sunday, Jan 26
+
+* **2p**, Groton:  ***Film and Conversation: The Work of 1000*** -  Marion Stoddart is a legendary grassroots environmental activist who championed the cleanup of the Nashua River, starting in the early 1960s.  There will be a free screening of the film followed by a panel discussion about how to make a positive change through grassroots activism. Click [HERE](https://www.libraryinsight.com/eventdetails.asp?v=3&jx=ii&lmx=%CFca%25%AD%A4s){:target="_blank"} to RSVP and for more info.  The Front Center, 163 W Main St, Groton.
+
 ### Tuesday, Jan 28  
 
 * **10a-12p**, Boston: ***Election Day Registration Lobby Day at the State House*** - Every election, Massachusetts disenfranchises thousands of its own citizens by denying eligible voters the ability to register or update their information on Election Day. Two out of three of those prevented from casting a ballot are actually registered but rendered ineligible because their registration contains simple and fixable errors. [Register HERE](bit.ly/EDRLobbyDay){:target="_blank"}.  Click [HERE](https://www.facebook.com/events/736703633492888/?active_tab=about){:target="_blank"} to see the Facebook event.  
