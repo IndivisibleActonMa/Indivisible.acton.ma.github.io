@@ -56,6 +56,18 @@ Click [HERE](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3Oz
 
 ---
 
+### Puerto Rico
+
+Puerto Rico has been hit with a devastating series of earthquakes and at least 120 aftershocks. As a result, almost the entire island has lost power. Meanwhile, the HUD continues to withhold hurricane relief funds from Puerto Rico (a territory of the United States), ignoring a statutory deadline to issue a Federal Register notice permitting Puerto Rico to use $8.2 billion in disaster relief aid appropriated by Congress.  And as Rep. Darren Soto pointed out in a press release, “*Puerto Ricans continue to suffer from major hurricanes that made landfall more than two years ago while HUD illegally withholds this aid.*” 
+
+This is awful and needs to be called out. 
+
+Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s failure to process Congressionally approved funds in a timely manner. (202) 708-0430. 
+
+(H/T Chop Wood/Carry Water)
+
+---
+
 ### Take Action for Immigration
 
 * Click [HERE](http://www.indivisibleacton.org/events/support-immigration-justice.html){:target="_blank"} to learn how you can contribute time and/or money to organizations which support immigrant justice.
