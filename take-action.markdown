@@ -6,34 +6,6 @@ layout: page
 
 ---
 
-“If right doesn’t matter, it doesn’t matter how good the Constitution is.  
-
-It doesn’t matter how brilliant the Framers were.  
-
-It doesn’t matter how good or bad our advocacy in this trial is.  
-
-It doesn’t matter how well written the oath of impartiality is.  
-
-If right doesn’t matter, we’re lost.  
-
-If the truth doesn’t matter, we’re lost.  
-
-The Framers couldn’t protect us from ourselves if right and truth don’t matter.  
-
-And you know that what he did was not right. That’s what they do in the old country, that Col. Vindman’s father came from. Or the old country that my great-grandfather came from. Or the old countries that your ancestors came from, or maybe you came from. But, here, right is supposed to matter. It’s what’s made us the greatest nation on earth.  
-
-No Constitution can protect us if right doesn’t matter anymore.  
-
-And you know you can’t trust this president to do what’s right for this country. You can trust he will do what’s right for Donald Trump. He’ll do it now. He’s done it before. He’ll do it for the next several months. He’ll do it in the election if he’s allowed to. This is why, if you find him guilty, you must find that he should be removed.  
-
-Because right matters. Right matters. And the truth matters.  
-
-Otherwise we are lost.”  
-
-Adam Schiff
-
----
-
 <p id="demo">
 </p>
 
@@ -74,6 +46,34 @@ var x = setInterval(function() {
 
 ---
 
+
+“If right doesn’t matter, it doesn’t matter how good the Constitution is.  
+
+It doesn’t matter how brilliant the Framers were.  
+
+It doesn’t matter how good or bad our advocacy in this trial is.  
+
+It doesn’t matter how well written the oath of impartiality is.  
+
+If right doesn’t matter, we’re lost.  
+
+If the truth doesn’t matter, we’re lost.  
+
+The Framers couldn’t protect us from ourselves if right and truth don’t matter.  
+
+And you know that what he did was not right. That’s what they do in the old country, that Col. Vindman’s father came from. Or the old country that my great-grandfather came from. Or the old countries that your ancestors came from, or maybe you came from. But, here, right is supposed to matter. It’s what’s made us the greatest nation on earth.  
+
+No Constitution can protect us if right doesn’t matter anymore.  
+
+And you know you can’t trust this president to do what’s right for this country. You can trust he will do what’s right for Donald Trump. He’ll do it now. He’s done it before. He’ll do it for the next several months. He’ll do it in the election if he’s allowed to. This is why, if you find him guilty, you must find that he should be removed.  
+
+Because right matters. Right matters. And the truth matters.  
+
+Otherwise we are lost.”  
+
+Adam Schiff
+
+---
 Click [HERE for the Activist Alliance Newsletter](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?usp=sharing){:target="_blank"}
 
 Click [HERE for Indivisible MA newsletters](https://us17.campaign-archive.com/home/?u=3129bf2656ae4f5f1dcba96ad&id=70e7531ca3){:target="_blank"}
