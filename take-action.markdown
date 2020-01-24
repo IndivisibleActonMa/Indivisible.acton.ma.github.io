@@ -46,8 +46,7 @@ var x = setInterval(function() {
 
 ---
 
-
-*“If right doesn’t matter, it doesn’t matter how good the Constitution is.  
+“If right doesn’t matter, it doesn’t matter how good the Constitution is.  
 
 It doesn’t matter how brilliant the Framers were.  
 
@@ -72,7 +71,7 @@ Because right matters. Right matters. And the truth matters.
 Otherwise we are lost.”  
 
 Adam Schiff
-*
+
 ---
 Click [HERE for the Activist Alliance Newsletter](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?usp=sharing){:target="_blank"}
 
