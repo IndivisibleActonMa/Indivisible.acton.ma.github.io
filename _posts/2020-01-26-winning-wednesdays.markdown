@@ -18,5 +18,5 @@ Please join us!
 
 * **Wednesday, Jan 29, 7-9p** at Amory's Tomb Brewing, 76 Main St, Maynard  
 
-* **Saturday, Feb 1, 2-4p** at Havard General Store, 1 Still River Rd, Harvard  
+* **Saturday, Feb 1, 2-4p** at Harvard General Store, 1 Still River Rd, Harvard  
 
