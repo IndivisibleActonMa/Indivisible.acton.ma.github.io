@@ -45,16 +45,6 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
-## *NEW* Postcard Events!!
-
-* **Wednesday, Jan 22, 2p** - Dunkin', 1641 Sudbury Rd, Concord, MA 01742
-
-* **Wednesday, Jan 29, 7p** - Armory’s Tomb Brewery, 76 Main St, Maynard
-
-* **Saturday, Feb 1, 2-4p** - Harvard General Store, 1 Still River Rd, Harvard  
-
----
-
 ## Some Other Events to Consider
 
 
