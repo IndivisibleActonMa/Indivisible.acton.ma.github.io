@@ -23,19 +23,21 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
-### Saturday, Jan 4
+### Saturday, Feb 1
 
 * **10a-12p**, Acton: ***Postcards*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA 
 
-### Tuesday, Jan 14  
+* **2-4p**, Harvard:  ***Postcards*** - Multiple campaigns. Look forward to seeing you there!  Harvard General Store, 1 Still River Rd, Harvard, MA
+
+### Tuesday, Feb 11  
 
 * **7-9p**, Littleton: ***Blue Wave Postcards 2020*** - Join us in the Couper room for postcards and more!  Please note the time change for this Tuesday.  Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA  
 
-### Saturday, Jan 18
+### Saturday, Feb 15
 
 * **10a-12p**, Acton: ***Postcards*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA 
 
-### Tuesday, Jan 28  
+### Tuesday, Feb 25  
 
 * **6:30-8:30p**, Littleton: ***Blue Wave Postcards 2020*** - Join us in the Couper room for postcards and more!  Please note the time change for this Tuesday.  Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA  
 
