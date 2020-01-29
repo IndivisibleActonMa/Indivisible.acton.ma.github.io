@@ -82,7 +82,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Sunday, Feb 9 
 
-* **2-4p**, Concord: ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742.  ***Please note NEW time***.   
+* **2-4p**, Concord: ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s [calendar](https://concordindivisible.org/current-actions/){:target="_blank"} for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742.  
 
 ### Monday, Feb 10
 
