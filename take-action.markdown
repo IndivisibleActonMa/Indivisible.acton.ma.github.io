@@ -96,7 +96,7 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 
   H/T Rogan's List
 
-### Enviroment/Climate Crisis
+### Environment/Climate Crisis
 
 * Find out how you can protect and enhance Acton's natural environment and to help resolve the urgent environmental issues that transcend Acton's boundaries [HERE](https://greenacton.org){:target="_blank"}.  
 
