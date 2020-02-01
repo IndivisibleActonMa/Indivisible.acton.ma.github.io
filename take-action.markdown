@@ -119,7 +119,7 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 
 * **Support Ranked Choice Voting**.  Go to [Voter Choice MA](https://www.voterchoicema.org){:target="_blank"} for more info.
 
-* **Contact your state lawmakers about the ROE Act.** Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors?fbclid=IwAR3q0MsBefpFWEW9kq8vl7sAzzeRyE0iTAZDauZjxpP9ocIvGDyvEDc_CLQ){:target="_blank"} to find out where your Representatives stand.
+* **Contact your state lawmakers about the ROE Act.** Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors?fbclid=IwAR3q0MsBefpFWEW9kq8vl7sAzzeRyE0iTAZDauZjxpP9ocIvGDyvEDc_CLQ){:target="_blank"} to find out where your Representatives stand.  
 
 * Email your MA state legislators and **demand that they lead on immigrant rights and equity**. MIRA (MA Immigrant and Refugee Advocacy Coalition) has put together a [comprehensive list](https://mailchi.mp/miracoalition/action-alert-lets-build-momentum-for-our-2019-priority-bills?e=baa65bb0e1&link_id=16&can_id=9a7cc198611ac2a74f284fdda8e14f7e) of all of the bills that support immigration and refugee rights and has made it super easy to [email your legislators to support these bills](https://p2a.co/96apnIc?link_id=17&can_id=9a7cc198611ac2a74f284fdda8e14f7e){:target="_blank"}.
 
