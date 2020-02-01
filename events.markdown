@@ -51,7 +51,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 * **Feb 12, 7-9p** - Amory’s Tomb Brewing, 76 Main St, Maynard. 
 
-**Feb 19, 2-4p** - Dunkin’, 1641 Sudbury Rd (Rt 117), Concord
+* **Feb 19, 2-4p** - Dunkin’, 1641 Sudbury Rd (Rt 117), Concord
 
 
 ---
