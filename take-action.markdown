@@ -117,7 +117,7 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 
 * **Ask your legislator to take the State House Transparency Pledge** - [Act On Mass](https://www.actonmass.org/?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU){:target="_blank"} is working to increasing transparency in our State House.  Let's ask our elected legislators to take action to create transparency today so important progressive bills don’t die in darkness. Click [HERE](https://www.actonmass.org/pledge?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU){:target="_blank"} for more info!
 
-* **Support Ranked Choice Voting**.  Go to [Voter Choice MA](https://www.voterchoicema.org){:target="_blank"} for more info.
+* **Support Ranked Choice Voting**.  Go to [Voter Choice MA](https://www.voterchoicema.org){:target="_blank"} for more info.  
 
 * **Contact your state lawmakers about the ROE Act.** Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors?fbclid=IwAR3q0MsBefpFWEW9kq8vl7sAzzeRyE0iTAZDauZjxpP9ocIvGDyvEDc_CLQ){:target="_blank"} to find out where your Representatives stand.  
 
