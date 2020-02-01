@@ -20,5 +20,3 @@ Social half hour starts at 6:30pm and the meeting starts at 7pm.
 Look forward to seeing you!!
 
 ---
-
-<img src="/uploads/Jan%2013%20Flyer-2.jpg" width="400" height="500">
