@@ -47,21 +47,14 @@ var x = setInterval(function() {
 ---
 
 “If right doesn’t matter, it doesn’t matter how good the Constitution is.  
-
-It doesn’t matter how brilliant the Framers were.  
-
-It doesn’t matter how good or bad our advocacy in this trial is.  
-
+It doesn’t matter how brilliant the Framers were.  It doesn’t matter how good or bad our advocacy in this trial is.  
 It doesn’t matter how well written the oath of impartiality is.  
-
 If right doesn’t matter, we’re lost.  
-
 If the truth doesn’t matter, we’re lost.  
-
 The Framers couldn’t protect us from ourselves if right and truth don’t matter.  
-
-...
-
+.  
+.  
+.  
 Because right matters. Right matters. And the truth matters.  
 
 Otherwise we are lost.”  
@@ -103,6 +96,13 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 
   H/T Rogan's List
 
+### Enviroment/Climate Crisis
+
+* Find out how you can protect and enhance Acton's natural environment and to help resolve the urgent environmental issues that transcend Acton's boundaries [HERE](https://greenacton.org){:target="_blank"}.  
+
+* Join [Mothers Out Front](https://ma.mothersoutfront.org){:target="_blank"} to take action to address climate change.
+
+* [101 Ways to Fight Climate Change](https://www.curbed.com/2017/6/7/15749900/how-to-stop-climate-change-actions){:target="_blank"}. 
 
 
 ### Local/State
@@ -131,8 +131,6 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 ### National
 
 * [Join Stacy Abrams in Fair Fight 2020](https://fairfight.com/fair-fight-2020/){:target="_blank"}
-
-* [101 Ways to Fight Climate Change](https://www.curbed.com/2017/6/7/15749900/how-to-stop-climate-change-actions){:target="_blank"}
 
 * Let's call Mitch McConnell at (202) 224-2541 and tell him that last week's mass shooting lies squarely at his feet. He needs to pass [HR 8](https://www.congress.gov/bill/116th-congress/house-bill/8/text){:target="_blank"} and Red Flag laws now. You can also fill out [this form](https://act.everytown.org/sign/smarter-gun-laws/){:target="_blank"} from [Everytown.org](https://everytown.org/){:target="_blank"} which will send a message to Senate Majority Leader Mitch McConnell and your U.S. Senators to pass background checks and a strong red flag law that will help prevent further gun violence tragedies.
 
