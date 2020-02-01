@@ -115,7 +115,7 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 
 * [Support your local Indivisible Group](http://www.indivisibleacton.org/2019/09/17/support-your-local-indivisible-group.html)!
 
-* **Ask your legislator to take the State House Transparency Pledge** - [Act On Mass](https://www.actonmass.org/?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU){:target="_blank"} is working to increasing transparency in our State House.  Let's ask our elected legislators to take action to create transparency today so important progressive bills don’t die in darkness. Click [HERE](https://www.actonmass.org/pledge?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU){:target="_blank"} for more info!
+* **Ask your legislator to take the State House Transparency Pledge** - [Act On Mass](https://www.actonmass.org/?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU){:target="_blank"} is working to increasing transparency in our State House.  Let's ask our elected legislators to take action to create transparency today so important progressive bills don’t die in darkness. Click [HERE](https://www.actonmass.org/pledge?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU){:target="_blank"} for more info!  
 
 * **Support Ranked Choice Voting**.  Go to [Voter Choice MA](https://www.voterchoicema.org){:target="_blank"} for more info.  
 
