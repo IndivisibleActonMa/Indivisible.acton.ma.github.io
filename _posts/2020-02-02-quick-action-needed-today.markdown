@@ -13,6 +13,6 @@ Join us on Wednesday, February 5th to show that we will be holding the President
 
 It’s clear that Trump used military aid to pressure a foreign government into doing his political bidding and then tried to cover it up. Mitch McConnell and GOP Senators are now complicit in Trump’s criminal activity.
 
-Join us on Littleton Common to **REJECT THE COVERUP**.
+Join us on the Littleton Common to **REJECT THE COVERUP**.
 
 Bring your signs!  Bring flashlights!
