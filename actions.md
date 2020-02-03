@@ -66,15 +66,3 @@ Email:  *newsletter@indivisibleacton.org*
 [Indivisible Westford](https://indivisiblewestford.org){:target="_blank"} 
 
 [Minuteman Indivisible](https://www.minutemanindivisible.org){:target="_blank"} 
-
-
-
-### Other Resources
-
-[Rogan's List](http://roganslist.blogspot.com){:target="_blank"}  
-
-[Americans Of Conscience](https://americansofconscience.com){:target="_blank"}  
-
-[5calls.org](http://5calls.org){:target="_blank"}  
-
-[Daily Action](https://dailyaction.org){:target="_blank"} 
