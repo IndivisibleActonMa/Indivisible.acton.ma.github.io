@@ -77,4 +77,4 @@ Email:  *newsletter@indivisibleacton.org*
 
 [5calls.org](http://5calls.org){:target="_blank"}  
 
-[Daily Action](https://dailyaction.org)
+[Daily Action](https://dailyaction.org){:target="_blank"} 
