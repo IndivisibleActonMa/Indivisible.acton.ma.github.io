@@ -18,3 +18,8 @@ is featured: true
 4. Individuals currently protected by DACA would face even greater uncertainty as funding for their program is reallocated and renewal fees for protected status multiply.
 
 5. The proposed asylum fee would place a major burden on those who have already suffered tremendous hardship to reach our country, and directly contradicts our moral and constitutional obligation to provide sanctuary to those seeking it.
+
+
+---
+
+Click [HERE](https://unitedwedream.org/stop-trump-uscis-from-increasing-daca-fees-and-more/){:target="_blank"} for more info.
