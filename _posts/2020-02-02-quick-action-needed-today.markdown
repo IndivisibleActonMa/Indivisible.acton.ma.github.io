@@ -4,6 +4,7 @@ date: 2020-02-02 23:33:00 -05:00
 is featured: true
 event-start-date: 2020-02-05 17:00:00 -05:00
 event-end-date: 2020-02-05 18:30:00 -05:00
+Location: Littleton Common, Littleton, MA
 RSVP-link: https://actionnetwork.org/events/reject-the-coverup-rally-4?source=direct_link&
 ---
 
