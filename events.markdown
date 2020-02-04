@@ -65,7 +65,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 * **5-6:30p**, Littleton:  ***Reject the Coverup!!!*** - Join us on the Littleton Common. [RSVP HERE](https://actionnetwork.org/events/reject-the-coverup-rally-4?source=direct_link&){:target="_blank"}.  
 
-* **5:30-6:30p**, Concord: ***Reject the Coverup!!!*** - Join us in Concord Center at the flag pole.  Concord, MA. 
+* **5:30-6:30p**, Concord: ***Reject the Coverup!!!*** - Join us in Concord Center at the flag pole.  Concord, MA. [RSVP HERE](https://actionnetwork.org/events/concord-rejects-the-coverup){:target="_blank"}.  
 
 * **5:30-6:30p**, Sudbury: ***Reject the Coverup!!!*** - Join us on the Sudbury Green, Sudbury, MA. [RSVP HERE](https://actionnetwork.org/events/reject-the-coverup-56){:target="_blank"}.
 
