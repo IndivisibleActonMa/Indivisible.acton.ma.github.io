@@ -63,7 +63,13 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Wednesday, Feb 5  
 
-* **5-6:30p**, Littleton:  ***Reject the Coverup!!!*** - Join us on the Littleton Common. Trump’s enablers in Congress led by Mitch McConnell are about to acquit our lawless president. This was never a trial. It’s a cover up. Click [HERE](https://actionnetwork.org/events/reject-the-coverup-rally-4?source=direct_link&){:target="_blank"} for more info.  
+* **5-6:30p**, Littleton:  ***Reject the Coverup!!!*** - Join us on the Littleton Common. [RSVP HERE](https://actionnetwork.org/events/reject-the-coverup-rally-4?source=direct_link&){:target="_blank"}.  
+
+* **5:30-6:30p**, Concord: ***Reject the Coverup!!!*** - Join us in Concord Center at the flag pole.  Concord, MA. 
+
+* **5:30-6:30p**, Sudbury: ***Reject the Coverup!!!*** - Join us on the Sudbury Green, Sudbury, MA. [RSVP HERE](https://actionnetwork.org/events/reject-the-coverup-56){:target="_blank"}.
+
+* Click [HERE](https://rejectthecoverup.org){:target="_blank"} to find other ***Reject the Coverup*** events!
 
 
 * **7-9p**, Weston:  ***Democratic Dysfunction: What's Wrong with the American Political System and How to Fix It*** - In this presidential election year, we hope you will join us for an important presentation by Common Cause Massachusetts Executive Director Pam Wilmot about the challenges facing American democracy and the many efforts around the country to address them. Topics will include money in politics, gerrymandering, the electoral college, voting rights, and voter suppression. She will also answer audience questions. First Parish of Weston, 349 Boston Post Road, Weston  
