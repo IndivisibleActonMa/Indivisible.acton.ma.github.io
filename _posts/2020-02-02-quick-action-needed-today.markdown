@@ -14,6 +14,13 @@ Join us on Wednesday, February 5th to show that we will be holding the President
 
 It’s clear that Trump used military aid to pressure a foreign government into doing his political bidding and then tried to cover it up. Mitch McConnell and GOP Senators are now complicit in Trump’s criminal activity.
 
-Join us on the [Littleton Common at the intersection of Routes 110 and 119](https://www.google.com/maps/place/MA-110+%26+MA-119,+Littleton,+MA+01460/@42.5464289,-71.4729262,3a,75y,176.24h,82.81t/data=!3m7!1e1!3m5!1sRiZH_-3p9mtKAqSOYh9hdw!2e0!6s%2F%2Fgeo2.ggpht.com%2Fcbk%3Fpanoid%3DRiZH_-3p9mtKAqSOYh9hdw%26output%3Dthumbnail%26cb_client%3Dsearch.gws-prod%2Fmaps%2Flocal-details-getcard.gps%26thumb%3D2%26w%3D360%26h%3D120%26yaw%3D324.74734%26pitch%3D0%26thumbfov%3D100!7i13312!8i6656!4m5!3m4!1s0x89e396774290aa25:0xefed32ec79fad65c!8m2!3d42.5464573!4d-71.4729471){:target="_blank"} to **REJECT THE COVERUP**.
+Join us at any one of these events to **REJECT THE COVERUP:**
+
+* [Littleton Common at the intersection of Routes 110 and 119, Littleton, MA](https://www.google.com/maps/place/MA-110\+%26\+MA-119,\+Littleton,\+MA\+01460/@42.5464289,-71.4729262,3a,75y,176.24h,82.81t/data=!3m7!1e1!3m5!1sRiZH_-3p9mtKAqSOYh9hdw!2e0!6s%2F%2Fgeo2.ggpht.com%2Fcbk%3Fpanoid%3DRiZH_-3p9mtKAqSOYh9hdw%26output%3Dthumbnail%26cb_client%3Dsearch.gws-prod%2Fmaps%2Flocal-details-getcard.gps%26thumb%3D2%26w%3D360%26h%3D120%26yaw%3D324.74734%26pitch%3D0%26thumbfov%3D100!7i13312!8i6656!4m5!3m4!1s0x89e396774290aa25:0xefed32ec79fad65c!8m2!3d42.5464573!4d-71.4729471){:target="_blank"} 
+
+* Concord Center at the flag pole, Concord, MA
+
+* [Sudbury Green, 322 Concord Road, Sudbury, MA 01776](https://actionnetwork.org/events/reject-the-coverup-56){:target="_blank"}  
+
 
 Bring your signs!  Bring flashlights!
