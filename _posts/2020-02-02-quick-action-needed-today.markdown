@@ -22,5 +22,6 @@ Join us at any one of these events to **REJECT THE COVERUP:**
 
 * [Sudbury Green, 322 Concord Road, Sudbury, MA 01776](https://actionnetwork.org/events/reject-the-coverup-56){:target="_blank"}  
 
+*  Click [HERE](https://rejectthecoverup.org){:target="_blank"} to find other ***Reject the Coverup*** events!
 
 Bring your signs!  Bring flashlights!
