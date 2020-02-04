@@ -14,11 +14,11 @@ It’s clear that Trump used military aid to pressure a foreign government into 
 
 Join us at any one of these events to **REJECT THE COVERUP:**
 
-* [RSVP for the event at Littleton Common at the intersection of Routes 110 and 119, Littleton, MA](https://www.google.com/maps/place/MA-110\+%26\+MA-119,\+Littleton,\+MA\+01460/@42.5464289,-71.4729262,3a,75y,176.24h,82.81t/data=!3m7!1e1!3m5!1sRiZH_-3p9mtKAqSOYh9hdw!2e0!6s%2F%2Fgeo2.ggpht.com%2Fcbk%3Fpanoid%3DRiZH_-3p9mtKAqSOYh9hdw%26output%3Dthumbnail%26cb_client%3Dsearch.gws-prod%2Fmaps%2Flocal-details-getcard.gps%26thumb%3D2%26w%3D360%26h%3D120%26yaw%3D324.74734%26pitch%3D0%26thumbfov%3D100!7i13312!8i6656!4m5!3m4!1s0x89e396774290aa25:0xefed32ec79fad65c!8m2!3d42.5464573!4d-71.4729471){:target="_blank"} 
+* [RSVP for the event at Littleton Common at the intersection of Routes 110 and 119, Littleton, MA](https://www.google.com/maps/place/MA-110\+%26\+MA-119,\+Littleton,\+MA\+01460/@42.5464289,-71.4729262,3a,75y,176.24h,82.81t/data=!3m7!1e1!3m5!1sRiZH_-3p9mtKAqSOYh9hdw!2e0!6s%2F%2Fgeo2.ggpht.com%2Fcbk%3Fpanoid%3DRiZH_-3p9mtKAqSOYh9hdw%26output%3Dthumbnail%26cb_client%3Dsearch.gws-prod%2Fmaps%2Flocal-details-getcard.gps%26thumb%3D2%26w%3D360%26h%3D120%26yaw%3D324.74734%26pitch%3D0%26thumbfov%3D100!7i13312!8i6656!4m5!3m4!1s0x89e396774290aa25:0xefed32ec79fad65c!8m2!3d42.5464573!4d-71.4729471){:target="_blank"}, 5-6:30p. 
 
-* [RSVP for the event in Monument Square at the flagpole, Concord, MA](https://actionnetwork.org/events/concord-rejects-the-coverup){:target="_blank"} 
+* [RSVP for the event in Monument Square at the flagpole, Concord, MA](https://actionnetwork.org/events/concord-rejects-the-coverup){:target="_blank"}, 5:30-6:30p. 
 
-* [RSVP for the event at Sudbury Green, 322 Concord Road, Sudbury, MA 01776](https://actionnetwork.org/events/reject-the-coverup-56){:target="_blank"} 
+* [RSVP for the event at Sudbury Green, 322 Concord Road, Sudbury, MA 01776](https://actionnetwork.org/events/reject-the-coverup-56){:target="_blank"}, 5:30-6:30p. 
 
 *  Click [HERE](https://rejectthecoverup.org){:target="_blank"} to find other ***Reject the Coverup*** events!
 
