@@ -4,7 +4,6 @@ date: 2020-02-02 23:33:00 -05:00
 is featured: true
 event-start-date: 2020-02-05 17:00:00 -05:00
 event-end-date: 2020-02-05 18:30:00 -05:00
-Location: Littleton Common, Littleton, MA
 ---
 
 McConnell and the Senate GOP are about to acquit Donald Trump, despite the mountains of evidence that the House uncovered throughout the impeachment hearings. They ignored that 75% of Americans wanted to hear from witnesses like John Bolton, to force through their coverup. *We know that **this wasn’t a fair trial** and that **Trump has not been exonerated**.*
