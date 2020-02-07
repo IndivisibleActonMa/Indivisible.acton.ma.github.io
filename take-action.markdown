@@ -16,41 +16,39 @@ var countDownDate = new Date("Nov 3 2020 00:00");
 // Update the count down every 1 second
 var x = setInterval(function() {
 
-  // Get today's date
-  var now = new Date();
-    
-  // Find the distance between now and the count down date
-  var t = countDownDate - now;
-    
-  // Time calculations for days
-  var days = Math.floor(t / (1000 * 60 * 60 * 24));
-  var hours = Math.floor((t%(1000 * 60 * 60 * 24))/(1000 * 60 * 60)); 
-  var minutes = Math.floor((t % (1000 * 60 * 60)) / (1000 * 60)); 
-  var seconds = Math.floor((t % (1000 * 60)) / 1000);  
+// Get today's date
+var now = new Date();
 
-  // Output the result in an element with id="demo"
-  var test1 = document.getElementById("demo");
-  test1.style.font = "italic bold 30px arial,serif"; 
-  //test1.style.textAlign = "center";
-//test1.innerHTML = days + " days left until Nov 3, 2020!";
-  test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s left until Nov 3, 2020!";
-  
-  
-  // If the count down is over, write some text 
-  if (t < 0) {
-    clearInterval(x);
-    document.getElementById("demo").innerHTML = "Let's Get Out and VOTE!!!";
-  }
+// Find the distance between now and the count down date
+var t = countDownDate - now;
+
+// Time calculations for days
+var days = Math.floor(t / (1000 \* 60 \* 60 \* 24));
+var hours = Math.floor((t%(1000 \* 60 \* 60 \* 24))/(1000 \* 60 \* 60));
+var minutes = Math.floor((t % (1000 \* 60 \* 60)) / (1000 \* 60));
+var seconds = Math.floor((t % (1000 \* 60)) / 1000);
+
+// Output the result in an element with id="demo"
+var test1 = document.getElementById("demo");
+test1.style.font = "italic bold 30px arial,serif";
+//test1.style.textAlign = "center";
+//test1.innerHTML = days \+ " days left until Nov 3, 2020!";
+test1.innerHTML = days \+ "d " \+ hours \+ "h " \+ minutes \+ "m " \+ seconds \+ "s left until Nov 3, 2020!";
+
+// If the count down is over, write some text
+if (t < 0) {
+clearInterval(x);
+document.getElementById("demo").innerHTML = "Let's Get Out and VOTE!!!";
+}
 },500);
 </script>
 
 ---
 
-["Be a fanatical optimist. Make a plan. Take action."](https://www.wbur.org/cognoscenti/2020/02/05/trump-impeachment-acquittal-steve-almond){:target="_blank"}
-
-Steve Almond 
+["Be a fanatical optimist. Make a plan. Take action."](https://www.wbur.org/cognoscenti/2020/02/05/trump-impeachment-acquittal-steve-almond){:target="_blank"}  Steve Almond  
 
 ---
+
 Click [HERE for the Activist Alliance Newsletter](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?usp=sharing){:target="_blank"}
 
 Click [HERE for Indivisible MA newsletters](https://us17.campaign-archive.com/home/?u=3129bf2656ae4f5f1dcba96ad&id=70e7531ca3){:target="_blank"}
@@ -63,13 +61,13 @@ Click [HERE](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3Oz
 
 ### Puerto Rico
 
-Puerto Rico has been hit with a devastating series of earthquakes and at least 120 aftershocks. As a result, almost the entire island has lost power. Meanwhile, the HUD continues to withhold hurricane relief funds from Puerto Rico (a territory of the United States), ignoring a statutory deadline to issue a Federal Register notice permitting Puerto Rico to use $8.2 billion in disaster relief aid appropriated by Congress.  And as Rep. Darren Soto pointed out in a press release, “*Puerto Ricans continue to suffer from major hurricanes that made landfall more than two years ago while HUD illegally withholds this aid.*” 
+Puerto Rico has been hit with a devastating series of earthquakes and at least 120 aftershocks. As a result, almost the entire island has lost power. Meanwhile, the HUD continues to withhold hurricane relief funds from Puerto Rico (a territory of the United States), ignoring a statutory deadline to issue a Federal Register notice permitting Puerto Rico to use $8.2 billion in disaster relief aid appropriated by Congress.  And as Rep. Darren Soto pointed out in a press release, “*Puerto Ricans continue to suffer from major hurricanes that made landfall more than two years ago while HUD illegally withholds this aid.*”
 
-This is awful and needs to be called out. 
+This is awful and needs to be called out.
 
-Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s failure to process Congressionally approved funds in a timely manner. (202) 708-0430. 
+Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s failure to process Congressionally approved funds in a timely manner. (202) 708-0430.
 
-(H/T Chop Wood/Carry Water)
+\(H/T Chop Wood/Carry Water)
 
 ---
 
@@ -77,7 +75,7 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 
 * Click [HERE](http://www.indivisibleacton.org/events/support-immigration-justice.html){:target="_blank"} to learn how you can contribute time and/or money to organizations which support immigrant justice.
 
-* Tell MIT Not to Cooperate with ICE  
+* Tell MIT Not to Cooperate with ICE
 
   Faculty and staff at the Massachusetts Institute of Technology (MIT) received a memo telling them to expect a visit from the Department of Homeland Security and [asking them to cooperate with requests for information on the immigration status of researchers, visiting scholars and post-doctoral students at the university](https://commonwealthmagazine.org/immigration/mit-tells-staff-to-expect-visits-from-ice-2/?link_id=6&can_id=2367f63e076c12dadb092e1de7ba101c&source=email-january-11-mass-action-indivisible-newsletter-2&email_referrer=email_697784___subject_935158&email_subject=mass-action-indivisible-newsletter){:target="_blank"}.
 
@@ -87,12 +85,11 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 
 ### Environment/Climate Crisis
 
-* Find out how you can protect and enhance Acton's natural environment and to help resolve the urgent environmental issues that transcend Acton's boundaries [HERE](https://greenacton.org){:target="_blank"}.  
+* Find out how you can protect and enhance Acton's natural environment and to help resolve the urgent environmental issues that transcend Acton's boundaries [HERE](https://greenacton.org){:target="_blank"}.
 
 * Join [Mothers Out Front](https://ma.mothersoutfront.org){:target="_blank"} to take action to address climate change.
 
-* [101 Ways to Fight Climate Change](https://www.curbed.com/2017/6/7/15749900/how-to-stop-climate-change-actions){:target="_blank"}. 
-
+* [101 Ways to Fight Climate Change](https://www.curbed.com/2017/6/7/15749900/how-to-stop-climate-change-actions){:target="_blank"}.
 
 ### Local/State
 
@@ -104,11 +101,11 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 
 * [Support your local Indivisible Group](http://www.indivisibleacton.org/2019/09/17/support-your-local-indivisible-group.html)!
 
-* **Ask your legislator to take the State House Transparency Pledge** - [Act On Mass](https://www.actonmass.org/?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU){:target="_blank"} is working to increasing transparency in our State House.  Let's ask our elected legislators to take action to create transparency today so important progressive bills don’t die in darkness. Click [HERE](https://www.actonmass.org/pledge?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU){:target="_blank"} for more info!  
+* **Ask your legislator to take the State House Transparency Pledge** - [Act On Mass](https://www.actonmass.org/?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU){:target="_blank"} is working to increasing transparency in our State House.  Let's ask our elected legislators to take action to create transparency today so important progressive bills don’t die in darkness. Click [HERE](https://www.actonmass.org/pledge?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU){:target="_blank"} for more info!
 
-* **Support Ranked Choice Voting**.  Go to [Voter Choice MA](https://www.voterchoicema.org){:target="_blank"} for more info.  
+* **Support Ranked Choice Voting**.  Go to [Voter Choice MA](https://www.voterchoicema.org){:target="_blank"} for more info.
 
-* **Contact your state lawmakers about the ROE Act.** Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors?fbclid=IwAR3q0MsBefpFWEW9kq8vl7sAzzeRyE0iTAZDauZjxpP9ocIvGDyvEDc_CLQ){:target="_blank"} to find out where your Representatives stand.  
+* **Contact your state lawmakers about the ROE Act.** Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors?fbclid=IwAR3q0MsBefpFWEW9kq8vl7sAzzeRyE0iTAZDauZjxpP9ocIvGDyvEDc_CLQ){:target="_blank"} to find out where your Representatives stand.
 
 * Email your MA state legislators and **demand that they lead on immigrant rights and equity**. MIRA (MA Immigrant and Refugee Advocacy Coalition) has put together a [comprehensive list](https://mailchi.mp/miracoalition/action-alert-lets-build-momentum-for-our-2019-priority-bills?e=baa65bb0e1&link_id=16&can_id=9a7cc198611ac2a74f284fdda8e14f7e) of all of the bills that support immigration and refugee rights and has made it super easy to [email your legislators to support these bills](https://p2a.co/96apnIc?link_id=17&can_id=9a7cc198611ac2a74f284fdda8e14f7e){:target="_blank"}.
 
@@ -191,9 +188,10 @@ Become a member of [Indivisible Acton-Area on Facebook](https://www.facebook.com
 
 * [Rogan's List](http://roganslist.blogspot.com){:target="_blank"}
 
-* [5calls.org](http://5calls.org){:target="_blank"}  
+* [5calls.org](http://5calls.org){:target="_blank"}
 
-* [Daily Action](https://dailyaction.org){:target="_blank"} 
+* [Daily Action](https://dailyaction.org){:target="_blank"}
+
 ---
 
 Click [HERE to Join Indivisible Acton!](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton)
