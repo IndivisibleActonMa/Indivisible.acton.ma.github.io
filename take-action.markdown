@@ -46,20 +46,9 @@ var x = setInterval(function() {
 
 ---
 
-“If right doesn’t matter, it doesn’t matter how good the Constitution is.  
-It doesn’t matter how brilliant the Framers were.  It doesn’t matter how good or bad our advocacy in this trial is.  
-It doesn’t matter how well written the oath of impartiality is.  
-If right doesn’t matter, we’re lost.  
-If the truth doesn’t matter, we’re lost.  
-The Framers couldn’t protect us from ourselves if right and truth don’t matter.  
-.  
-.  
-.  
-Because right matters. Right matters. And the truth matters.  
+["Be a fanatical optimist. Make a plan. Take action."](https://www.wbur.org/cognoscenti/2020/02/05/trump-impeachment-acquittal-steve-almond){:target="_blank"}
 
-Otherwise we are lost.”  
-
-Adam Schiff
+Steve Almond 
 
 ---
 Click [HERE for the Activist Alliance Newsletter](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?usp=sharing){:target="_blank"}
