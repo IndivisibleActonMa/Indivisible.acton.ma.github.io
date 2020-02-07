@@ -4,6 +4,12 @@ date: 2019-10-09 18:15:00 -04:00
 is featured: false
 ---
 
+### ACTION: Move the ROE Act out of committee
+
+Please sign this [petition](https://www.change.org/p/massachusetts-state-house-pass-the-roe-act-in-massachusetts-update-our-laws-for-reproductive-justice-access){:target="_blank"} to tell our State Senators and Representatives to move the ROE Act out of committee and onto the floor for a vote.  Please tell your friends - especially if you know anybody that lives in Claire Cronin's district, which covers some of Easton and Brockton.
+
+---
+
 ***THANK YOU*** to everyone who has written postcards for the ROE Act! *We have sent out over 10,000 postcards*.
 
 **Here is what needs to happen next and how you can help make that happen**.
