@@ -1,6 +1,6 @@
 ---
 title: February  General Meeting
-date: 2019-02-08 08:02:00 -05:00
+date: 2020-02-09 21:30:00 -05:00
 is featured: true
 event-start-date: 2020-02-10 18:30:00 -05:00
 event-end-date: 2020-02-10 20:45:00 -05:00
@@ -11,7 +11,6 @@ Location: Acton Memorial Library 486 Main St., Acton, MA 01720
 
 Come hear and talk about how we can help with Senate and State Legislature races that matter!
 
-*Stay tuned for more details!!*
 
 ——
 
