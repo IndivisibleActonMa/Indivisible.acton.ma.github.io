@@ -81,7 +81,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Monday, Feb 10
 
-* **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - More info to come!
+* **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - [Click HERE for more info](http://www.indivisibleacton.org/2020/02/09/general-meeting-and-future-plans.html){:target="_blank"}!  
 
 ### Wednesday, Feb 12
 
