@@ -62,6 +62,8 @@ Click [HERE](https://docs.google.com/document/d/1k-N7qZ5fBR2wRGOcRI8ZJxQGbO5CfsX
 
 * **March 31, 2020 - State Election**
 
+*[Make sure you are registered to vote](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}!!  Deadline to register is Feb 12.*  
+
 ---
 
 ### Special State Election for 37th Middlesex District
