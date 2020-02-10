@@ -1,7 +1,6 @@
 ---
 title: Are you an inactive voter?
 date: 2020-02-09 20:33:00 -05:00
-published: false
 is featured: true
 ---
 
