@@ -1,6 +1,7 @@
 ---
 title: February  General Meeting
 date: 2020-02-09 21:30:00 -05:00
+published: false
 is featured: true
 event-start-date: 2020-02-10 18:30:00 -05:00
 event-end-date: 2020-02-10 20:45:00 -05:00
