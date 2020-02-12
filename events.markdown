@@ -96,6 +96,11 @@ date: 2019-11-22 08:43:00 -05:00
 
 * ***Last day to register to vote for the Massachusetts Presidential Primary*** Click [HERE](https://www.rockthevote.org/voting-information/election-dates-deadlines/massachusetts/){:target="_blank"} for more info.
 
+### Wednesday, Feb 19
+
+* **8a-2p**, Weymouth: ***Weymouth Compressor Station Protest*** - Join a mass demonstration to protest the injustice of the Weymouth Compressor Station, 50 Bridge St, North Weymouth.  
+
+
 ---
 
 ## Save the Date
