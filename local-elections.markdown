@@ -74,3 +74,6 @@ Click [HERE](https://www.sec.state.ma.us/ele/elespeif/37middlesexcal.htm){:targe
 
 ---
 
+### [Make a plan to win in 2020](http://www.indivisibleacton.org/general-information/election-2020.html){:target="_blank"}!
+
+
