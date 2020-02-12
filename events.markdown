@@ -52,6 +52,12 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
+### Thirsty Thursdays
+
+* **Feb 13, 7-9p** - Lost Shoe Brewing Co, 19 Weed St, Marlborough  
+
+---
+
 ## Some Other Events to Consider
 
 ### Saturday, Feb 1
