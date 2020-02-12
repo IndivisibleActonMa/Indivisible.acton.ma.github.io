@@ -1,6 +1,7 @@
 ---
 title: Election 2020!
 date: 2020-02-11 22:56:00 -05:00
+layout: page
 ---
 
 ### 2020 Is a MUST win year!
