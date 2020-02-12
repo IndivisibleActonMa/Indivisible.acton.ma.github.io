@@ -1,11 +1,24 @@
 ---
-title: Communication
+title: Election 2020!
 date: 2017-06-02 20:56:00 -04:00
 published: false
 ---
 
-The group communications channels are still evolving. Right now we have: 
-* A closed Facebook Group to which people post events and news. It contains some photo albums of events. http://www.facebook.com/groups/indivisibleacton 
-* A mailchimp email list to which a bulletin is sent every two weeks or so 
-* A google group to which event organizers send out event announcements: mailto:indivisibleacton@gmail.com 
-* A website, which contains event announcements, past event reports and general information. http://www.indivisibleacton.org 
+### 2020 Is a MUST win year!
+
+Here are some tools to help you create a winning strategy:  
+
+* [Personal Volunteer Plan](https://drive.google.com/file/d/1xu0tnXUHrRnEQOotwek8t1EvxDpjEvHe/view?usp=sharing){:target="_blank"}
+
+* [Volunteer Events](https://drive.google.com/file/d/1_jjEG-C5jJ8QzP0cjWJhKbR7mzHgrYpX/view?usp=sharing){:target="_blank"}
+
+* [Worksheet for contacts](https://drive.google.com/open?id=1b1SqDzTSb3geOk9VTXFmNYtrYHnoyCgR){:target="_blank"}
+
+* [Worksheet for donation budget](https://drive.google.com/file/d/1PnTDRXb2hOxIbdNBxRVeyEPPJh1QFEBP/view?usp=sharing){:target="_blank"}
+
+
+### Helpful Links
+
+* [Swing Left](https://swingleft.org){:target="_blank"}
+
+* [Elect535](https://elect535.org){:target="_blank"}
