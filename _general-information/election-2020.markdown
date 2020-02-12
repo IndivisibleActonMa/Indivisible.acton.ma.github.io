@@ -1,7 +1,6 @@
 ---
 title: Election 2020!
 date: 2017-06-02 20:56:00 -04:00
-published: false
 ---
 
 ### 2020 Is a MUST win year!
