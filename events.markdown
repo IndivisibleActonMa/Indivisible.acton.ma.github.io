@@ -102,7 +102,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Thursday, Feb 27  
 
-* **7-9p**, Boxborough:  ***Meet the candidates for the 37th Middlesex!*** Come meet [Dina Samfield](https://www.facebook.com/dinasamfieldma/){:target="_blank"} from Shirley and [Dan Sena](https://www.facebook.com/DanSenaForStateRep/){:target="_blank"} from Acton.  This Candidate Night event is free and open to the public, and is sponsored by the Boxborough and Acton Democratic Town Committees. Sargent Memorial Library, 427 Massachusetts Ave, Boxborough. 
+* **7-9p**, Boxborough:  ***Meet the candidates for the 37th Middlesex!*** Come meet [Dina Samfield](https://www.facebook.com/dinasamfieldma/){:target="_blank"} from Shirley and [Dan Sena](https://www.facebook.com/DanSenaForStateRep/){:target="_blank"} from Acton.  This Candidate Night event is free and open to the public, and is sponsored by the Boxborough and Acton Democratic Town Committees. Sargent Memorial Library, 427 Massachusetts Ave, Boxborough.  
 
 
 ---
