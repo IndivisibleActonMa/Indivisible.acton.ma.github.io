@@ -1,9 +1,16 @@
 ---
-title: Are you an inactive voter?
-date: 2020-02-09 20:33:00 -05:00
+title: Do you have a plan?
+date: 2020-02-13 07:33:00 -05:00
 published: false
 is featured: true
 ---
+
+---  
+
+[Make a plan to WIN in 2020!](http://www.indivisibleacton.org/general-information/election-2020.html)  
+
+
+---  
 
 Did you know you might be an "*inactive voter*?"
 
