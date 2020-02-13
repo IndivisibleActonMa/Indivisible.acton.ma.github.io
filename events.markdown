@@ -16,36 +16,41 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
-## Biweekly Postcard Meet-ups
+## Postcard and More Meet-ups
 
 ***Wanted:*** *[Volunteers to help co-host our regular postcarding meetups](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3OzOec4BoEzGRjU/edit?usp=sharing){:target="_blank"} - the 1st and 3rd Saturdays, 10a-12p at Bagels Plus in Acton, and the 2nd and 4th Tuesdays, 6:30-8:30p at the Littleton Library.  Indivisible Acton-Area provide all the supplies - postcards, stamps, scripts, addresses.  Contact jeanine@IndivisibleActon.org for more info.*
 
 ---
 
-### Saturday, Feb 1
+### Super Saturdays!
 
-* **10a-12p**, Acton: ***Postcards*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA
+Join us for postcards in Acton and Harvard!
 
-* **2-4p**, Harvard:  ***Postcards*** - Multiple campaigns. Look forward to seeing you there!  Harvard General Store, 1 Still River Rd, Harvard, MA
+**Feb 1**
 
-### Tuesday, Feb 11
+* **10a-12p**, Bagels Plus, 93 Great Rd, Acton
 
-* **7-9p**, Littleton: ***Blue Wave Postcards 2020*** - Join us in the Couper room for postcards and more!  Please note the time change for this Tuesday.  Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA
+* **2-4p**, Harvard General Store, 1 Still River Rd, Harvard
 
-### Saturday, Feb 15
+**Feb 15**
 
-* **10a-12p**, Acton: ***Postcards*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA
+* **10a-12p**, Bagels Plus, 93 Great Rd, Acton
 
-* **2-4p**, Harvard:  ***Postcards*** - Multiple campaigns. Look forward to seeing you there!  Harvard General Store, 1 Still River Rd, Harvard, MA 
-
-
-### Tuesday, Feb 25
-
-* **6:30-8:30p**, Littleton: ***Blue Wave Postcards 2020*** - Join us in the Couper room for postcards and more!  Please note the time change for this Tuesday.  Reuben Hoar Public Library, 41 Shattuck St, Littleton, MA
+* **2-4p**, Harvard General Store, 1 Still River Rd, Harvard
 
 ---
 
-## Winning Wednesdays
+### Bluewave Tuesdays
+
+Join us for multiple campaigns, postcards and more!
+
+* **Feb 11, 7-9p**, Join us in the Couper Room, Reuben Hoar Public Library, 41 Shattuck St, Littleton
+
+* **Feb 25, 6:30-8:30p**, Join us in the Couper Room, Reuben Hoar Public Library, 41 Shattuck St, Littleton
+
+---
+
+### Winning Wednesdays
 
 * **Feb 5, 2-4p** - Dunkin’, 1641 Sudbury Rd (Rt 117), Concord
 
@@ -55,9 +60,9 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
-## Thirsty Thursdays
+### Thirsty Thursdays
 
-* **Feb 13, 7-9p** - Lost Shoe Brewing Co, 19 Weed St, Marlborough.  Hosted by Marlborough and Hudson activists.  
+* **Feb 13, 7-9p** - Lost Shoe Brewing Co, 19 Weed St, Marlborough.  Hosted by Marlborough and Hudson activists.
 
 ---
 
@@ -90,7 +95,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Monday, Feb 10
 
-* **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - [Click HERE for more info](http://www.indivisibleacton.org/2020/02/09/general-meeting-and-future-plans.html){:target="_blank"}!  
+* **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - [Click HERE for more info](http://www.indivisibleacton.org/2020/02/09/general-meeting-and-future-plans.html){:target="_blank"}!
 
 ### Wednesday, Feb 12
 
@@ -98,12 +103,11 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Wednesday, Feb 19
 
-* **8a-2p**, Weymouth: ***Weymouth Compressor Station Protest*** - Join a mass demonstration to protest the injustice of the Weymouth Compressor Station, 50 Bridge St, North Weymouth.  
+* **8a-2p**, Weymouth: ***Weymouth Compressor Station Protest*** - Join a mass demonstration to protest the injustice of the Weymouth Compressor Station, 50 Bridge St, North Weymouth.
 
-### Thursday, Feb 27  
+### Thursday, Feb 27
 
-* **7-9p**, Boxborough:  ***Meet the candidates for the 37th Middlesex!*** Come meet [Dina Samfield](https://www.facebook.com/dinasamfieldma/){:target="_blank"} from Shirley and [Dan Sena](https://www.facebook.com/DanSenaForStateRep/){:target="_blank"} from Acton.  This Candidate Night event is free and open to the public, and is sponsored by the Boxborough and Acton Democratic Town Committees. Sargent Memorial Library, 427 Massachusetts Ave, Boxborough.  
-
+* **7-9p**, Boxborough:  ***Meet the candidates for the 37th Middlesex!*** Come meet [Dina Samfield](https://www.facebook.com/dinasamfieldma/){:target="_blank"} from Shirley and [Dan Sena](https://www.facebook.com/DanSenaForStateRep/){:target="_blank"} from Acton.  This Candidate Night event is free and open to the public, and is sponsored by the Boxborough and Acton Democratic Town Committees. Sargent Memorial Library, 427 Massachusetts Ave, Boxborough.
 
 ---
 
