@@ -45,7 +45,7 @@ var x = setInterval(function() {
 
 ---
 
-### [Make a plan to WIN in 2020](http://www.indivisibleacton.org/general-information/election-2020.html){:target="_blank"}!
+### [Make a plan to WIN in 2020!](http://www.indivisibleacton.org/general-information/election-2020.html){:target="_blank"}!
 
 ---
 ### Important Dates
