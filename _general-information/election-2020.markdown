@@ -11,7 +11,7 @@ layout: page
 
 Click [HERE for our election strategy.](https://drive.google.com/file/d/1Hu8qxLBG4jgJO0t_9nNLbr59ExZ_5I3y/view?usp=sharing){:target="_blank"}  
 
----
+---  
 
 ### Make a personal action plan  
 
