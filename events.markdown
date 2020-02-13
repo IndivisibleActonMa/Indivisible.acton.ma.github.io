@@ -36,7 +36,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 * **10a-12p**, Acton: ***Postcards*** - Multiple campaigns.  Join us!  Bagels Plus, 93 Great Rd, Acton, MA
 
-**2-4p**, Harvard:  ***Postcards*** - Multiple campaigns. Look forward to seeing you there!  Harvard General Store, 1 Still River Rd, Harvard, MA 
+* **2-4p**, Harvard:  ***Postcards*** - Multiple campaigns. Look forward to seeing you there!  Harvard General Store, 1 Still River Rd, Harvard, MA 
 
 
 ### Tuesday, Feb 25
