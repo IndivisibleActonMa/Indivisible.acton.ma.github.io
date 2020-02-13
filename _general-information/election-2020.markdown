@@ -4,12 +4,16 @@ date: 2020-02-11 22:56:00 -05:00
 layout: page
 ---
 
-### *2020 Is a MUST win year!*
+---  
+
+### *2020 Is a MUST win year!*  
+
 
 Click [HERE for our election strategy.](https://drive.google.com/file/d/1Hu8qxLBG4jgJO0t_9nNLbr59ExZ_5I3y/view?usp=sharing){:target="_blank"}  
 
+---
 
-### Make a personal action plan
+### Make a personal action plan  
 
 Here are some tools to help **YOU**  make a plan to take effective action to help change the direction of our country.  
 
@@ -21,6 +25,7 @@ Here are some tools to help **YOU**  make a plan to take effective action to hel
 
 * [Worksheet for donation budget](https://drive.google.com/file/d/1PnTDRXb2hOxIbdNBxRVeyEPPJh1QFEBP/view?usp=sharing){:target="_blank"}
 
+---  
 
 ### Helpful Links  
 
