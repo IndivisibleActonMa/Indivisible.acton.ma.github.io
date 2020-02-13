@@ -45,15 +45,7 @@ var x = setInterval(function() {
 
 ---
 
-### Candidate and Campaign Policy and Etiquette
-
-Indivisible Acton welcomes candidates and their staff. In order to assure productive, fair and healthy discourse between campaigns and Indivisible Acton members these policies have been put in place. Please see our [Candidate and Campaign Etiquette and Policy](https://docs.google.com/document/d/1-G3_GKFkz3fC0VDkfGh4DbC820mzi23yyMG1-EqapfE/){:target="_blank"}  document.
-
-Any questions or concerns should be directed to the membership coordinator Christine B: christine@indivisibleacton.org.
-
-### Social Media Policy for the Primaries
-
-Click [HERE](https://docs.google.com/document/d/1k-N7qZ5fBR2wRGOcRI8ZJxQGbO5CfsXbZlZSKHm4N18){:target="_blank"} to see Indivisible Acton-Area's social media policy for the primaries.  
+### [Make a plan to WIN in 2020](http://www.indivisibleacton.org/general-information/election-2020.html){:target="_blank"}!
 
 ---
 ### Important Dates
@@ -76,6 +68,14 @@ Click [HERE](https://www.sec.state.ma.us/ele/elespeif/37middlesexcal.htm){:targe
 
 ---
 
-### [Make a plan to win in 2020](http://www.indivisibleacton.org/general-information/election-2020.html){:target="_blank"}!
+### Candidate and Campaign Policy and Etiquette
+
+Indivisible Acton welcomes candidates and their staff. In order to assure productive, fair and healthy discourse between campaigns and Indivisible Acton members these policies have been put in place. Please see our [Candidate and Campaign Etiquette and Policy](https://docs.google.com/document/d/1-G3_GKFkz3fC0VDkfGh4DbC820mzi23yyMG1-EqapfE/){:target="_blank"}  document.
+
+Any questions or concerns should be directed to the membership coordinator Christine B: christine@indivisibleacton.org.
+
+### Social Media Policy for the Primaries
+
+Click [HERE](https://docs.google.com/document/d/1k-N7qZ5fBR2wRGOcRI8ZJxQGbO5CfsXbZlZSKHm4N18){:target="_blank"} to see Indivisible Acton-Area's social media policy for the primaries.  
 
 
