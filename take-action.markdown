@@ -87,7 +87,7 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 
 ### Environment/Climate Crisis
 
-* Find out how you can protect and enhance Acton's natural environment and to help resolve the urgent environmental issues that transcend Acton's boundaries [HERE](https://greenacton.org){:target="_blank"}.
+* Find out how you can protect and enhance Acton's natural environment and help resolve the urgent environmental issues that transcend Acton's boundaries [HERE](https://greenacton.org){:target="_blank"}.
 
 * Join [Mothers Out Front](https://ma.mothersoutfront.org){:target="_blank"} to take action to address climate change.
 
@@ -127,8 +127,6 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 * Call your Members of Congress and explain that you object to imposing asylum application fees on people fleeing persecution and danger. Not only is this amoral and inhumane, the American Immigration Lawyers Association says the president’s plan “contradicts international law” and still “fails to ensure orderly processing.” Ask your MOCs are doing to stop the president’s asylum fee and instead heal the root causes of life-threatening conditions in Guatemala, Honduras, and El Salvador? (H/T Americans of Conscience Checklist).
 
 ### Other
-
-* [2020 N.H. Primary Candidate Tracker: Where and When to See the Candidates](https://www.nhpr.org/post/2020-nh-primary-candidate-tracker-where-and-when-see-candidates#stream/0){:target="_blank"}.  NH Primary is Feb 11, 2019.  Get out and canvass for your candidate!
 
 * Universal Basic Income:  Read about the proposed pilot program in Massachusetts [H.1632](https://malegislature.gov/Bills/191/H1632){:target="_blank"}.  Learn more about Alex Howlett's Basic Income theory [HERE](http://www.greshm.org){:target="_blank"}.
 
