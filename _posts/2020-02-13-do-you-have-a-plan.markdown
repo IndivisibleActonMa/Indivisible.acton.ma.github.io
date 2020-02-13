@@ -12,11 +12,11 @@ is featured: true
 
 ---
 
-Did you know you might be an "*inactive voter*?"
+Make sure you are not an "*inactive voter*?"
 
 [Click HERE to check your registration status](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}.
 
-**Last day to Register to Vote in the March 3 primary is Feb 12th.**
+**Last day to Register to Vote in the March 3, 2020  primary was Feb 12th.**
 
 ---
 
