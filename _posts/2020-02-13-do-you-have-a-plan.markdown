@@ -12,7 +12,7 @@ is featured: true
 
 ---
 
-Make sure you are not an "*inactive voter*?"
+Make sure you are not an "*inactive voter*"
 
 [Click HERE to check your registration status](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}.
 
