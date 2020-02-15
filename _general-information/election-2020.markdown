@@ -25,6 +25,18 @@ Here are some tools to help **YOU**  make a plan to take effective action to hel
 
 * [Worksheet for donation budget](https://drive.google.com/file/d/1PnTDRXb2hOxIbdNBxRVeyEPPJh1QFEBP/view?usp=sharing){:target="_blank"}
 
+---
+
+### February Action Tip
+
+Donate to two national organizations:
+
+* [Indivisible Payback](https://www.paybackproject.org){:target="_blank"} - 
+The Payback Project is an accountability initiative of Indivisible Action, a Hybrid Political Action Committee fueled by the grassroots movement to win elections and build local, independent progressive power nationwide. [Donate HERE](https://secure.actblue.com/donate/payback?refcode=web_payback_button){:target="_blank"}.  
+
+* Stacey Abram's [Fair Fight](https://fairfight.com){:target="_blank"} - This organization, founded by Stacey Abrams, promotes fair elections in Georgia and around the country, encourages voter participation in elections, and educates voters about elections and their voting rights. [Donate HERE](https://secure.actblue.com/donate/fair-fight-1){:target="_blank"}.  
+
+
 ---  
 
 ### Helpful Links  
@@ -32,3 +44,4 @@ Here are some tools to help **YOU**  make a plan to take effective action to hel
 * [Swing Left](https://swingleft.org){:target="_blank"}
 
 * [Elect535](https://elect535.org){:target="_blank"}
+
