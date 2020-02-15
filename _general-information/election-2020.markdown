@@ -36,6 +36,9 @@ The Payback Project is an accountability initiative of Indivisible Action, a Hyb
 
 * Stacey Abram's [Fair Fight](https://fairfight.com){:target="_blank"} - This organization, founded by Stacey Abrams, promotes fair elections in Georgia and around the country, encourages voter participation in elections, and educates voters about elections and their voting rights. [Donate HERE](https://secure.actblue.com/donate/fair-fight-1){:target="_blank"}.  
 
+Donate to your local Indivisible group!  
+
+* Indivisible-Acton Area is fundraising to support local activists as they advocate for the rights and dignity of all people through civic and electoral action statewide and nationally. [Donate HERE](https://secure.actblue.com/donate/indivisibleama411742968?refcode=thermometer){:target="_blank"}.  
 
 ---  
 
