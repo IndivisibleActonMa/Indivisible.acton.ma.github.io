@@ -1,5 +1,5 @@
 ---
-title: Do you have a plan?
+title: Do You Have A Plan?
 date: 2020-02-13 07:33:00 -05:00
 is featured: true
 ---
