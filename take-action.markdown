@@ -95,7 +95,8 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 
 ### Local/State
 
-* Help Ensure an Accurate Census    
+* Help Ensure an Accurate Census  
+  
   The Census count starts in less than 40 days. All households will receive a letter from the U.S. Census Bureau on March 12 inviting them to fill in the questionnaire online, by mail, or by phone. Now is the time to educate your communities on the importance of the census, how to participate, and how to complete the questionnaire.  
 
   For more info check out the [LWVMA Census Toolkit](https://lwvma.org/member-resources/toolkits-for-members/census-2020-toolkit/){:target="_blank"}.    
