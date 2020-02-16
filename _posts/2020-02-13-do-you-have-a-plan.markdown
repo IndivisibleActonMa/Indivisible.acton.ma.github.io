@@ -50,7 +50,7 @@ var x = setInterval(function() {
 
 [Make a plan to WIN in 2020!](http://www.indivisibleacton.org/general-information/election-2020.html)  
 
-*Come SEE our 2020 Election Strategy presented at the Concord Activist Huddle*
+*Come SEE our 2020 Election Strategy presented at the Concord Activist Huddle*  
 
 **When:**   Sunday, Feb 23, 2-4p  
 
