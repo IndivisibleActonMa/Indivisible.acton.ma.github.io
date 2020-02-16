@@ -52,7 +52,8 @@ var x = setInterval(function() {
 
 *Come SEE our 2020 Election Strategy presented at the Concord Activist Huddle*
 
-**When:**   Sunday, Feb 23, 2-4p
+**When:**   Sunday, Feb 23, 2-4p  
+
 **Where:**  Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742. 
 
 
