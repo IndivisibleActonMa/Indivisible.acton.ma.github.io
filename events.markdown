@@ -64,11 +64,11 @@ Join us for multiple campaigns, postcards and more!
 
 Hosted by Marlborough and Hudson activists.  
 
-* **Feb 13, 7-9p** - Lost Shoe Brewing and Roasting Company, 19 Weed St, Marlborough.  
+* **Feb 13, 7-9p** - [Lost Shoe Brewing and Roasting Company](https://lostshoebrews.com){:target="_blank"}, 19 Weed St, Marlborough.  
 
-* **Feb 20, 7-9p** - Ground Effect Brewing Company, 312 Main Street Hudson, MA.  
+* **Feb 20, 7-9p** - [Ground Effect Brewing Company](http://groundeffectbrewing.com){:target="_blank"}, 312 Main Street Hudson, MA.  
 
-* **Feb 27, 7-9p** - Flying Dreams Brewing Company, 277 Main Street, Marlborough, MA.  
+* **Feb 27, 7-9p** - [Flying Dreams Brewing Company](https://www.flyingdreamsbrewing.com/marlborough/){:target="_blank"}, 277 Main Street, Marlborough, MA.  
 
 
 ---
