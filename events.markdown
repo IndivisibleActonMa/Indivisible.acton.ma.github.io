@@ -121,7 +121,7 @@ Join us for multiple campaigns, postcards and more!
 ### Saturday, Feb 29  
 
 * **8-10p**, Cambridge:  ***Jimmy Tingle 2020 Vision (for Indivisible MA)*** - We could all use a good laugh. [Jimmy Tingle](https://jimmytingle.com){:target="_blank"} can deliver it - and so much more!
-AND - he's splitting his profits with Area Indivisibles. This is a win-win!  Use the Promo Code "Indivisible" - and $10 will be donated to Indivisible MA! [BUY your ticket](https://www.boxoffice.harvard.edu/Online/default.asp?BOparam::WScontent::loadArticle::permalink=tingle&BOparam::WScontent::loadArticle::context_id=){:target="_blank"}  
+AND - he's splitting his profits with Area Indivisibles. This is a win-win!  Use the Promo Code "Indivisible" - and $10 will be donated to Indivisible MA! [BUY your ticket HERE](https://www.boxoffice.harvard.edu/Online/default.asp?BOparam::WScontent::loadArticle::permalink=tingle&BOparam::WScontent::loadArticle::context_id=){:target="_blank"}.    
  
 ---
 
