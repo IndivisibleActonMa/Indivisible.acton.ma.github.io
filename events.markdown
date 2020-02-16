@@ -62,9 +62,13 @@ Join us for multiple campaigns, postcards and more!
 
 ### Thirsty Thursdays
 
-* **Feb 13, 7-9p** - Lost Shoe Brewing and Roasting Company, 19 Weed St, Marlborough.  Hosted by Marlborough and Hudson activists.
+Hosted by Marlborough and Hudson activists.  
 
-* **Feb 27, 7-9p** - Lost Shoe Brewing and Roasting Company, 19 Weed St, Marlborough.  Hosted by Marlborough and Hudson activists.
+* **Feb 13, 7-9p** - Lost Shoe Brewing and Roasting Company, 19 Weed St, Marlborough.  
+
+* **Feb 20, 7-9p** - Ground Effect Brewing Company, 312 Main Street Hudson, MA.  
+
+* **Feb 27, 7-9p** - Flying Dreams Brewing Company, 277 Main Street, Marlborough, MA.  
 
 
 ---
