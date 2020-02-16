@@ -62,7 +62,10 @@ Join us for multiple campaigns, postcards and more!
 
 ### Thirsty Thursdays
 
-* **Feb 13, 7-9p** - Lost Shoe Brewing Co, 19 Weed St, Marlborough.  Hosted by Marlborough and Hudson activists.
+* **Feb 13, 7-9p** - Lost Shoe Brewing and Roasting Company, 19 Weed St, Marlborough.  Hosted by Marlborough and Hudson activists.
+
+* **Feb 27, 7-9p** - Lost Shoe Brewing and Roasting Company, 19 Weed St, Marlborough.  Hosted by Marlborough and Hudson activists.
+
 
 ---
 
