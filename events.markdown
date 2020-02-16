@@ -114,6 +114,12 @@ Join us for multiple campaigns, postcards and more!
 
 * **7-9p**, Boxborough:  ***Meet the candidates for the 37th Middlesex!*** Come meet [Dina Samfield](https://www.facebook.com/dinasamfieldma/){:target="_blank"} from Shirley and [Dan Sena](https://www.facebook.com/DanSenaForStateRep/){:target="_blank"} from Acton.  This Candidate Night event is free and open to the public, and is sponsored by the Boxborough and Acton Democratic Town Committees. Sargent Memorial Library, 427 Massachusetts Ave, Boxborough.
 
+
+### Saturday, Feb 29  
+
+* **8-10p**, Cambridge:  ***Jimmy Tingle 2020 Vision (for Indivisible MA)*** - We could all use a good laugh. Jimmy can deliver it - and so much more!
+And - he's splitting his profits with Area Indivisibles. This is a win-win!  Use the Promo Code "Indivisible" - and $10 will be donated to Indivisible MA! [BUY your ticket](https://www.boxoffice.harvard.edu/Online/default.asp?BOparam::WScontent::loadArticle::permalink=tingle&BOparam::WScontent::loadArticle::context_id=){:target="_blank"}  
+ 
 ---
 
 ## Save the Date
