@@ -50,7 +50,7 @@ var x = setInterval(function() {
 
 [Make a plan to WIN in 2020!](http://www.indivisibleacton.org/general-information/election-2020.html)
 
-*Come see our 2020 Election Strategy presented at the Concord Activist Huddle on Sunday, Feb 23, 2-4p, 1276 Main St, Concord, MA 01742.*  
+*Come see our 2020 Election Strategy presented at the Concord Activist Huddle on Sunday, Feb 23, 2-4p, Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742.*  
 
 
 ---
