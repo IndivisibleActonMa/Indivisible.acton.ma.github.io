@@ -128,6 +128,9 @@ Hosted by Marlborough and Hudson activists.
 
 ### Saturday, Feb 29  
 
+* **7-9:30p**, Littleton:  ***Film - Gentrified : Ethnic Cleansing American Style*** - The first in depth analysis of the unspoken ethnic component behind the most devastating socio-economic movement in America today. This free film series explores the lives and experiences of the “other” and expands our awareness of our neighbors as well as often marginalized individuals and groups. Please join us for a lively discussion. All are welcome.  First Church Unitarian, 19 Foster St, Littleton.  
+
+
 * **8-10p**, Cambridge:  ***Jimmy Tingle 2020 Vision (for Indivisible MA)*** - We could all use a good laugh. [Jimmy Tingle](https://jimmytingle.com){:target="_blank"} can deliver it - and so much more!
 AND - he's splitting his profits with Area Indivisibles. This is a win-win!  Use the Promo Code "Indivisible" - and $10 will be donated to Indivisible MA! [BUY your ticket HERE](https://www.boxoffice.harvard.edu/Online/default.asp?BOparam::WScontent::loadArticle::permalink=tingle&BOparam::WScontent::loadArticle::context_id=){:target="_blank"}.    
  
