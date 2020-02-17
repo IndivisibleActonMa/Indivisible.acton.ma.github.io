@@ -141,7 +141,7 @@ AND - he's splitting his profits with Area Indivisibles. This is a win-win!  Use
 
 * **7-11p**, Acton:  ***Super Tuesday Watch Party!*** Friends, Food and Fun! Join us for the Super Tuesday Watch Party. $8 at the door covers dinner. Cash bar available. The Silent Auction list is growing!  Do you have a service or something new or practically new to donate? Email Christine at christine@indivisibleacton.org.  [RSVP for event HERE](https://www.eventbrite.com/e/super-tuesday-primary-watch-party-tickets-93130771645){:target="_blank"}.  Hope you can join us! 
 
-### Monday, Mar 9. 
+### Monday, Mar 9   
 
 * **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - Stay tuned for more details!  
 
