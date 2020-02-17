@@ -112,6 +112,11 @@ Hosted by Marlborough and Hudson activists.
 
 * ***Last day to register to vote for the Massachusetts Presidential Primary*** Click [HERE](https://www.rockthevote.org/voting-information/election-dates-deadlines/massachusetts/){:target="_blank"} for more info.
 
+### Tuesday, Feb 18  
+
+* **7-8p**:  ***[WATCH: Ed Markey, Joe Kennedy To Debate](https://www.wgbh.org/news/local-news/2020/02/13/watch-ed-markey-joe-kennedy-to-debate-for-first-time).  Live stream available. 
+
+ 
 ### Wednesday, Feb 19
 
 * **8a-2p**, Weymouth: ***Weymouth Compressor Station Protest*** - Join a mass demonstration to protest the injustice of the Weymouth Compressor Station, 50 Bridge St, North Weymouth.
