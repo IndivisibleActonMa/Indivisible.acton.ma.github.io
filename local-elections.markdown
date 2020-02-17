@@ -54,7 +54,7 @@ var x = setInterval(function() {
 
 * **March 31, 2020 - State Election**
 
-* [Early Voting Dates and Locations](https://www.sec.state.ma.us/EarlyVotingWeb/EarlyVotingSearch.aspx)  
+* [Early Voting Dates and Locations](https://www.sec.state.ma.us/EarlyVotingWeb/EarlyVotingSearch.aspx){:target="_blank"}    
 
 *[Make sure you are registered to vote](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}!!  Deadline to register is Feb 12.*  
 
