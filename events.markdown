@@ -139,7 +139,7 @@ AND - he's splitting his profits with Area Indivisibles. This is a win-win!  Use
 
 * MA Presidential Primary and State Primary for 37th Middlesex District Representative (Jen Benson's seat).
 
-* **7-11p**, Acton:  ***Super Tuesday Watch Party!*** Friends, Food and Fun! Join us for the Super Tuesday Watch Party. The Silent Auction items are growing!  Do you have a service or something new or practically new to donate? Email Christine at christine@indivisibleacton.org. [RSVP for event HERE](https://www.eventbrite.com/e/super-tuesday-primary-watch-party-tickets-93130771645){:target="_blank"}.  Hope you can join us!  
+* **7-11p**, Acton:  ***Super Tuesday Watch Party!*** Friends, Food and Fun! Join us for the Super Tuesday Watch Party. The Silent Auction items are growing!  Do you have a service or something new or practically new to donate? Email Christine at christine@indivisibleacton.org. $8 at the door covers dinner. Cash bar available.  [RSVP for event HERE](https://www.eventbrite.com/e/super-tuesday-primary-watch-party-tickets-93130771645){:target="_blank"}.   Hope you can join us! 
 
 ### Tuesday, Mar 31
 
