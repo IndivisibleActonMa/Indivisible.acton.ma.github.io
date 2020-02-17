@@ -38,6 +38,10 @@ Join us for postcards in Acton and Harvard!
 
 * **2-4p**, Harvard General Store, 1 Still River Rd, Harvard
 
+**Feb 29**
+
+* **2-4p**, Harvard General Store, 1 Still River Rd, Harvard  
+
 ---
 
 ### Bluewave Tuesdays
