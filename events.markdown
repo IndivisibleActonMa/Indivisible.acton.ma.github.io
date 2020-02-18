@@ -40,7 +40,7 @@ Join us for postcards in Acton and Harvard!
 
 **Feb 29**
 
-* **2-4p**, *It's leap day, not sleep day!*. Join us at The Harvard General Store, 1 Still River Rd, Harvard for postcards and conversations!   
+* **2-4p**, *It's leap day, not sleep day!* Join us at The Harvard General Store, 1 Still River Rd, Harvard for postcards and conversations!   
 
 ---
 
