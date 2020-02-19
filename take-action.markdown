@@ -120,10 +120,6 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 * Email your MA state legislators and **demand that they lead on immigrant rights and equity**. MIRA (MA Immigrant and Refugee Advocacy Coalition) has put together a [comprehensive list](https://mailchi.mp/miracoalition/action-alert-lets-build-momentum-for-our-2019-priority-bills?e=baa65bb0e1&link_id=16&can_id=9a7cc198611ac2a74f284fdda8e14f7e) of all of the bills that support immigration and refugee rights and has made it super easy to [email your legislators to support these bills](https://p2a.co/96apnIc?link_id=17&can_id=9a7cc198611ac2a74f284fdda8e14f7e){:target="_blank"}.
 
 
-* **Defend women's reproductive rights!** Please contact your MA State Senators and ask them to support [S.1209](https://malegislature.gov/Bills/191/SD109){:target="_blank"}.  Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors){:target="_blank"} to see if your senator is a cosponsor of the ROE Act.
-
-  Call your MA Representatives and ask them to support [H.3320](https://malegislature.gov/Bills/191/H3320){:target="_blank"}.  Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors#house){:target="_blank"} to see if your rep has cosponsored the ROE Act.
-
 ### National
 
 * [Join Stacy Abrams in Fair Fight 2020](https://fairfight.com/fair-fight-2020/){:target="_blank"}. 
