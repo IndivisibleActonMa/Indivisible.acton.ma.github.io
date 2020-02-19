@@ -126,8 +126,9 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 
 ### National
 
-* [Join Stacy Abrams in Fair Fight 2020](https://fairfight.com/fair-fight-2020/){:target="_blank"}
+* [Join Stacy Abrams in Fair Fight 2020](https://fairfight.com/fair-fight-2020/){:target="_blank"}. 
 
+* Want to know the list of *proposed federal rule and regulation changes currently accepting public comments*?  Two good sources are [Rogan's List](https://roganslist.blogspot.com){:target="_blank"} and [News You May Have Missed](http://www.newsyoumayhavemissed.com){:target="_blank"}.  Or click [HERE]( https://tinyurl.com/vfeyasb){:target="_blank"} if you want to know the deadlines of the week.  You can also join the Facebook Group [Comments for America](https://www.facebook.com/groups/comments4america/){:target="_blank"}  which is devoted exclusively to publicizing proposed federal rules changes and to helping folks gets the information they need to make effective comments.  
 
 * Take the [Indivisible Unity Pledge](http://pledge.indivisible.org){:target="_blank"}: The pledge is that no matter our differences in the primary, once Democrats have a nominee, we’ll do everything in our power to get the nominee elected.  Click [HERE](https://www.youtube.com/watch?v=HojK7c7X3WE&link_id=18&can_id=9a7cc198611ac2a74f284fdda8e14f7e&source=email-2019-5-7-indivisible-acton-weekly-newsletter&email_referrer=email_540613&email_subject=2019-5-7-indivisible-acton-weekly-newsletter){:target="_blank"} to watch a clip about the Pledge on Rachel Maddow.
 
