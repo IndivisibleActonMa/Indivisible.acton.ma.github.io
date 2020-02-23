@@ -116,7 +116,7 @@ Hosted by Marlborough and Hudson activists.
 
 ### Tuesday, Feb 18  
 
-* **7-8p**:  ***[WATCH: Ed Markey, Joe Kennedy To Debate](https://www.wgbh.org/news/local-news/2020/02/13/watch-ed-markey-joe-kennedy-to-debate-for-first-time).  Live stream available. 
+* **7-8p**: ***[WATCH: Ed Markey, Joe Kennedy To Debate](https://www.wgbh.org/news/local-news/2020/02/13/watch-ed-markey-joe-kennedy-to-debate-for-first-time){:target="_blank"}***.  Live stream available. 
 
  
 ### Wednesday, Feb 19
