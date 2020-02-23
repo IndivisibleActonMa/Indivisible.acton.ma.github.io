@@ -125,7 +125,7 @@ Hosted by Marlborough and Hudson activists.
 
 ### Sunday, Feb 23
 
-* **2-4p**, Concord:  ***Concord Activist Huddle*** -  Join fellow activists to *Fight for People, Planet, & Democracy*!  Come here our 2020 Election Strategy!    Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742 
+* **2-4p**, Concord:  ***Concord Activist Huddle*** -  Join fellow activists to *Fight for People, Planet, & Democracy*!  Come hear our 2020 Election Strategy!    Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742 
 
 
 ### Thursday, Feb 27
