@@ -85,7 +85,7 @@ Hosted by Marlborough and Hudson activists.
 
 ### Saturday, Feb 29  
 
-* **10a-4p**, Lincoln:  ***Nonviolent Civil Disobedience (CD) Training*** - This training in nonviolent civil disobedience is led by Cathy Hoffman, who has been a Nonviolence Civil Disobedience/Direct Action (NVDA) trainer for many decades most recently with Extinction Rebellion, Immigrant Justice, UU Mass Action and the Resist the Pipeline effort in West Roxbury. Register HERE](https://docs.google.com/forms/d/e/1FAIpQLScEMQAor9B1_DqnJWzkmpiveQypAMkfAh5vO8gReG04HcZbKA/viewform){:target="_blank"}.  St. Anne’s Church, 147 Concord Road, Lincoln  
+* **10a-4p**, Lincoln:  ***Nonviolent Civil Disobedience (CD) Training*** - This training in nonviolent civil disobedience is led by Cathy Hoffman, who has been a Nonviolence Civil Disobedience/Direct Action (NVDA) trainer for many decades most recently with Extinction Rebellion, Immigrant Justice, UU Mass Action and the Resist the Pipeline effort in West Roxbury. [Register HERE](https://docs.google.com/forms/d/e/1FAIpQLScEMQAor9B1_DqnJWzkmpiveQypAMkfAh5vO8gReG04HcZbKA/viewform){:target="_blank"}.  St. Anne’s Church, 147 Concord Road, Lincoln  
 
 * **7-9:30p**, Littleton:  ***Film - Gentrified : Ethnic Cleansing American Style*** - The first in depth analysis of the unspoken ethnic component behind the most devastating socio-economic movement in America today. This free film series explores the lives and experiences of the “other” and expands our awareness of our neighbors as well as often marginalized individuals and groups. Please join us for a lively discussion. All are welcome.  First Church Unitarian, 19 Foster St, Littleton.  
 
