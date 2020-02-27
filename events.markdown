@@ -113,6 +113,10 @@ AND - he's splitting his profits with Area Indivisibles. This is a win-win!  Use
 
 * **4-6p**, Acton:  ***Acton Democratic Caucus*** - Acton elects up to 14 delegates (7 men and 7 women) and 3 alternates to attend the 2020 Massachusetts Democratic Issues Convention in May.  *Any registered Democrat in Acton is eligible to become a delegate.*  Youth, minorities and people with disabilities who are not elected as delegates or alternates may apply to be add-on delegates.  All ballots will be written and secret.  This is a great way to get involved and learn about the process. 
 
+### Thursday, Mar 19  
+
+* **5:30-8p**, Boston:  ***King Boston Teach-In*** - Join Marie St. Fleur, King Boston & Sheena Collier, the Collier Connection in a dynamic conversation about a living memorial honoring the legacy of Dr. Martin Luther King Jr and Loretta Scott King. Dudley Cafe, 15 Warren St, Boston.  [Register HERE](https://www.eventbrite.com/e/king-boston-teach-in-tickets-93571786733#add-to-calendar-modal){:target="_blank"}.  
+
 ### Tuesday, Mar 31
 
 * Special Election for 37th Middlesex District Representative (Jen Benson's seat).
