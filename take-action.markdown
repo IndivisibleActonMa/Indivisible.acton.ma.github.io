@@ -87,6 +87,8 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 
 ### Environment/Climate Crisis
 
+* Learn more about the effects of [climate change in Massachusetts](https://www.massaudubon.org/our-conservation-work/climate-change){:target="_blank"} from [Mass Audobon](https://www.massaudubon.org){:target="_blank"}.  
+
 * Find out how you can protect and enhance Acton's natural environment and help resolve the urgent environmental issues that transcend Acton's boundaries [HERE](https://greenacton.org){:target="_blank"}.
 
 * Join [Mothers Out Front](https://ma.mothersoutfront.org){:target="_blank"} to take action to address climate change.
