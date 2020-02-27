@@ -45,9 +45,19 @@ document.getElementById("demo").innerHTML = "Let's Get Out and VOTE!!!";
 
 ---
 
-["Be a fanatical optimist. Make a plan. Take action."](https://www.wbur.org/cognoscenti/2020/02/05/trump-impeachment-acquittal-steve-almond){:target="_blank"}  Steve Almond  
+["*Be a fanatical optimist. Make a plan. Take action.*"](https://www.wbur.org/cognoscenti/2020/02/05/trump-impeachment-acquittal-steve-almond){:target="_blank"}  Steve Almond  
 
 Click [HERE](http://www.indivisibleacton.org/general-information/election-2020.html){:target="_blank"} for ideas to make *YOUR* election 2020 plan!
+
+---
+
+From Sunrise Acton February Newsletter:
+
+**Start a Climate Conversation**
+
+“*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation
+
+This month, try discussing the climate crisis with family, friends, or even strangers. It’s super important that we get as many people on our side as possible, especially voters! *As 2020 unfolds, let’s make climate change the number one issue for voters across Massachusetts.*  
 
 ---
 
