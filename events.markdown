@@ -100,6 +100,10 @@ AND - he's splitting his profits with Area Indivisibles. This is a win-win!  Use
 
 * **7-11p**, Acton:  ***Super Tuesday Watch Party!*** Friends, Food and Fun! Join us for the Super Tuesday Watch Party. $8 at the door covers dinner. Cash bar available. The Silent Auction list is growing!  Do you have a service or something new or practically new to donate? Email Christine at christine@indivisibleacton.org.  Please [RSVP for event HERE](https://www.eventbrite.com/e/super-tuesday-primary-watch-party-tickets-93130771645){:target="_blank"} to help us plan.  Hope you can join us! 
 
+### Friday, Mar 6  
+
+* **7:30-8:30p**, Concord:  ***Democracy in Chains: The Deep History of the Radical Right’s Stealth Plan for America*** - Join Author Nancy MacLean.  [RSVP HERE](https://americanpromise.net/event/concord-ma-public-lecture-democracy-in-chains/?utm_source=American+Promise&utm_campaign=4f719d34d7-EMAIL_CAMPAIGN_2020_02_13_10_29_COPY_01&utm_medium=email&utm_term=0_f12c7850d0-4f719d34d7-22965983){:target="_blank"}.   
+
 ### Sunday, Mar 8  
 
 * **2-4p**, Concord:  ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s calendar for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742. 
