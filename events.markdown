@@ -64,7 +64,7 @@ Join us for multiple campaigns, postcards and more in the Couper Room at the Reu
 
 ### Thirsty Thursdays
 
-Hosted by Marlborough and Hudson activists.  
+Hosted by Marlborough and Hudson Activists.  
 
 * **Feb 20, 7-9p** - [Ground Effect Brewing Company](http://groundeffectbrewing.com){:target="_blank"}, 312 Main Street Hudson, MA.  
 
