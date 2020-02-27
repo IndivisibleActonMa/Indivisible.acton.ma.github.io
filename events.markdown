@@ -109,6 +109,14 @@ AND - he's splitting his profits with Area Indivisibles. This is a win-win!  Use
 
 * **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - Stay tuned for more details!  
 
+### Tuesday, Mar 10  
+
+* **7:30p**, Wayland:  ***Carbon Taxes as a Climate Solution*** - Dr. Gilbert E. Metcalf will lead a discussion on “Carbon Taxes as a Climate Change Solution.” Dr. Metcalf is an expert on carbon taxes and Professor of Economics at Tufts University. He will explain how a carbon tax – one of the most effective tools in combatting climate change – might work.  
+
+  Dr. Metcalf’s current research focuses on policy evaluation and design in the area of energy and climate change. He has frequently testified before Congress, and has served on expert panels for the National Academies of Sciences and the EPA. He also served as Deputy Assistant Secretary for Environment and Energy at the Department of Treasury.  
+
+  First Parish in Wayland, 225 Boston Post Rd, Wayland.  
+
 ### Saturday, Mar 14
 
 * **2:30p**, Acton: ***Author Talk with Tina Cassidy*** - Celebrate the Women’s Suffrage Centennial at the Acton Memorial Library, 48 Main St, Acton.  [Click HERE](https://www.actonmemoriallibrary.org/events-programs/author-talk){:target="_blank"} for more info.  
