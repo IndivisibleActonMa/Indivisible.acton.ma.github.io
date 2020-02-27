@@ -107,6 +107,10 @@ AND - he's splitting his profits with Area Indivisibles. This is a win-win!  Use
 
 * **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - Stay tuned for more details!  
 
+### Saturday, Mar 14
+
+* **6-8p**, Concord:  ***[Women’s Suffrage Centennial Celebration](https://firstparish.org/wp/events/event/suffrage-centennial-celebration/){:target="_blank"}*** - Celebrate the ratification of The 19th Amendment which gave women in the United States the right to vote, the founding of The League of Women Voters & on-going work to preserve and strengthen our democracy.  First Parish in Concord, 20 Lexington Rd, Concord.  Event is free.  Reservations required.  Email: pekindc@comcast.net by Mar 6.  
+
 ### Sunday, Mar 15  
 
 * **3-5p**, Littleton:  ***[The Condor and The Eagle - Film screening and fundraiser](https://www.fculittle.org/events/the-condor-the-eagle-movie-screening-at-littleton-high-school/){:target="_blank"}***.  Sponsored by the Environmental Action Group at First Church Unitarian, Littleton.  Screening is at Littleton High School Auditorium, 56 King St, Littleton.  
