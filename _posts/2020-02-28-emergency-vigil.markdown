@@ -1,6 +1,7 @@
 ---
 title: Emergency Vigil
 date: 2020-02-28 08:11:00 -05:00
+published: false
 is featured: true
 event-start-date: 2020-02-28 15:00:00 -05:00
 event-end-date: 2020-02-28 17:00:00 -05:00
