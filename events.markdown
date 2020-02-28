@@ -84,7 +84,7 @@ Hosted by Marlborough and Hudson Activists.
 
 ### Friday, Feb 28 
 
-* **7-8p**, Lincoln:  ***Film: Suppressed The Fight to Vote*** - Lincoln resident Andrew Glass will facilitate a discussion afterwards. Free and open to all. Bemis Hall, 15 Bedford Rd, Lincoln, MA  
+* **7-8p**, Lincoln:  ***Film: Suppressed The Fight to Vote*** - Lincoln resident Andrew Glass will facilitate a discussion afterwards. Free and open to all. Light refreshments start at 6:30p.  Bemis Hall, 15 Bedford Rd, Lincoln, MA  
 
 ### Saturday, Feb 29  
 
