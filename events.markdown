@@ -82,6 +82,9 @@ Hosted by Marlborough and Hudson Activists.
 
 * **7-9p**, Boxborough:  ***Meet the candidates for the 37th Middlesex!*** Come meet [Dina Samfield](https://www.facebook.com/dinasamfieldma/){:target="_blank"} from Shirley and [Dan Sena](https://www.facebook.com/DanSenaForStateRep/){:target="_blank"} from Acton.  This Candidate Night event is free and open to the public, and is sponsored by the Boxborough and Acton Democratic Town Committees. Sargent Memorial Library, 427 Massachusetts Ave, Boxborough.
 
+### Friday, Feb 28 
+
+* **7-8p**, Lincoln:  ***Film: Suppressed The Fight to Vote*** - Lincoln resident Andrew Glass will facilitate a discussion afterwards. Free and open to all. Bemis Hall, 15 Bedford Rd, Lincoln, MA  
 
 ### Saturday, Feb 29  
 
