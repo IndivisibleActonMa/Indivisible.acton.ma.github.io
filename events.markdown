@@ -70,9 +70,6 @@ Hosted by Marlborough and Hudson Activists.
 
 * **Feb 27, 7-9p** - [Flying Dreams Brewing Company](https://www.flyingdreamsbrewing.com/marlborough/){:target="_blank"}, 277 Main Street, Marlborough, MA.  
 
-* **Mar 12, 7-9p** [Lost Shoe Brewing and Roasting Company](https://lostshoebrews.com){:target="_blank"}, 19 Weed St, Marlborough. 
-
-* **Mar 26, 7-9p** [Lost Shoe Brewing and Roasting Company](https://lostshoebrews.com){:target="_blank"}, 19 Weed St, Marlborough. 
 
 ---
 
