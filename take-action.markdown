@@ -4,6 +4,13 @@ date: 2019-05-06 10:41:00 -04:00
 layout: page
 ---
 
+## Vote on Tuesday, March 3
+
+**Tuesday, March 3** is ***Primary Voting Day***! Be sure to **make a plan** about when you are going to vote!!  
+
+Then join us for the **Super Tuesday Watch Party** - friends, food and fun!  $8 at the door covers dinner; cash bar available.  [RSVP HERE](https://www.eventbrite.com/e/super-tuesday-primary-watch-party-tickets-93130771645).  Hope you can join us!  
+
+
 ---
 
 <p id="demo">
