@@ -87,14 +87,6 @@ Let's ask the Inspector General of HUD, Rae Davis, to investigate the agency’s
 
 * Click [HERE](http://www.indivisibleacton.org/events/support-immigration-justice.html){:target="_blank"} to learn how you can contribute time and/or money to organizations which support immigrant justice.
 
-* Tell MIT Not to Cooperate with ICE
-
-  Faculty and staff at the Massachusetts Institute of Technology (MIT) received a memo telling them to expect a visit from the Department of Homeland Security and [asking them to cooperate with requests for information on the immigration status of researchers, visiting scholars and post-doctoral students at the university](https://commonwealthmagazine.org/immigration/mit-tells-staff-to-expect-visits-from-ice-2/?link_id=6&can_id=2367f63e076c12dadb092e1de7ba101c&source=email-january-11-mass-action-indivisible-newsletter-2&email_referrer=email_697784___subject_935158&email_subject=mass-action-indivisible-newsletter){:target="_blank"}.
-
-  Let’s contact the President of MIT, Rafael Reif (president@mit.edu; 617-253-0148) and the author of this memo, Director of the International Scholars Office, Penny Rosser (pennysun@mit.edu; 617-253-2851) and ask them not to cooperate with an agency that has been recklessly deporting innocent people, separating children from their parents, and violating individuals’ basic human rights.
-
-  H/T Rogan's List
-
 ### Environment/Climate Crisis
 
 * Learn more about the effects of [climate change in Massachusetts](https://www.massaudubon.org/our-conservation-work/climate-change){:target="_blank"} from [Mass Audobon](https://www.massaudubon.org){:target="_blank"}.  
