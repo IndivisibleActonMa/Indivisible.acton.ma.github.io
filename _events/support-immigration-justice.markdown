@@ -20,7 +20,7 @@ Here are other ways we can help immigrants and asylum seekers:
 * Call or write your state Senator and Representative and ask them to support the Safe Communities Act: [S.1401](https://malegislature.gov/Bills/191/S1401){:target="_blank"} (Senator Jamie Eldridge) and [H.3573](https://malegislature.gov/Bills/191/H3573){:target="_blank"} (Representatives Ruth Balser and Liz Miranda). Get more involved through the [Massachusetts Safe Communities and Coalition](https://www.facebook.com/safecommunitiesma/){:target="_blank"}.
 
 
-* Encourage our legislature to pass a "driver’s licenses for all" law.  Learn more about [Driving Families Forward](https://www.facebook.com/DrivingFamiliesForward){:target="_blank"}.  Support the Work and Mobility Act and sign the petition [HERE](https://actionnetwork.org/petitions/dff-petition){:target="_blank"}.  
+* Encourage our legislature to pass a "driver’s licenses for all" law.  Learn more about [Driving Families Forward](https://www.facebook.com/DrivingFamiliesForward){:target="_blank"}.  Support the Work and Mobility Act and sign the petition [HERE](https://actionnetwork.org/petitions/dff-petition){:target="_blank"}.  The Work and Family Mobility Act would enable all qualified state residents to apply for a standard Massachusetts driver’s license, regardless of immigrant status, while keeping our Commonwealth in full compliance with REAL ID requirements.  
 
  
 * Donate [HERE](https://actionnetwork.org/fundraising/support-the-massachusetts-tps-committee?source=facebook&){:target="_blank"} to help TPS holders travel to Pasadena, CA to stand in support as the court cast Nielsen vs Ramos decision influences their family’s future.
