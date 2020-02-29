@@ -6,7 +6,7 @@ layout: page
 
 ***Note***
 
-Families belong together in their communities. But Trump’s @DHSgov just rigged the rules against immigrants—forcing families to choose between health care, food & homes and a safe, stable future in the U.S.  Get more information on how we can help protect immigrant familes [HERE](https://www.protectingimmigrantfamilies.org){:target="_blank"}. #ProtectFamilies
+Families belong together in their communities. But Trump’s @DHSgov just rigged the rules against immigrants—forcing families to choose between health care, food & homes and a safe, stable future in the U.S.  Get more information on how we can help protect immigrant families [HERE](https://www.protectingimmigrantfamilies.org){:target="_blank"}. #ProtectFamilies
   
 ---
 
