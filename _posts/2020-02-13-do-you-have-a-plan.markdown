@@ -65,5 +65,5 @@ Make sure you are not an [inactive voter](https://www.sec.state.ma.us/ele/eleina
 
 Click [HERE](https://www.sec.state.ma.us/ele/eleidx.htm){:target="_blank"} for more voter information.
 
-*Massachusetts Presidential Primary and the 37th Middlesex Special Election Primary is March 3, 2020.*  
+### *Massachusetts Presidential Primary and the 37th Middlesex Special Election Primary is March 3, 2020.*  
 
