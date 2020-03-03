@@ -76,25 +76,6 @@ Hosted by Marlborough and Hudson Activists.
 
 ## Some Other Events to Consider
 
-### Thursday, Feb 27
-
-* **7-9p**, Boxborough:  ***Meet the candidates for the 37th Middlesex!*** Come meet [Dina Samfield](https://www.facebook.com/dinasamfieldma/){:target="_blank"} from Shirley and [Dan Sena](https://www.facebook.com/DanSenaForStateRep/){:target="_blank"} from Acton.  This Candidate Night event is free and open to the public, and is sponsored by the Boxborough and Acton Democratic Town Committees. Sargent Memorial Library, 427 Massachusetts Ave, Boxborough.
-
-### Friday, Feb 28 
-
-* **7-8p**, Lincoln:  ***Film: Suppressed The Fight to Vote*** - Lincoln resident Andrew Glass will facilitate a discussion afterwards. Free and open to all. Light refreshments start at 6:30p.  Bemis Hall, 15 Bedford Rd, Lincoln, MA  
-
-### Saturday, Feb 29  
-
-* **10a-4p**, Lincoln:  ***Nonviolent Civil Disobedience (CD) Training*** - This training in nonviolent civil disobedience is led by Cathy Hoffman, who has been a Nonviolence Civil Disobedience/Direct Action (NVDA) trainer for many decades most recently with Extinction Rebellion, Immigrant Justice, UU Mass Action and the Resist the Pipeline effort in West Roxbury. [Register HERE](https://docs.google.com/forms/d/e/1FAIpQLScEMQAor9B1_DqnJWzkmpiveQypAMkfAh5vO8gReG04HcZbKA/viewform){:target="_blank"}.  St. Anne’s Church, 147 Concord Road, Lincoln  
-
-* **7-9:30p**, Littleton:  ***Film - Gentrified : Ethnic Cleansing American Style*** - The first in depth analysis of the unspoken ethnic component behind the most devastating socio-economic movement in America today. This free film series explores the lives and experiences of the “other” and expands our awareness of our neighbors as well as often marginalized individuals and groups. Please join us for a lively discussion. All are welcome.  First Church Unitarian, 19 Foster St, Littleton.  
-
-
-* **8-10p**, Cambridge:  ***Jimmy Tingle 2020 Vision (for Indivisible MA)*** - We could all use a good laugh. [Jimmy Tingle](https://jimmytingle.com){:target="_blank"} can deliver it - and so much more!
-AND - he's splitting his profits with Area Indivisibles. This is a win-win!  Use the Promo Code "Indivisible" - and $10 will be donated to Indivisible MA! [BUY your ticket HERE](https://www.boxoffice.harvard.edu/Online/default.asp?BOparam::WScontent::loadArticle::permalink=tingle&BOparam::WScontent::loadArticle::context_id=){:target="_blank"}.    
- 
-
 ### Tuesday, Mar 3
 
 * MA Presidential Primary and State Primary for 37th Middlesex District Representative (Jen Benson's seat).
@@ -105,6 +86,11 @@ AND - he's splitting his profits with Area Indivisibles. This is a win-win!  Use
 
 * **7:30-8:30p**, Concord:  ***Democracy in Chains: The Deep History of the Radical Right’s Stealth Plan for America*** - Join Author Nancy MacLean.  [RSVP HERE](https://americanpromise.net/event/concord-ma-public-lecture-democracy-in-chains/?utm_source=American+Promise&utm_campaign=4f719d34d7-EMAIL_CAMPAIGN_2020_02_13_10_29_COPY_01&utm_medium=email&utm_term=0_f12c7850d0-4f719d34d7-22965983){:target="_blank"}.   
 
+### Saturday, Mar 7. 
+
+* **8:30-10a**, Acton:  ***Immigration Breakfast: Temporary Protected Status (TPS): What Does It Mean To Real People*** - St. Matthew's United Methodist Church invites you for a short film and discussion about the play that some American children of El Salvadoran descent created and took to Congress last year.  You will get to meet and hear from some TPS recipients and their families. The free breakfast will begin at 8:30a and the presentation starts at 9a.  Please [RSVP HERE](https://saint-matthews.org/events/immigration-breakfast-tps/?doing_wp_cron=1583202095.6162300109863281250000){:target="_blank"}.   
+
+ 
 ### Sunday, Mar 8  
 
 * **2-4p**, Concord:  ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s calendar for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742. 
