@@ -4,7 +4,7 @@ date: 2019-05-06 10:41:00 -04:00
 layout: page
 ---
 
-## Vote on Tuesday, March 31
+### Vote on Tuesday, March 31
 
 **Tuesday, March 31** is ***The 37th Middlesex Special Election***!  
 
