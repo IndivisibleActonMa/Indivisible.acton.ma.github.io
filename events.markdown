@@ -54,9 +54,11 @@ Join us for multiple campaigns, postcards and more in the Couper Room at the Reu
 
 ### Winning Wednesdays
 
-* **Feb 26, 7-9p** - [Amory’s Tomb Brewing](https://www.amorystomb.com){:target="_blank"}, 76 Main St, Maynard.  
+* **Feb 26, 7-9p** - [Amory’s Tomb Brewing](https://www.amorystomb.com){:target="_blank"}, 76 Main St, Maynard   
 
 * **Mar 4, 2-4p** - Dunkin’, 1641 Sudbury Rd (Rt 117), Concord  
+
+* **Mar 11, 7-9p** - [Amory’s Tomb Brewing](https://www.amorystomb.com){:target="_blank"}, 76 Main St, Maynard  
 
 * **Mar 18, 2-4p** - Dunkin’, 1641 Sudbury Rd (Rt 117), Concord  
 
