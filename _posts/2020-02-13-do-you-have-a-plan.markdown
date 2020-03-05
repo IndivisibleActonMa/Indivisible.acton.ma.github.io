@@ -67,7 +67,7 @@ Click [HERE](https://www.sec.state.ma.us/ele/eleidx.htm){:target="_blank"} for m
 
 ---
 
-### VOTE March 3, Tuesday
+### Special Election March 31, Tuesday
 
-*Massachusetts Presidential Primary and the 37th Middlesex Special Election Primary is Tuesday March 3, 2020.*  **Make a plan** about when you are going to vote!!
+*The 37th Middlesex Special Election is Tuesday March 31, 2020.*  **Make a plan** about when you are going to vote!!
 
