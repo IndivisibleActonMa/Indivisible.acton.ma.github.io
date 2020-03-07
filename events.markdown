@@ -48,7 +48,7 @@ Join us for multiple campaigns, postcards and more in the Couper Room at the Reu
 
 * **Mar 10, 6:30-8:30p** - Texting Training, with a postcard corner. Come learn how to use your computer to text voters!  Please bring your laptop if interested in texting training.  
 
-* **Mar 24, 7-p** 
+* **Mar 24, 7-p** Postcarding and more!
 
 ---
 
