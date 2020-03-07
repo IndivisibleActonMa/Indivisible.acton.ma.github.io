@@ -95,7 +95,7 @@ Hosted by Marlborough and Hudson Activists.
  
 ### Sunday, Mar 8  
 
-* **2-4p**, Concord:  ***Concord Activist Huddle*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s calendar for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742. 
+* **2-4p**, Concord:  ***Concord Activist Huddle has been CANCELLED*** - Join fellow activists to get informed and take action! Check Concord Indivisible’s calendar for more info. Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742. 
 
 
 ### Monday, Mar 9   
