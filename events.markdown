@@ -46,7 +46,7 @@ Join us at The Harvard General Store, 1 Still River Rd, Harvard for postcards an
 
 Join us for multiple campaigns, postcards and more in the Couper Room at the Reuben Hoar Public Library, 41 Shattuck St, Littleton  
 
-* **Mar 10, 7-9p** - Texting Training, with a postcard corner. Come learn how to use your computer to text voters!  Please bring your laptop if interested in texting training.  
+* **Mar 10, 6:30-8:30p** - Texting Training, with a postcard corner. Come learn how to use your computer to text voters!  Please bring your laptop if interested in texting training.  
 
 * **Mar 24, 7-p** 
 
