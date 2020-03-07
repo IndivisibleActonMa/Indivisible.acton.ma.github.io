@@ -100,7 +100,7 @@ Hosted by Marlborough and Hudson Activists.
 
 ### Monday, Mar 9
 
-* **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - Stay tuned for more details!
+* **6:30-8:45p**, Acton: ***Indivisible Acton-Area General Meeting*** - Click [HERE](http://www.indivisibleacton.org/2020/03/04/general-meeting-and-future-plans.html){:target="_blank"} for more info!  
 
 ### Tuesday, Mar 10
 
