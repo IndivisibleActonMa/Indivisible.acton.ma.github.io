@@ -92,11 +92,11 @@ Hosted by Marlborough and Hudson Activists.
 
 ### Sunday, Mar 8
 
-* **2-3p**, Concord:  ***Concord Activist Huddle has been CANCELLED*** - With great regret, to honor the public health concerns about the coronavirus, Concord Indivisible is cancelling their usual Concord Activist Huddle plan for March 8.  \
-  \
-  In its place, Concord Indivisible is sponsoring Huddle @ Home, providing actions you can do from the privacy of your home.  \
-  \
-  **If you are in good health, please COME BY Harvey Wheeler Sunday, Mar 3, between 2:00 - 3:00 PM. We will be waiting at tables outside the building to let you select a writing package to complete at home.**\
+* **2-3p**, Concord:  ***Concord Activist Huddle has been CANCELLED*** - With great regret, to honor the public health concerns about the coronavirus, Concord Indivisible is cancelling their usual Concord Activist Huddle plan for March 8.  
+  
+  In its place, Concord Indivisible is sponsoring Huddle @ Home, providing actions you can do from the privacy of your home.  
+  
+  **If you are in good health, please COME BY Harvey Wheeler Sunday, Mar 3, between 2:00 - 3:00 PM. We will be waiting at tables outside the building to let you select a writing package to complete at home.**
 
 ### Monday, Mar 9
 
