@@ -74,6 +74,7 @@ Hosted by Marlborough and Hudson Activists.
 
 * **Mar 5, 7-9p** - [Ground Effect Brewing Company](http://groundeffectbrewing.com){:target="_blank"}, 312 Main Street Hudson, MA.  
 
+* **Mar 19, 7-9p** - [Ground Effect Brewing Company](http://groundeffectbrewing.com){:target="_blank"}, 312 Main Street Hudson, MA.  
 ---
 
 ## Some Other Events to Consider
