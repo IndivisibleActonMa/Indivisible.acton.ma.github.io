@@ -127,7 +127,7 @@ Hosted by Marlborough and Hudson Activists.
 
 ### Saturday, Mar 21  
 
-* **1-2:30p**, Acton: ***Acton Candidates Forum for the 37th Middlesex District Special Election*** - Hosted by the [League of Women Voters - Acton-Area](http://www.lwv-aa.org){:target="_blank"}.  Click [HERE](https://drive.google.com/file/d/1SwIvYqpnaZOifAV320swNjdTu-8izhQB/view){:target="_blank"} for more info.  Cafeteria at the Luther Conant School, 80 Taylor Rd, Acton. 
+* **1-2:30p**, Acton: ***Acton Candidates Forum*** - Hosted by the [League of Women Voters - Acton-Area](http://www.lwv-aa.org){:target="_blank"}.  All candidates on the Mar 31 Acton ballot have been invited include the winners of the 37th Middlesex Special Primary.  Click [HERE](https://drive.google.com/file/d/1SwIvYqpnaZOifAV320swNjdTu-8izhQB/view){:target="_blank"} for more info.  Cafeteria at the Luther Conant School, 80 Taylor Rd, Acton. 
 
 
 ### Tuesday, Mar 24  
