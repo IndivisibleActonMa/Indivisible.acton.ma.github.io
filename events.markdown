@@ -68,10 +68,6 @@ Join us for multiple campaigns, postcards and more in the Couper Room at the Reu
 
 Hosted by Marlborough and Hudson Activists.  
 
-* **Feb 20, 7-9p** - [Ground Effect Brewing Company](http://groundeffectbrewing.com){:target="_blank"}, 312 Main Street Hudson, MA.  
-
-* **Feb 27, 7-9p** - [Flying Dreams Brewing Company](https://www.flyingdreamsbrewing.com/marlborough/){:target="_blank"}, 277 Main Street, Marlborough, MA.  
-
 * **Mar 5, 7-9p** - [Ground Effect Brewing Company](http://groundeffectbrewing.com){:target="_blank"}, 312 Main Street Hudson, MA.  
 
 * **Mar 19, 7-9p** - [Ground Effect Brewing Company](http://groundeffectbrewing.com){:target="_blank"}, 312 Main Street Hudson, MA.  
