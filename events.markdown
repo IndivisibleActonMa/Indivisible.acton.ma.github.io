@@ -125,6 +125,11 @@ Hosted by Marlborough and Hudson Activists.
 
 * **5:30-8p**, Boston:  ***King Boston Teach-In*** - Join Marie St. Fleur, King Boston & Sheena Collier, the Collier Connection in a dynamic conversation about a living memorial honoring the legacy of Dr. Martin Luther King Jr and Loretta Scott King. Dudley Cafe, 15 Warren St, Boston.  [Register HERE](https://www.eventbrite.com/e/king-boston-teach-in-tickets-93571786733){:target="_blank"}.  
 
+### Saturday, Mar 21  
+
+* **1-2:30p**, Acton: ***Acton Candidates Forum for the 37th Middlesex District Special Election*** - Hosted by the [League of Women Voters - Acton-Area](http://www.lwv-aa.org){:target="_blank"}.  Click [HERE](https://drive.google.com/file/d/1SwIvYqpnaZOifAV320swNjdTu-8izhQB/view){:target="_blank"} for more info.  Cafeteria at the Luther Conant School, 80 Taylor Rd, Acton. 
+
+
 ### Tuesday, Mar 24  
 
 * **7:30p**, Wayland:  ***Forum on Massachusetts Climate Legislation*** sponsored by [First Parish in Wayland](https://www.uuwayland.org){:target="_blank"} and [Mass Audobon](https://www.massaudubon.org){:target="_blank"}.  [Click HERE](https://www.facebook.com/events/122126589049575/){:target="_blank"} for event details.  First Parish in Wayland, 50 Cochituate Rd, Wayland.  
