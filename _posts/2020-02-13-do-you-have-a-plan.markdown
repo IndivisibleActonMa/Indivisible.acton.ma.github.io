@@ -52,6 +52,8 @@ var x = setInterval(function() {
 
 *Come see our 2020 Election Strategy presented at the Concord Activist Huddle*  
 
+***Please Note:  This event has been cancelled.***
+
 * **When:**   Sunday, Mar 8, 2-4p  
 
 * **Where:**  Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742. 
