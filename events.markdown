@@ -18,6 +18,8 @@ date: 2019-11-22 08:43:00 -05:00
 
 ## Postcard and More Meet-ups
 
+***[Click HERE for more info about events and COVID-19](https://docs.google.com/document/d/13o5C_WI1O-CTJKdM6UxF7RBAFFFXCOd2azi3Xmn9JQ8/view){:target="_blank"}.***
+
 ***Wanted:*** *[Volunteers to help co-host our regular postcarding meetups](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3OzOec4BoEzGRjU/edit?usp=sharing){:target="_blank"} - the 1st and 3rd Saturdays, 10a-12p at Bagels Plus in Acton, and the 2nd and 4th Tuesdays, 6:30-8:30p at the Littleton Library.  Indivisible Acton-Area provide all the supplies - postcards, stamps, scripts, addresses.  Contact jeanine@IndivisibleActon.org for more info.*
 
 ---
