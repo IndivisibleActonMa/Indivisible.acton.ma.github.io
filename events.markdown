@@ -118,6 +118,10 @@ Hosted by Marlborough and Hudson Activists.
 
   Acton-Area members interested in pre-ordering a sash @$8 should contact Janet Adachi (jkajeg@msn.com) before March 2.  The sashes, in purple, gold, white will be available for purchase on 3/14 if not sold out before then.  Attendees are encouraged to wear yellow roses, which symbolized support for women’s suffrage.  Carlisle members of LWVCC will be fashioning/selling roses of silk fabric.
 
+### Saturday, Mar 14  
+
+* **4-5:30p**, Maynard:  ***Learn about Together For 2020*** - Come learn how Massachusetts can help win key states by turning out Democratic voters with Michael and Scott Ansara at Longwood Software, 107 Main St, Maynard.  Click [HERE](http://www.indivisibleacton.org/uploads/Togetherfor2020.jpg){:target="_blank"} for more info.  
+
 ### Sunday, Mar 15
 
 * **3-5p**, Littleton:  ***[The Condor and The Eagle - Film screening and fundraiser](https://www.fculittle.org/events/the-condor-the-eagle-movie-screening-at-littleton-high-school/){:target="_blank"}***.  Sponsored by the Environmental Action Group at First Church Unitarian, Littleton.  Screening is at Littleton High School Auditorium, 56 King St, Littleton.
