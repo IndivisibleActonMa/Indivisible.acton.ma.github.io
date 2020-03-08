@@ -17,6 +17,8 @@ If you would like to run for Steering Committee please send a statement of inter
 
 Please join us at this important meeting!
 
+***Please click [HERE](https://docs.google.com/document/d/13o5C_WI1O-CTJKdM6UxF7RBAFFFXCOd2azi3Xmn9JQ8/view){:target="_blank"} to read about our precautions for COVID-19.***
+
 ——
 
 Social half hour starts at 6:30pm and the meeting starts at 7pm.
