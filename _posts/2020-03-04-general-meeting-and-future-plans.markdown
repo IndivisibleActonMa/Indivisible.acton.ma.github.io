@@ -17,7 +17,7 @@ If you would like to run for Steering Committee please send a statement of inter
 
 Please join us at this important meeting!
 
-***Please click [HERE](https://docs.google.com/document/d/1DSwMiE1I9syvJv1nP2i_8ihsBGCG6TDnPMcMSNtrry4/view){:target="_blank"} to read about our policy for COVID-19.***
+***Please click [HERE](https://docs.google.com/document/d/1DSwMiE1I9syvJv1nP2i_8ihsBGCG6TDnPMcMSNtrry4/view){:target="_blank"} to read about our meeting guidelines for COVID-19.***
 
 ——
 
