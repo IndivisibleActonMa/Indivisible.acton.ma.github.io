@@ -118,9 +118,7 @@ Hosted by Marlborough and Hudson Activists.
 
 * **4-5:30p**, Maynard:  ***Learn about Together For 2020*** - Come learn how Massachusetts can help win key states by turning out Democratic voters with Michael and Scott Ansara at Longwood Software, 107 Main St, Maynard.  Click [HERE](http://www.indivisibleacton.org/uploads/Togetherfor2020.jpg){:target="_blank"} for more info.  
 
-* **6-8p**, Concord:  ***[Women’s Suffrage Centennial Celebration](https://firstparish.org/wp/events/event/suffrage-centennial-celebration/){:target="_blank"}*** - **PLEASE NOTE :** The Women’s Suffrage Centennial Celebration that was scheduled for Saturday, March 14, 6:00 p.m. at First Parish in Concord, 20 Lexington Road, Concord, MA has been postponed as a precautionary measure until more is known about the nature and transmission characteristics of the Coronavirus Disease 2019 (COVID-19).  
-
- Be well and stay tuned for announcements of the rescheduled date!  
+* **6-8p**, Concord:  ***[Women’s Suffrage Centennial Celebration](https://firstparish.org/wp/events/event/suffrage-centennial-celebration/){:target="_blank"}*** - **PLEASE NOTE this event has been POSTPONED as a precautionary measure until more is known about the nature and transmission characteristics of the Coronavirus Disease 2019 (COVID-19).**.   
 
  Celebrate the ratification of The 19th Amendment which gave women in the United States the right to vote, the founding of The League of Women Voters & on-going work to preserve and strengthen our democracy.  First Parish in Concord, 20 Lexington Rd, Concord.  Event is free.  Reservations required.  **Email**: pekindc@comcast.net by Mar 6.
 
