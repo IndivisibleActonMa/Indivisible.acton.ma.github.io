@@ -125,7 +125,7 @@ Hosted by Marlborough and Hudson Activists.
 
 * **3-5p**, Littleton:  ***[The Condor and The Eagle - Film screening and fundraiser](https://www.fculittle.org/events/the-condor-the-eagle-movie-screening-at-littleton-high-school/){:target="_blank"}***.  ***PLEASE NOTE - This event has been postponed until a new venue can be found.*** Sponsored by the Environmental Action Group at First Church Unitarian, Littleton.  
 
-* **4-6p**, Acton:  ***Acton Democratic Caucus*** - Acton elects up to 14 delegates (7 men and 7 women) and 3 alternates to attend the 2020 Massachusetts Democratic Issues Convention in May.  *Any registered Democrat in Acton is eligible to become a delegate.*  Youth, minorities and people with disabilities who are not elected as delegates or alternates may apply to be add-on delegates.  All ballots will be written and secret.  This is a great way to get involved and learn about the process.
+* **4-6p**, Acton:  ***Acton Democratic Caucus*** - ***PLEASE NOTE - MDP is temporarily suspending all caucuses to follow the guidance of state and local health officials.*** Acton elects up to 14 delegates (7 men and 7 women) and 3 alternates to attend the 2020 Massachusetts Democratic Issues Convention in May.  *Any registered Democrat in Acton is eligible to become a delegate.*  Youth, minorities and people with disabilities who are not elected as delegates or alternates may apply to be add-on delegates.  All ballots will be written and secret.  This is a great way to get involved and learn about the process.
 
 ### Thursday, Mar 19
 
