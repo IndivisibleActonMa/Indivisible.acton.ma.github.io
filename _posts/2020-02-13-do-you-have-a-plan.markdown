@@ -4,7 +4,7 @@ date: 2020-02-13 07:33:00 -05:00
 is featured: true
 ---
 
----
+<span style="font-size:1.25em;">Remove Trump, Flip the Senate and State Houses, Hold the House!!!</span>
 
 <p id="demo">
 </p>
@@ -47,11 +47,10 @@ var x = setInterval(function() {
 ---  
 
 
-### Do you have a plan?    
+<span style="font-style:Brandon; font-size:1.5em;">Make YOUR election strategy [HERE: Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank"}</span>
 
-* Make a plan to WIN in 2020!  **Check out our *new* mini-website [Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank}!** 
 
-  2020 is a **MUST** win year.  If we take action, we win!!
+<span style="font-family:Papyrus; font-size:1em; color:red">2020 is a **MUST** win year.  If we take action, we win!!</span>. 
 
 
 
