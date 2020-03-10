@@ -10,7 +10,7 @@ layout: page
 
 ---
 
-<span style="font-style: Brandon; font-size:1.5em;">Remove Trump, Flip the Senate and State Houses, Hold the House!!!</span>
+<span style="font-size:1.5em;">Remove Trump, Flip the Senate and State Houses, Hold the House!!!</span>
 
 <p id="demo">
 </p>
@@ -51,11 +51,12 @@ var x = setInterval(function() {
 </script>
 
 ---
-<span style="font-style:Brandon; font-size:1.5em;">Make a plan to WIN in 2020!</span>  
+<span style="font-size:1.5em;">Make a plan to WIN in 2020!</span>  
 
 <span style="font-style:Brandon; font-size:1.5em;">Make YOUR election strategy [HERE - Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank"}</span>
 
  
+<span style="font-family:Papyrus; font-size:1em; color:red">2020 is a **MUST** win year.  If we take action, we win!!</span>
 
 
 ---
