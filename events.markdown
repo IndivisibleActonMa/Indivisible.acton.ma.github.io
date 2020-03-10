@@ -166,6 +166,7 @@ Join Sunrise Acton holding up signs and banners to advertise for the Earth Day S
 * **3-4:30p**, Acton: ***Earth Day Strike with #FridaysForFuture*** - 
 Join Sunrise Acton holding up signs and banners to advertise for the Earth Day Strike at Central St and Mass Ave intersection.  This is open to anyone in the community who would like to join and support us, just bring friends, family, and protest signs if you have any. 
 
+
 ---
 
 Click [HERE](http://www.indivisibleacton.org/take-action.html) for other ways to take action.
