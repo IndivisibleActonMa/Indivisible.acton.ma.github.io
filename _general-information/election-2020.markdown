@@ -48,6 +48,8 @@ Donate to your local Indivisible group!
 
 ### Helpful Links  
 
+* [Win 2020 Personal Monthly Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank"}  
+
 * [Swing Left](https://swingleft.org){:target="_blank"}
 
 * [Elect535](https://elect535.org){:target="_blank"}
