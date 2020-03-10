@@ -48,16 +48,9 @@ var x = setInterval(function() {
 
 2020 is a **MUST** win year.  If we take action, we win!!
 
+### [Check out our new mini-website for the Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank}!
+
 [Make a plan to WIN in 2020!](http://www.indivisibleacton.org/general-information/election-2020.html)  
-
-*Come see our 2020 Election Strategy presented at the Concord Activist Huddle*  
-
-***Please Note:  The Concord Activist Huddle has been cancelled.***
-
-* **When:**   Sunday, Mar 8, 2-4p  
-
-* **Where:**  Harvey Wheeler Community Center, 1276 Main St, Concord, MA 01742. 
-
 
 ---
 
