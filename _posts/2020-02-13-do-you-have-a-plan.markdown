@@ -48,9 +48,11 @@ var x = setInterval(function() {
 
 2020 is a **MUST** win year.  If we take action, we win!!
 
-### [Check out our new mini-website for the Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank}!
+### Make a plan to WIN in 2020!
 
-[Make a plan to WIN in 2020!](http://www.indivisibleacton.org/general-information/election-2020.html)  
+[Check out our new mini-website for the Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank}!  
+
+[](http://www.indivisibleacton.org/general-information/election-2020.html)  
 
 ---
 
