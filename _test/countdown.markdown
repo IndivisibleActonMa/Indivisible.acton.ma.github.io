@@ -52,7 +52,7 @@ var x = setInterval(function() {
 
 ---  
 
-<span style="font-style:Brandon; font-size 1.5em">**Do you have a plan?**</span>   
+<span style="font-style:Brandon; font-size:1.25em">**Do you have a plan?**</span>   
 
 
 
