@@ -50,7 +50,10 @@ var x = setInterval(function() {
 },500);
 </script>
 
----
+---  
+
+### Do you have a plan?    
+
 
 <span style="font-style:Brandon; font-size:1.5em;">Make YOUR election strategy [HERE: Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank"}</span>
 
