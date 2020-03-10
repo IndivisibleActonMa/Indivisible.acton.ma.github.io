@@ -166,6 +166,13 @@ Join Sunrise Acton holding up signs and banners to advertise for the Earth Day S
 * **3-4:30p**, Acton: ***Earth Day Strike with #FridaysForFuture*** - 
 Join Sunrise Acton holding up signs and banners to advertise for the Earth Day Strike at Central St and Mass Ave intersection.  This is open to anyone in the community who would like to join and support us, just bring friends, family, and protest signs if you have any. 
 
+### Saturday, Apr 4  
+
+* **1:30-3:30p**, Boston: ***Youth Leaders for Climate Justice*** - Come see local youth leaders give presentations on their plans for climate justice in their communities! More info can be found [here](https://www.massaudubon.org/get-outdoors/wildlife-sanctuaries/drumlin-farm/news-events/youth-leaders-for-climate-justice#:~:text=Saturday%2C%20April%204%2C%201%3A30%2D3%3A30%20pm&text=Drumlin%20Farm's%20Youth%20Leaders%20for,help%20design%20a%20better%20future!&text=Projects%20are%20lead%20by%20local,Environmental%20groups%20and%20green%20teams){:target="_blank"}. District Hall, 75 Northern Ave, Boston, MA 02210
+
+### Tuesday, Apr 14  
+
+* **11a-2p**, Boxborough:  ***Sustainability Fair*** - ABRHS Seniors are hosting a sustainability fair for their class, Senior Project. Different groups and organizations will be tabling and presenting on local sustainability and environmental initiatives. Sunrise Acon will be presenting and tabling at this event in addition to other organizations. We welcome everyone to come to this event to learn more about sustainability, climate organizations, and how you can help with the movement. Sargent Memorial Library, Boxborough, MA  
 
 ---
 
