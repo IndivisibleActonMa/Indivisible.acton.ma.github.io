@@ -134,6 +134,12 @@ Hosted by Marlborough and Hudson Activists.
 
 * **5:30-8p**, Boston:  ***King Boston Teach-In*** - Join Marie St. Fleur, King Boston & Sheena Collier, the Collier Connection in a dynamic conversation about a living memorial honoring the legacy of Dr. Martin Luther King Jr and Loretta Scott King. Dudley Cafe, 15 Warren St, Boston.  [Register HERE](https://www.eventbrite.com/e/king-boston-teach-in-tickets-93571786733){:target="_blank"}.
 
+
+### Friday, Mar 20  
+
+* **3-4:30p**, Acton: ***Earth Day Strike with #FridaysForFuture*** - 
+Join Sunrise Acton holding up signs and banners to advertise for the Earth Day Strike at Kelly's Corner.  This is open to anyone in the community who would like to join and support us, just bring friends, family, and protest signs if you have any. Meet up in the Kmart parking lot.  
+
 ### Saturday, Mar 21
 
 * **1-2:30p**, Acton: ***Acton Candidates Forum*** - Hosted by the [League of Women Voters - Acton-Area](http://www.lwv-aa.org){:target="_blank"}.  All candidates on the Mar 31 Acton ballot have been invited include the winners of the 37th Middlesex Special Primary.  Click [HERE](https://drive.google.com/file/d/1SwIvYqpnaZOifAV320swNjdTu-8izhQB/view){:target="_blank"} for more info.  Cafeteria at the Luther Conant School, 80 Taylor Rd, Acton.
@@ -142,6 +148,11 @@ Hosted by Marlborough and Hudson Activists.
 
 * **7:30p**, Wayland:  ***Forum on Massachusetts Climate Legislation*** sponsored by [First Parish in Wayland](https://www.uuwayland.org){:target="_blank"} and [Mass Audobon](https://www.massaudubon.org){:target="_blank"}.  [Click HERE](https://www.facebook.com/events/122126589049575/){:target="_blank"} for event details.  First Parish in Wayland, 50 Cochituate Rd, Wayland.
 
+### Friday, Mar 27
+
+* **3-4:30p**, Acton: ***Earth Day Strike with #FridaysForFuture*** - 
+Join Sunrise Acton holding up signs and banners to advertise for the Earth Day Strike at Acton Memorial Library intersection.  This is open to anyone in the community who would like to join and support us, just bring friends, family, and protest signs if you have any. 
+
 ### Tuesday, Mar 31
 
 * Special Election for 37th Middlesex District Representative (Jen Benson's seat).
@@ -149,6 +160,11 @@ Hosted by Marlborough and Hudson Activists.
 ---
 
 ## Save the Date
+
+### Friday, Apr 3  
+
+* **3-4:30p**, Acton: ***Earth Day Strike with #FridaysForFuture*** - 
+Join Sunrise Acton holding up signs and banners to advertise for the Earth Day Strike at Central St and Mass Ave intersection.  This is open to anyone in the community who would like to join and support us, just bring friends, family, and protest signs if you have any. 
 
 ---
 
