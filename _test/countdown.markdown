@@ -10,7 +10,7 @@ layout: page
 
 ---
 
-### *Remove Trump and Flip the Senate!!!*
+<span style="font-family:Papyrus; font-size:2em; color:Navy">*Remove Trump, Flip the Senate and State Houses, Hold the House!!!*</span>
 
 <p id="demo">
 </p>
