@@ -116,13 +116,12 @@ Hosted by Marlborough and Hudson Activists.
 
 * **2:30p**, Acton: ***Author Talk with Tina Cassidy*** - Celebrate the Women’s Suffrage Centennial at the Acton Memorial Library, 48 Main St, Acton.  [Click HERE](https://www.actonmemoriallibrary.org/events-programs/author-talk){:target="_blank"} for more info.
 
+* **4-5:30p**, Maynard:  ***Learn about Together For 2020*** - Come learn how Massachusetts can help win key states by turning out Democratic voters with Michael and Scott Ansara at Longwood Software, 107 Main St, Maynard.  Click [HERE](http://www.indivisibleacton.org/uploads/Togetherfor2020.jpg){:target="_blank"} for more info.  
+
 * **6-8p**, Concord:  ***[Women’s Suffrage Centennial Celebration](https://firstparish.org/wp/events/event/suffrage-centennial-celebration/){:target="_blank"}*** - Celebrate the ratification of The 19th Amendment which gave women in the United States the right to vote, the founding of The League of Women Voters & on-going work to preserve and strengthen our democracy.  First Parish in Concord, 20 Lexington Rd, Concord.  Event is free.  Reservations required.  **Email**: pekindc@comcast.net by Mar 6.
 
   Acton-Area members interested in pre-ordering a sash @$8 should contact Janet Adachi (jkajeg@msn.com) before March 2.  The sashes, in purple, gold, white will be available for purchase on 3/14 if not sold out before then.  Attendees are encouraged to wear yellow roses, which symbolized support for women’s suffrage.  Carlisle members of LWVCC will be fashioning/selling roses of silk fabric.
 
-### Saturday, Mar 14  
-
-* **4-5:30p**, Maynard:  ***Learn about Together For 2020*** - Come learn how Massachusetts can help win key states by turning out Democratic voters with Michael and Scott Ansara at Longwood Software, 107 Main St, Maynard.  Click [HERE](http://www.indivisibleacton.org/uploads/Togetherfor2020.jpg){:target="_blank"} for more info.  
 
 ### Sunday, Mar 15
 
