@@ -57,7 +57,7 @@ document.getElementById("demo").innerHTML = "Let's Get Out and VOTE!!!";
 
 **Win 2020 Personal Monthly Election Strategy**
 
-[Click HERE to check out our new mini-website for the Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank"}!
+Click [HERE to check out our new mini-website for the Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank"}!
 
 ---
 
