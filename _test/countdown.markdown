@@ -60,4 +60,8 @@ Embedding countdown here:
 
 *Please check the [calendar](http://www.indivisibleacton.org/calendar.html){:target="_blank"} for **NEW Winning Wednesday** postcard events!*
 
+---
+
+<span style="font-family:Papyrus; font-size:4em; font-color:red">LOVE!</span>
+
 ### End of test
