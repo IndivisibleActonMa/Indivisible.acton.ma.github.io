@@ -1,5 +1,5 @@
 ---
-title: Do You Have A Plan?
+title: Win in 2020!
 date: 2020-02-13 07:33:00 -05:00
 is featured: true
 ---
@@ -47,7 +47,9 @@ var x = setInterval(function() {
 ---  
 
 
-### Make a plan to WIN in 2020!
+### Do you have a plan?  
+
+Make a plan to WIN in 2020!  
 
 * Check out our *new* mini-website [Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank}!  
 
