@@ -62,8 +62,10 @@ Embedding countdown here:
 
 ---
 
-<span style="font-family:Papyrus; font-size:4em; color:red">LOVE!</span>
+Red 4em: <span style="font-family:Papyrus; font-size:4em; color:red">LOVE!</span>
 
-<span style="font-family:Papyrus; font-size:2em; color:green">LOVE!</span>
+Green 1em: <span style="font-family:Papyrus; font-size:1em; color:green">LOVE!</span>
+
+green 87 2em: <span style="font-family:Papyrus; font-size:2em; color:87">LOVE!</span>
 
 ### End of test
