@@ -1,6 +1,7 @@
 ---
 title: March  General Meeting
 date: 2020-03-04 22:30:00 -05:00
+published: false
 is featured: true
 event-start-date: 2020-03-09 18:30:00 -04:00
 event-end-date: 2020-03-09 20:45:00 -04:00
