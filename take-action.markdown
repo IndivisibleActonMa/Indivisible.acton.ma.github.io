@@ -55,11 +55,9 @@ document.getElementById("demo").innerHTML = "Let's Get Out and VOTE!!!";
 
 ["*Be a fanatical optimist. Make a plan. Take action.*"](https://www.wbur.org/cognoscenti/2020/02/05/trump-impeachment-acquittal-steve-almond){:target="_blank"}  Steve Almond  
 
-*Win 2020 Personal Monthly Election Strategy*
+**Win 2020 Personal Monthly Election Strategy**
 
 [Click HERE to check out our new mini-website for the Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank"}!
-
-Click [HERE](http://www.indivisibleacton.org/general-information/election-2020.html){:target="_blank"} for ideas to make *YOUR* election 2020 plan!
 
 ---
 
