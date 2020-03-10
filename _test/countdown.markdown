@@ -68,4 +68,7 @@ Green 1em: <span style="font-family:Papyrus; font-size:1em; color:green">LOVE!</
 
 lime 87 2em: <span style="font-family:Papyrus; font-size:2em; color:lime">LOVE!</span>
 
+Navy 2em:
+<span style="font-family:Papyrus; font-size:2em; color:Navy">Make a plan to WIN in 2020!  **Check out our *new* mini-website [Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank}!**</span>
+
 ### End of test
