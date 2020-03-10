@@ -55,7 +55,9 @@ var x = setInterval(function() {
 
 Check out our *new* mini-website:  
 
-**[Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank}**</span>  
+**[Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank}**
+
+</span>  
 
 
 ---
