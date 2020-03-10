@@ -54,14 +54,23 @@ var x = setInterval(function() {
 
 * **March 31, 2020 - State Election**
 
-* [Early Voting Dates and Locations](https://www.sec.state.ma.us/EarlyVotingWeb/EarlyVotingSearch.aspx){:target="_blank"}    
+---
 
-*[Make sure you are registered to vote](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}!!  Deadline to register is Feb 12.*  
+Make sure you are not an [inactive voter](https://www.sec.state.ma.us/ele/eleinactivevoters/inactivevotersidx.htm){:target="_blank"}.  
+
+[Click HERE to check your registration status](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}.  
+
+Click [HERE](https://www.sec.state.ma.us/ele/eleidx.htm){:target="_blank"} for more voter information.
+
+[Make sure you are registered to vote](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}!!  Deadline to register is Feb 12.*  
 
 ---
 
 ### Special State Election for 37th Middlesex District
 
+We were very fortunate to have two great Democratic candidates - Dina Samfield and Dan Sena, running for State Representative of the 37th Middlesex. Thank you both for running. Congratulations to Dan Sena!
+
+The 37th Middlesex Special Election is Tuesday March 31, 2020. Make a plan about when you are going to vote!!
 Click [HERE](https://www.sec.state.ma.us/ele/elespeif/37middlesexcal.htm){:target="_blank"} for more info
 
 [Letter from Rep Benson to her constituents](https://jenbenson.org/2019/12/19/a-letter-to-my-constituents/){:target="_blank"} 
