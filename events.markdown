@@ -120,7 +120,7 @@ Hosted by Marlborough and Hudson Activists.
 
 * **6-8p**, Concord:  ***[Women’s Suffrage Centennial Celebration](https://firstparish.org/wp/events/event/suffrage-centennial-celebration/){:target="_blank"}*** - ***PLEASE NOTE this event has been POSTPONED as a precautionary measure until more is known about the nature and transmission characteristics of the Coronavirus Disease 2019 (COVID-19).***     
 
- Celebrate the ratification of The 19th Amendment which gave women in the United States the right to vote, the founding of The League of Women Voters & on-going work to preserve and strengthen our democracy.  First Parish in Concord, 20 Lexington Rd, Concord.  Event is free.  Reservations required.  **Email**: pekindc@comcast.net by Mar 6.
+ Celebrate the ratification of The 19th Amendment which gave women in the United States the right to vote, the founding of The League of Women Voters & on-going work to preserve and strengthen our democracy.  First Parish in Concord, 20 Lexington Rd, Concord.  Event is free.  Reservations required.  **Email**: pekindc@comcast.net by Mar 6.  
 
   Acton-Area members interested in pre-ordering a sash @$8 should contact Janet Adachi (jkajeg@msn.com) before March 2.  The sashes, in purple, gold, white will be available for purchase on 3/14 if not sold out before then.  Attendees are encouraged to wear yellow roses, which symbolized support for women’s suffrage.  Carlisle members of LWVCC will be fashioning/selling roses of silk fabric.
 
