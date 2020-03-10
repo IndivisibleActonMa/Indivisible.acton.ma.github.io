@@ -57,13 +57,4 @@ var x = setInterval(function() {
 
  
 ---
----
-
-
-
-### Special Election March 31, Tuesday
-
-We were very fortunate to have two great Democratic candidates - Dina Samfield and Dan Sena, running for State Representative of the 37th Middlesex. Thank you both for running.  Congratulations to Dan Sena!  
-
-*The 37th Middlesex Special Election is Tuesday March 31, 2020.*  **Make a plan** about when you are going to vote!!
 
