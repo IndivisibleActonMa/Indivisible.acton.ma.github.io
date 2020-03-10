@@ -51,7 +51,7 @@ var x = setInterval(function() {
 </script>
 
 ---
-<span style="font-family:Brandon; font-size:2em;">Make a plan to WIN in 2020!  Check out our *new* mini-website **[Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank}!**</span>
+<span style="font-style:Brandon; font-size:2em;">Make a plan to WIN in 2020!  Check out our *new* mini-website **[Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank}!**</span>
 ---
 
 Embedding countdown here:
