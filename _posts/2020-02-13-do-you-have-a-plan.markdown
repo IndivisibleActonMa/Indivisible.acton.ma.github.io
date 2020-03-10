@@ -50,21 +50,16 @@ var x = setInterval(function() {
 
 ### Make a plan to WIN in 2020!
 
-Check out our *new* mini-website [Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank}! 
+* Check out our *new* mini-website [Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank}! 
+
 
 
 
  
-
+---
 ---
 
-Make sure you are not an [inactive voter](https://www.sec.state.ma.us/ele/eleinactivevoters/inactivevotersidx.htm){:target="_blank"}.  
 
-[Click HERE to check your registration status](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}.  
-
-Click [HERE](https://www.sec.state.ma.us/ele/eleidx.htm){:target="_blank"} for more voter information.
-
----
 
 ### Special Election March 31, Tuesday
 
