@@ -64,4 +64,6 @@ Embedding countdown here:
 
 <span style="font-family:Papyrus; font-size:4em; color:red">LOVE!</span>
 
+<span style="font-family:Papyrus; font-size:2em; color:green">LOVE!</span>
+
 ### End of test
