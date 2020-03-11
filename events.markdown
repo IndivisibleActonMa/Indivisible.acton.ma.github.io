@@ -7,6 +7,11 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
+**PLEASE NOTE - ALL Indivisible Acton-Area events are cancelled until further notice. For all other events, please contact the event coordinator.**
+
+—— 
+
+
 * Click **[HERE](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal){:target="_blank"}** to see events published on Indivisible Acton's Public Facebook page.
 
 
