@@ -7,7 +7,8 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
-**PLEASE NOTE - ALL Indivisible Acton-Area events are cancelled until further notice. For all other events, please contact the event coordinator.**
+<span style="font-family:Papyrus; color:red;">**PLEASE NOTE - In light of the declaration of the [State of Emergency to respond to COVID-19](https://www.mass.gov/executive-orders/no-591-declaration-of-a-state-of-emergency-to-respond-to-covid-19){:target="_blank"} *ALL* Indivisible Acton-Area events are cancelled until further notice. For all other events, please contact the event coordinator.**</span> 
+
 
 —— 
 
