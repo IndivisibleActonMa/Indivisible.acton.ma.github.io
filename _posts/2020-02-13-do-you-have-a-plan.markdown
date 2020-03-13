@@ -47,7 +47,7 @@ var x = setInterval(function() {
 ---  
 
 
-<span style="font-style:Brandon; font-size:1.5em;">Make YOUR election strategy [HERE: Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank"}</span>
+<span style="font-style:Brandon; font-size:1.5em;">Go [HERE](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank"} to see [Indivisible Acton-Area's Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank"} and make YOUR plan!</span>
 
 
 <span style="font-family:Papyrus; font-size:1em; color:red">2020 is a **MUST** win year.  If we take action, we win!!</span>. 
