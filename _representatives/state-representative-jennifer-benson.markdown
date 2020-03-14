@@ -1,7 +1,6 @@
 ---
 title: 37th State Representative [vacant]
 date: 2017-06-02 20:46:00 -04:00
-published: false
 phone-numbers:
   Boston Office: 
   Lunenburg Office: 
