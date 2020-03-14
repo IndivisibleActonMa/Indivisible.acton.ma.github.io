@@ -1,11 +1,10 @@
 ---
-title: State Representative Jennifer Benson
+title: 37th State Representative [vacant]
 date: 2017-06-02 20:46:00 -04:00
 published: false
 phone-numbers:
-  Boston Office: "(617) 722-2140"
-  Lunenburg Office: "(978) 582-4146 ext.4"
-website: https://malegislature.gov/Legislators/Profile/JEB1
+  Boston Office: 
+  Lunenburg Office: 
 ---
 
-![jenbenson.gif](/uploads/jenbenson.gif)
+Special election Tuesday, March 31, 2020.
