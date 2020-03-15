@@ -96,7 +96,7 @@ Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTe
 
 ### Friday, Mar 20  
 
-* **3-4:30p**, Acton: ***Earth Day Strike with #FridaysForFuture*** - 
+* **3-4:30p**, Acton: ***ON HOLD - Earth Day Strike with #FridaysForFuture*** - 
 PLEASE READ❗️As of now, all mobilization efforts for the Earth Day strike are on hold. Please stay tuned for updates as we troubleshoot and look to plan accessible and safe actions. Until then, practice social distancing and stay safe everyone.  
 
 ### Saturday, Mar 21
@@ -109,7 +109,7 @@ PLEASE READ❗️As of now, all mobilization efforts for the Earth Day strike ar
 
 ### Friday, Mar 27
 
-* **3-4:30p**, Acton: ***Earth Day Strike with #FridaysForFuture*** - 
+* **3-4:30p**, Acton: ***ON HOLD - Earth Day Strike with #FridaysForFuture*** - 
 PLEASE READ❗️As of now, all mobilization efforts for the Earth Day strike are on hold. Please stay tuned for updates as we troubleshoot and look to plan accessible and safe actions. Until then, practice social distancing and stay safe everyone.  
 
 ### Tuesday, Mar 31
@@ -122,7 +122,7 @@ PLEASE READ❗️As of now, all mobilization efforts for the Earth Day strike ar
 
 ### Friday, Apr 3  
 
-* **3-4:30p**, Acton: ***Earth Day Strike with #FridaysForFuture*** - 
+* **3-4:30p**, Acton: ***ON HOLD - Earth Day Strike with #FridaysForFuture*** - 
 PLEASE READ❗️As of now, all mobilization efforts for the Earth Day strike are on hold. Please stay tuned for updates as we troubleshoot and look to plan accessible and safe actions. Until then, practice social distancing and stay safe everyone. 
 
 ### Saturday, Apr 4  
