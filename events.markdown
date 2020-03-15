@@ -91,7 +91,7 @@ Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTe
 
 ### Thursday, Mar 19
 
-* **5:30-8p**, Boston:  ***King Boston Teach-In*** - Join Marie St. Fleur, King Boston & Sheena Collier, the Collier Connection in a dynamic conversation about a living memorial honoring the legacy of Dr. Martin Luther King Jr and Loretta Scott King. Dudley Cafe, 15 Warren St, Boston.  [Register HERE](https://www.eventbrite.com/e/king-boston-teach-in-tickets-93571786733){:target="_blank"}.
+* **5:30-8p**, Boston:  ***POSTPONED - King Boston Teach-In*** - Join Marie St. Fleur, King Boston & Sheena Collier, the Collier Connection in a dynamic conversation about a living memorial honoring the legacy of Dr. Martin Luther King Jr and Loretta Scott King. Dudley Cafe, 15 Warren St, Boston.  Get more info [HERE](https://www.eventbrite.com/o/king-boston-29543691261){:target="_blank"}.  
 
 
 ### Friday, Mar 20  
