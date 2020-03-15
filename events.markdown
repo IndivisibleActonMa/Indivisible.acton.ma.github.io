@@ -127,7 +127,7 @@ PLEASE READ❗️As of now, all mobilization efforts for the Earth Day strike ar
 
 ### Saturday, Apr 4  
 
-* **1:30-3:30p**, Boston: ***Youth Leaders for Climate Justice*** - Come see local youth leaders give presentations on their plans for climate justice in their communities! More info can be found [here](https://www.massaudubon.org/get-outdoors/wildlife-sanctuaries/drumlin-farm/news-events/youth-leaders-for-climate-justice#:~:text=Saturday%2C%20April%204%2C%201%3A30%2D3%3A30%20pm&text=Drumlin%20Farm's%20Youth%20Leaders%20for,help%20design%20a%20better%20future!&text=Projects%20are%20lead%20by%20local,Environmental%20groups%20and%20green%20teams){:target="_blank"}. District Hall, 75 Northern Ave, Boston, MA 02210
+* **1:30-3:30p**, Boston: ***Youth Leaders for Climate Justice*** - Come see local youth leaders give presentations on their plans for climate justice in their communities! More info can be found [here](https://www.massaudubon.org/get-outdoors/wildlife-sanctuaries/drumlin-farm/news-events/youth-leaders-for-climate-justice#:~:text=Saturday%2C%20April%204%2C%201%3A30%2D3%3A30%20pm&text=Drumlin%20Farm's%20Youth%20Leaders%20for,help%20design%20a%20better%20future!&text=Projects%20are%20lead%20by%20local,Environmental%20groups%20and%20green%20teams){:target="_blank"}. District Hall, 75 Northern Ave, Boston, MA 02210  **Please check [HERE](https://www.massaudubon.org/get-outdoors/wildlife-sanctuaries/sanctuaries-alerts/all-mass-audubon-buildings-are-closed-all-programs-cancelled-from-march-14-31){:target="_blank"} for status of events.**   
 
 ### Tuesday, Apr 14  
 
