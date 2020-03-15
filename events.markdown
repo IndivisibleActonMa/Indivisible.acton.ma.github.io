@@ -97,7 +97,7 @@ Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTe
 ### Friday, Mar 20  
 
 * **3-4:30p**, Acton: ***Earth Day Strike with #FridaysForFuture*** - 
-Join Sunrise Acton holding up signs and banners to advertise for the Earth Day Strike at Kelly's Corner.  This is open to anyone in the community who would like to join and support us, just bring friends, family, and protest signs if you have any. Meet up in the Kmart parking lot.  
+PLEASE READ❗️As of now, all mobilization efforts for the Earth Day strike are on hold. Please stay tuned for updates as we troubleshoot and look to plan accessible and safe actions. Until then, practice social distancing and stay safe everyone.  
 
 ### Saturday, Mar 21
 
@@ -110,7 +110,7 @@ Join Sunrise Acton holding up signs and banners to advertise for the Earth Day S
 ### Friday, Mar 27
 
 * **3-4:30p**, Acton: ***Earth Day Strike with #FridaysForFuture*** - 
-Join Sunrise Acton holding up signs and banners to advertise for the Earth Day Strike at Acton Memorial Library intersection.  This is open to anyone in the community who would like to join and support us, just bring friends, family, and protest signs if you have any. 
+PLEASE READ❗️As of now, all mobilization efforts for the Earth Day strike are on hold. Please stay tuned for updates as we troubleshoot and look to plan accessible and safe actions. Until then, practice social distancing and stay safe everyone.  
 
 ### Tuesday, Mar 31
 
@@ -123,7 +123,7 @@ Join Sunrise Acton holding up signs and banners to advertise for the Earth Day S
 ### Friday, Apr 3  
 
 * **3-4:30p**, Acton: ***Earth Day Strike with #FridaysForFuture*** - 
-Join Sunrise Acton holding up signs and banners to advertise for the Earth Day Strike at Central St and Mass Ave intersection.  This is open to anyone in the community who would like to join and support us, just bring friends, family, and protest signs if you have any. 
+PLEASE READ❗️As of now, all mobilization efforts for the Earth Day strike are on hold. Please stay tuned for updates as we troubleshoot and look to plan accessible and safe actions. Until then, practice social distancing and stay safe everyone. 
 
 ### Saturday, Apr 4  
 
