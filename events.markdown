@@ -105,7 +105,7 @@ PLEASE READ❗️As of now, all mobilization efforts for the Earth Day strike ar
 
 ### Tuesday, Mar 24
 
-* **7:30p**, Wayland:  ***Forum on Massachusetts Climate Legislation*** sponsored by [First Parish in Wayland](https://www.uuwayland.org){:target="_blank"} and [Mass Audobon](https://www.massaudubon.org){:target="_blank"}.  [Click HERE](https://www.facebook.com/events/122126589049575/){:target="_blank"} for event details.  First Parish in Wayland, 50 Cochituate Rd, Wayland.
+* **7:30p**, Wayland:  ***Forum on Massachusetts Climate Legislation*** sponsored by [First Parish in Wayland](https://www.uuwayland.org){:target="_blank"} and [Mass Audobon](https://www.massaudubon.org){:target="_blank"}.  **PLEASE NOTE:  Organizers are actively discussion options for moving this event Online. Details to come.**  [Click HERE](https://www.facebook.com/events/122126589049575/){:target="_blank"} for event details.  First Parish in Wayland, 50 Cochituate Rd, Wayland.
 
 ### Friday, Mar 27
 
