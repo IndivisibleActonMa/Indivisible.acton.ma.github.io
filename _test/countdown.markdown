@@ -81,3 +81,58 @@ Navy 2em:
 <span style="font-family:Papyrus; font-size:2em; color:Navy">Make a plan to WIN in 2020!  **Check out our *new* mini-website [Win 2020 Personal Monthly Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank}!**</span>
 
 ### End of test
+
+### Saved from Events
+
+### Super Saturdays in Acton!
+
+Join us at Bagels Plus, 93 Great Rd, Acton where you for postcards, conversations and you can get some great bagels!
+
+* **Mar 7, 10a-12p**
+
+* **Mar 21, 10a-12p**
+
+### Saving Democracy Saturdays in Harvard
+
+Join us at The Harvard General Store, 1 Still River Rd, Harvard for postcards and conversations!
+
+* **Feb 29, 2-4p**, *It's leap day, not sleep day!*
+
+* **Mar 14, 2-4p**
+
+* **Mar 28, 2-4p**
+
+---
+
+### Bluewave Tuesdays in Littleton
+
+Join us for multiple campaigns, postcards and more in the Couper Room at the Reuben Hoar Public Library, 41 Shattuck St, Littleton
+
+* **[Mar 10, 6:30-8:30p](http://www.indivisibleacton.org/uploads/Textingjpeg.jpg){:target="_blank"}** - Texting Training, with a postcard corner. Come learn how to use your computer to text voters!  Please bring your laptop if interested in texting training.
+
+* **Mar 24, 7-p** Postcarding and more!
+
+---
+
+### Winning Wednesdays
+
+* **Feb 26, 7-9p** - [Amory’s Tomb Brewing](https://www.amorystomb.com){:target="_blank"}, 76 Main St, Maynard
+
+* **Mar 4, 2-4p** - Dunkin’, 1641 Sudbury Rd (Rt 117), Concord
+
+* **Mar 11, 7-9p** - [Amory’s Tomb Brewing](https://www.amorystomb.com){:target="_blank"}, 76 Main St, Maynard
+
+* **Mar 18, 2-4p** - Dunkin’, 1641 Sudbury Rd (Rt 117), Concord
+
+---
+
+### Thirsty Thursdays
+
+Hosted by Marlborough and Hudson Activists.
+
+* **Mar 5, 7-9p** - [Ground Effect Brewing Company](http://groundeffectbrewing.com){:target="_blank"}, 312 Main Street Hudson, MA.
+
+* **Mar 19, 7-9p** - [Ground Effect Brewing Company](http://groundeffectbrewing.com){:target="_blank"}, 312 Main Street Hudson, MA.
+
+---
+
