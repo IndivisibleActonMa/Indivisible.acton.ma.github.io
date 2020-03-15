@@ -30,7 +30,7 @@ Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTe
 
 ***In-person meet ups are temporarily suspended, but you can write postcards from your kitchen table!***  *Check out some ideas on the [Take Action](http://www.indivisibleacton.org/take-action.html){:target="_blank"} page or click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTelUwJXx6pW3oI/edit?usp=sharing){:target="_blank"}.*  
 
-*And **PLEASE STAY IN TOUCH!** - send us email at info@indivisibleacton.org with our activism ideas and let us know what you're up to.  Post to the Facebook group with your ideas and activities.  We are ALL in this together!!*
+*And **PLEASE STAY IN TOUCH!** - send us email at info@indivisibleacton.org with your activism ideas and let us know what you're up to.  Post to the Facebook group with your ideas and activities.  We are ALL in this together!!*
 
 ***[Click HERE for more info about our meeting guidelines with regards to COVID-19](https://docs.google.com/document/d/1DSwMiE1I9syvJv1nP2i_8ihsBGCG6TDnPMcMSNtrry4/view){:target="_blank"}.***
 
