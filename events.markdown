@@ -28,61 +28,11 @@ Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTe
 
 ## Postcard and More Meet-ups
 
+***In-person meet ups are temporarily suspended, but you can write postcards from your kitchen table!  Check out our ideas on the [Take Action](http://www.indivisibleacton.org/take-action.html){:target="_blank"} on our website.*** 
+
 ***[Click HERE for more info about our meeting guidelines with regards to COVID-19](https://docs.google.com/document/d/1DSwMiE1I9syvJv1nP2i_8ihsBGCG6TDnPMcMSNtrry4/view){:target="_blank"}.***
 
 ***Wanted:*** *[Volunteers to help co-host our regular postcarding meetups](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3OzOec4BoEzGRjU/edit?usp=sharing){:target="_blank"} - the 1st and 3rd Saturdays, 10a-12p at Bagels Plus in Acton, and the 2nd and 4th Tuesdays, 6:30-8:30p at the Littleton Library.  Indivisible Acton-Area provide all the supplies - postcards, stamps, scripts, addresses.  Contact jeanine@IndivisibleActon.org for more info.*
-
----
-
-### Super Saturdays in Acton!
-
-Join us at Bagels Plus, 93 Great Rd, Acton where you for postcards, conversations and you can get some great bagels!
-
-* **Mar 7, 10a-12p**
-
-* **Mar 21, 10a-12p**
-
-### Saving Democracy Saturdays in Harvard
-
-Join us at The Harvard General Store, 1 Still River Rd, Harvard for postcards and conversations!
-
-* **Feb 29, 2-4p**, *It's leap day, not sleep day!*
-
-* **Mar 14, 2-4p**
-
-* **Mar 28, 2-4p**
-
----
-
-### Bluewave Tuesdays in Littleton
-
-Join us for multiple campaigns, postcards and more in the Couper Room at the Reuben Hoar Public Library, 41 Shattuck St, Littleton
-
-* **[Mar 10, 6:30-8:30p](http://www.indivisibleacton.org/uploads/Textingjpeg.jpg){:target="_blank"}** - Texting Training, with a postcard corner. Come learn how to use your computer to text voters!  Please bring your laptop if interested in texting training.
-
-* **Mar 24, 7-p** Postcarding and more!
-
----
-
-### Winning Wednesdays
-
-* **Feb 26, 7-9p** - [Amory’s Tomb Brewing](https://www.amorystomb.com){:target="_blank"}, 76 Main St, Maynard
-
-* **Mar 4, 2-4p** - Dunkin’, 1641 Sudbury Rd (Rt 117), Concord
-
-* **Mar 11, 7-9p** - [Amory’s Tomb Brewing](https://www.amorystomb.com){:target="_blank"}, 76 Main St, Maynard
-
-* **Mar 18, 2-4p** - Dunkin’, 1641 Sudbury Rd (Rt 117), Concord
-
----
-
-### Thirsty Thursdays
-
-Hosted by Marlborough and Hudson Activists.
-
-* **Mar 5, 7-9p** - [Ground Effect Brewing Company](http://groundeffectbrewing.com){:target="_blank"}, 312 Main Street Hudson, MA.
-
-* **Mar 19, 7-9p** - [Ground Effect Brewing Company](http://groundeffectbrewing.com){:target="_blank"}, 312 Main Street Hudson, MA.
 
 ---
 
