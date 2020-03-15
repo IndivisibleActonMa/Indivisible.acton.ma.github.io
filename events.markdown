@@ -28,7 +28,7 @@ Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTe
 
 ## Postcard and More Meet-ups
 
-***In-person meet ups are temporarily suspended, but you can write postcards from your kitchen table!  Check out our ideas on the [Take Action](http://www.indivisibleacton.org/take-action.html){:target="_blank"} on our website.*** 
+***In-person meet ups are temporarily suspended, but you can write postcards from your kitchen table!  Check out some ideas on the [Take Action](http://www.indivisibleacton.org/take-action.html){:target="_blank"} page or click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTelUwJXx6pW3oI/view).***  
 
 ***[Click HERE for more info about our meeting guidelines with regards to COVID-19](https://docs.google.com/document/d/1DSwMiE1I9syvJv1nP2i_8ihsBGCG6TDnPMcMSNtrry4/view){:target="_blank"}.***
 
