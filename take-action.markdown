@@ -83,6 +83,23 @@ Click [HERE](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3Oz
 
 ---
 
+### Ways to Resist from Home
+
+* [Sign up to text](https://indivisible.org/payback-project-p2p){:target="_blank} through Indivisible's [PayBack Project](https://www.paybackproject.org){:target="_blank"}.
+
+* Want to text green? Join [Sierra Club's new Texting Team](https://act.sierraclub.org/actions/National?actionId=AR0235958){:target="_blank"}! Primary season is in full swing, the Earth Day Climate Strike is fast approaching, and the Sierra Club has set a goal of texting millions of people to get out the vote and come strike! Join the Sierra Club’s Texting Team and fight climate change from home!  
+ H/T Chop Wood Carry Water  
+
+* Sign up to text with [Open Progress](https://www.openprogress.com){:target="_blank"}. This weekend they are texting voters in PA and Indiana with the organization VoterProChoice.  
+
+* If we're going to be avoiding public gatherings and/or self-quarantined we may as well stay busy. Please, sign up to write letters to low-propensity voters with [Vote Forward](https://votefwd.org){:target="_blank"}. This is a great way to resist: it's so easy and studies have shown these letters to be uniquely effective. All you need is a printer, a pen, and a stamp!  
+
+* Sign up for a postcard campaign with [Postcards to Voters](https://postcardstovoters.org){:target="_blank"}.  
+
+* Join the [Environmental Voter Project](https://www.environmentalvoter.org){:target="_blank"} (EVP) for a [volunteer training webinar](https://www.environmentalvoter.org/events){:target="_blank}. During the webinar, volunteers will be trained in texting and calling environmental voters using EVP’s unique messaging. 
+
+
+---
 ### Puerto Rico
 
 Puerto Rico has been hit with a devastating series of earthquakes and at least 120 aftershocks. As a result, almost the entire island has lost power. Meanwhile, the HUD continues to withhold hurricane relief funds from Puerto Rico (a territory of the United States), ignoring a statutory deadline to issue a Federal Register notice permitting Puerto Rico to use $8.2 billion in disaster relief aid appropriated by Congress.  And as Rep. Darren Soto pointed out in a press release, “*Puerto Ricans continue to suffer from major hurricanes that made landfall more than two years ago while HUD illegally withholds this aid.*”
