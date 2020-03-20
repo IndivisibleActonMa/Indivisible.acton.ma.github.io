@@ -85,6 +85,8 @@ Click [HERE](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3Oz
 
 ### Ways to Resist from Home
 
+* [Everything you ever wanted to know about post carding from home and more!](https://docs.google.com/document/d/1756GTNx8WnkRc2m9HyiEtQ7v8uCmDqVRFngE8GMj-lA/edit?usp=sharing){:target="_blank"}  
+
 * [Sign up to text](https://indivisible.org/payback-project-p2p){:target="_blank} through Indivisible's [PayBack Project](https://www.paybackproject.org){:target="_blank"}.
 
 * Want to text green? Join [Sierra Club's new Texting Team](https://act.sierraclub.org/actions/National?actionId=AR0235958){:target="_blank"}! Primary season is in full swing, the Earth Day Climate Strike is fast approaching, and the Sierra Club has set a goal of texting millions of people to get out the vote and come strike! Join the Sierra Club’s Texting Team and fight climate change from home!  
