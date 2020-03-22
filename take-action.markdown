@@ -100,7 +100,9 @@ Click [HERE](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3Oz
 
 * Join the [Environmental Voter Project](https://www.environmentalvoter.org){:target="_blank"} (EVP) for a [volunteer training webinar](https://www.environmentalvoter.org/events){:target="_blank}. During the webinar, volunteers will be trained in texting and calling environmental voters using EVP’s unique messaging. 
 
+* Join the volunteer movement to add the 28th amendment to the U.S. Constitution to END corruption and restore our representative democracy. Click [HERE](http://www.wethepeoplemass.org){:target="_blank"} to [Support the We the People Amendment](http://www.wethepeoplemass.org){:target="_blank"}.  
 
+ 
 ---
 ### Puerto Rico
 
