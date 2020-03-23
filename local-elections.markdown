@@ -56,6 +56,22 @@ var x = setInterval(function() {
 
 ---
 
+***Absentee voting** is available to any Acton voter, and provides an easy way to keep social distance between you and election workers and other voters.*
+
+1. Print and fill out the application [HERE]
+(https://www.acton-ma.gov/DocumentCenter/View/5571/Absentee-Ballot-Application){:target=_blank} 
+specifying that you want a ballot for March 31. 
+
+2. Take a photo of the application, making sure your signature is visible, and email it to Clerk@acton-ma.gov or mail it to: Town Clerk,  472 Main Street, Acton MA.
+
+3. The Clerk’s office will mail you the ballots by the next day after they receive your application.  
+
+4. Fill out, sign, and mail the completed ballots back to the Clerk’s office in the provided envelopes.  
+
+Normally, these actions can also be done by visiting the Clerk’s office, but Town Hall will be closed to visitors at least until March 23.  
+
+---
+
 Make sure you are not an [inactive voter](https://www.sec.state.ma.us/ele/eleinactivevoters/inactivevotersidx.htm){:target="_blank"}.  
 
 [Click HERE to check your registration status](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}.  
