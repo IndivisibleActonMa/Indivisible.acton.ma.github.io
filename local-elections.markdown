@@ -56,7 +56,7 @@ var x = setInterval(function() {
 
 ---
 
-***Absentee voting** is available to any Acton voter, and provides an easy way to keep social distance between you and election workers and other voters.*
+***Absentee voting** is available to any eligible Acton voter, and provides an easy way to keep social distance between you and election workers and other voters.*
 
 1. Print and fill out the [application HERE](https://www.acton-ma.gov/DocumentCenter/View/5571/Absentee-Ballot-Application){:target=_blank} specifying that you want a ballot for March 31. 
 
@@ -66,7 +66,6 @@ var x = setInterval(function() {
 
 4. Fill out, sign, and mail the completed ballots back to the Clerk’s office in the provided envelopes.  
 
-Normally, these actions can also be done by visiting the Clerk’s office, but Town Hall will be closed to visitors at least until March 23.  
 
 ---
 
