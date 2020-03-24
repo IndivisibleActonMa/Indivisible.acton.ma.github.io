@@ -52,7 +52,7 @@ var x = setInterval(function() {
 
 * **March 3, 2020 - State Primary**
 
-* **March 31, 2020 - State Election**
+* ***NEW DATE*** **June 2, 2020 - State Special Election**
 
 ---
 
