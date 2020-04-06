@@ -50,9 +50,10 @@ var x = setInterval(function() {
 ---
 ### Important Dates
 
-* **March 3, 2020 - State Primary**
-
+* **May 22, 2020** - Last day to register voters for the State Election; registration hours: 2-4p and 7-8p. (by order of the House of Representatives on Mar 23, 2020)  
 * ***NEW DATE*** **June 2, 2020 - State Special Election**
+* **Sep 1, 2020** - State Primaries
+* **Nov 3, 2020** - State and Presidential Election  
 
 ---
 
