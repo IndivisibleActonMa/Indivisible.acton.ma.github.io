@@ -91,9 +91,34 @@ Click [HERE](https://www.sec.state.ma.us/ele/elespeif/37middlesexcal.htm){:targe
 
 ---
 
-### Acton Town Elections 
+### Update on Town and Special Elections from League of Women Voters
 
-***Tuesday, Jun 2*** - Click [HERE](http://www.lwv-aa.org/2020-election){:target="_blank"} to get more information about the candidates.  
+*Mail-in early voting is encouraged for any elections taking place before June 30. Mail-in early voting keeps you and the elections workers safe. *
+
+Acton’s Town Clerk posted this week that applications for both the town election and special election on June 2 are available. There are similar messages on your town website for these upcoming elections. We will continue to update this as we learn more about these elections in the coming weeks.
+
+**Acton**  
+June 2 – Acton Town Election. 
+June 2 – Special 37th Middlesex Election (Precincts 3, 4 and 5). 
+TBD – Annual Town Meeting. 
+Town website: [actonma.gov](actonma.gov){:target="_blank"} (sign up for alerts)  
+Click [HERE](http://www.lwv-aa.org/2020-election){:target="_blank"} to get more information about the candidates.  
+
+**Boxborough**. 
+June 2 – Boxborough Town Election 
+June 2 – Special 37th Middlesex Election  
+June 15 – Annual Town Meeting. 
+Town website: [https://www.boxborough-ma.gov/](https://www.boxborough-ma.gov/){:target="_blank"}  
+
+**Maynard**  
+May 5 – Maynard Town Election  
+May 18 – Annual Town Meeting  
+Town website: [https://www.townofmaynard-ma.gov/](https://www.townofmaynard-ma.gov/){:target="_blank"}  
+
+**Stow**  
+June 22 – Stow Annual Town Meeting  
+June 27 – Stow Town Election  
+Town website: [https://www.stow-ma.gov/](https://www.stow-ma.gov/){:target="_blank"}  
 
 ---
 
