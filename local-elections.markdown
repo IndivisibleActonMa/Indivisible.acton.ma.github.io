@@ -105,8 +105,8 @@ Town website: [actonma.gov](actonma.gov){:target="_blank"} (sign up for alerts)
 Click [HERE](http://www.lwv-aa.org/2020-election){:target="_blank"} to get more information about the candidates.  
 
 **Boxborough**. 
-June 2 – Boxborough Town Election 
-June 2 – Special 37th Middlesex Election    
+June 2 – Boxborough Town Election   
+June 2 – Special 37th Middlesex Election       
 June 15 – Annual Town Meeting    
 Town website: [https://www.boxborough-ma.gov/](https://www.boxborough-ma.gov/){:target="_blank"}  
 
