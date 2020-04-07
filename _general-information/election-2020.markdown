@@ -26,9 +26,14 @@ Here are some tools to help **YOU**  make a plan to take effective action to hel
 * [Worksheet for donation budget](https://drive.google.com/open?id=1IoBTTNQERstFuPNoZg2qefMKoLLhivsm){:target="_blank"} 
 
 ---
+
+### April Action Tip
+
+Focus on **North Carolina**!  Click [HERE](https://sites.google.com/view/win2020personalmonthlystrategy/home/april?authuser=0){:target="_blank"} for more info.
+
 ### March Action Tip  
 
-Focus on Texas!  Click [HERE](https://sites.google.com/view/win2020personalmonthlystrategy/home/march){:target="_blank"} for more info.  
+Focus on **Texas**!  Click [HERE](https://sites.google.com/view/win2020personalmonthlystrategy/home/march){:target="_blank"} for more info.  
 
 
 ### February Action Tip
