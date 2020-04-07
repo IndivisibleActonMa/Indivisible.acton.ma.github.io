@@ -91,6 +91,12 @@ Click [HERE](https://www.sec.state.ma.us/ele/elespeif/37middlesexcal.htm){:targe
 
 ---
 
+### Acton Town Elections 
+
+***Tuesday, Jun 2*** - Click [HERE](http://www.lwv-aa.org/2020-election){:target="_blank"} to get more information about the candidates.  
+
+---
+
 ### Candidate and Campaign Policy and Etiquette
 
 Indivisible Acton welcomes candidates and their staff. In order to assure productive, fair and healthy discourse between campaigns and Indivisible Acton members these policies have been put in place. Please see our [Candidate and Campaign Etiquette and Policy](https://docs.google.com/document/d/1-G3_GKFkz3fC0VDkfGh4DbC820mzi23yyMG1-EqapfE/){:target="_blank"}  document.
