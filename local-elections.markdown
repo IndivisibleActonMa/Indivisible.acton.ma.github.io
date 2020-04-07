@@ -106,8 +106,8 @@ Click [HERE](http://www.lwv-aa.org/2020-election){:target="_blank"} to get more 
 
 **Boxborough**. 
 June 2 – Boxborough Town Election 
-June 2 – Special 37th Middlesex Election  
-June 15 – Annual Town Meeting. 
+June 2 – Special 37th Middlesex Election    
+June 15 – Annual Town Meeting    
 Town website: [https://www.boxborough-ma.gov/](https://www.boxborough-ma.gov/){:target="_blank"}  
 
 **Maynard**  
