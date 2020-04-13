@@ -53,7 +53,7 @@ Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTe
 
 ### Monday, Apr 13
 
-* **6:30-7:45p**, Zoom:  ***[April General Meeting](http://www.indivisibleacton.org/2020/04/12/general-meeting-and-future-plans.html){:target="_blank"}*** Zoom in for this month's general meeting!  Click [HERE](http://www.indivisibleacton.org/2020/04/12/general-meeting-and-future-plans.html){:target="_blank"} for more info.  Look forward to seeing you!  
+* **6:30-7:45p**, Zoom:  ***[April General Meeting](http://www.indivisibleacton.org/2020/04/12/general-meeting-and-future-plans.html){:target="_blank"}*** - **Zoom** in for this month's general meeting!  Click [HERE](http://www.indivisibleacton.org/2020/04/12/general-meeting-and-future-plans.html){:target="_blank"} for more info.  Look forward to zooming with you!  
 
 
 ### Tuesday, Apr 14
