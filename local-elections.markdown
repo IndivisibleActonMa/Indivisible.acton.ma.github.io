@@ -70,6 +70,8 @@ var x = setInterval(function() {
 
 ---
 
+Click [HERE](https://www.sec.state.ma.us/ele/covid-19/covid-19.htm){:target="_blank"} for the State of MA [COVID-19 Election Updates](https://www.sec.state.ma.us/ele/covid-19/covid-19.htm){:target="_blank"}.  
+
 Make sure you are not an [inactive voter](https://www.sec.state.ma.us/ele/eleinactivevoters/inactivevotersidx.htm){:target="_blank"}.  
 
 [Click HERE to check your registration status](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}.  
