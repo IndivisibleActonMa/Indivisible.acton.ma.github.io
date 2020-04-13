@@ -86,7 +86,7 @@ Click [HERE](https://www.sec.state.ma.us/ele/eleidx.htm){:target="_blank"} for m
 
 We were very fortunate to have two great Democratic candidates - Dina Samfield and Dan Sena, running for State Representative of the 37th Middlesex. Thank you both for running. Congratulations to Dan Sena!
 
-Click [HERE](http:/www.indivisibleacton.org/uploads/Support-for-Dan-v1.pdf){:target="_blank"} to learn how you can *[help Dan Sena's campaign](http:/www.indivisibleacton.org/uploads/Support-for-Dan-v1.pdf){:target="_blank"} and keep the 37th Middlesex BLUE*!!  
+Click [HERE](uploads/Support-for-Dan-v1.pdf){:target="_blank"} to learn how you can *[help Dan Sena's campaign](uploads/Support-for-Dan-v1.pdf){:target="_blank"} and keep the 37th Middlesex BLUE*!!  
 
 The **37th Middlesex Special Election is Tuesday June 2, 2020**. Make a plan about when you are going to vote!!
 Click [HERE](https://www.sec.state.ma.us/ele/elespeif/37middlesexcal.htm){:target="_blank"} for more info
