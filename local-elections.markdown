@@ -142,13 +142,13 @@ Here are the due dates for nomination papers for the Fall elections:
 * April 28 for State offices
 * May 5 for Federal offices 
 
-**Dan Sena** (candidate for 37th Middlesex District, Acton Precincts 3, 4 and 5): **Email deenaaferrara@yahoo.com** and she will send you the official nomination paper with instructions on how to sign & return the paper. The nomination papers Dan submitted for the Special Election (March 31, now postponed to June 2) do not roll forward to the September primary and November election. He has to file a completely new set before April 28.
+**Dan Sena** (candidate for 37th Middlesex District, Acton Precincts 3, 4 and 5): **Email [deenaaferrara@yahoo.com](mailto:deenaaferrara@yahoo.com)** and she will send you the official nomination paper with instructions on how to sign & return the paper. The nomination papers Dan submitted for the Special Election (March 31, now postponed to June 2) do not roll forward to the September primary and November election. He has to file a completely new set before April 28.
 
-**State Representative Tami Gouveia** (14th Middlesex District, Acton Precincts 1, 2 and 6):  **Email tami@tamigouveia.com** and the campaign will send you a nomination paper to sign and return in the mail. Or host a signature collection station outside your home - email for details.
+**State Representative Tami Gouveia** (14th Middlesex District, Acton Precincts 1, 2 and 6):  **Email [tami@tamigouveia.com](mailto:tami@tamigouveia.com)** and the campaign will send you a nomination paper to sign and return in the mail. Or host a signature collection station outside your home - email for details.
 
-**US Congresswoman Lori Trahan** (3rd District of Massachusetts): **Email teamlori@loritrahan.com** if you would like to sign Lori's nomination papers. Contact Bob LaRochelle at 978-265-0664 with questions.  
+**US Congresswoman Lori Trahan** (3rd District of Massachusetts): **Email [teamlori@loritrahan.com](mailto:teamlori@loritrahan.com)** if you would like to sign Lori's nomination papers. Contact Bob LaRochelle at 978-265-0664 with questions.  
 
-**US Senator Edward Markey**: Contact the campaign and they will send you a nomination paper to sign and return. [USE THIS CONTACT FORM](https://docs.google.com/forms/d/e/1FAIpQLSclagsZILBB3SgnXD9SHMmFljfHaym1Kiv5_laT6o57Zcruxg/viewform){:target="_blank"} to get nomination papers for Senator Markey.  Contact Ben@EdMarkey.org with questions.  
+**US Senator Edward Markey**: Contact the campaign and they will send you a nomination paper to sign and return. [USE THIS CONTACT FORM](https://docs.google.com/forms/d/e/1FAIpQLSclagsZILBB3SgnXD9SHMmFljfHaym1Kiv5_laT6o57Zcruxg/viewform){:target="_blank"} to get nomination papers for Senator Markey.  Contact [Ben@EdMarkey.org](mailto:Ben@EdMarkey.org) with questions.  
 
 **Joe Kennedy (candidate for US Senator)**: The campaign appreciates our offer of help but believes it already has as many signatures as it needs.  
 
@@ -158,7 +158,7 @@ Here are the due dates for nomination papers for the Fall elections:
 
 Indivisible Acton welcomes candidates and their staff. In order to assure productive, fair and healthy discourse between campaigns and Indivisible Acton members these policies have been put in place. Please see our [Candidate and Campaign Etiquette and Policy](https://docs.google.com/document/d/1-G3_GKFkz3fC0VDkfGh4DbC820mzi23yyMG1-EqapfE/){:target="_blank"}  document.
 
-Any questions or concerns should be directed to the membership coordinator Christine B: christine@indivisibleacton.org.
+Any questions or concerns should be directed to the membership coordinator [Christine B](mailto:christine@indivisibleacton.org).  
 
 ### Social Media Policy for the Primaries
 
