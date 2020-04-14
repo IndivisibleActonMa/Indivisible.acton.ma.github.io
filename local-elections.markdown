@@ -78,7 +78,7 @@ Make sure you are not an [inactive voter](https://www.sec.state.ma.us/ele/eleina
 
 Click [HERE](https://www.sec.state.ma.us/ele/eleidx.htm){:target="_blank"} for more voter information.
 
-[Make sure you are registered to vote](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}!!  Deadline to register is May 22.*  
+[Make sure you are registered to vote](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}!!  *Deadline to register is May 22.* 
 
 ---
 
