@@ -1,6 +1,7 @@
 ---
 title: April  General Meeting
 date: 2020-04-12 20:30:00 -04:00
+published: false
 is featured: true
 event-start-date: 2020-04-13 18:30:00 -04:00
 event-end-date: 2020-04-13 19:45:00 -04:00
