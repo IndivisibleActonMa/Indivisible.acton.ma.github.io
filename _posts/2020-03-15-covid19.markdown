@@ -1,5 +1,5 @@
 ---
-title: COVID-19
+title: COVID-19 Info & Actions
 date: 2020-03-15 15:00:00 -04:00
 is featured: true
 ---
@@ -11,7 +11,7 @@ Due to Governor Baker announcing a [State of Emergency](https://www.mass.gov/exe
 We will still send out our newsletter on Tuesday mornings, which will continue to have lots of actions that you can take from home!
 
 [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTelUwJXx6pW3oI/edit?usp=sharing){:target="_blank"} are some ideas for continuing your activism from home. Also, please check out our
-[Take Action](http://www.indivisibleacton.org/take-action.html){:target="_blank"} page. And please don't hesitate to write to us info@indivisibleacton.org if you have ideas to share. We will continue to update with new opportunities as we learn about them.
+[Take Action](http://www.indivisibleacton.org/take-action.html){:target="_blank"} page. And please don't hesitate to send us *your* ideas to share: [info@indivisibleacton.org](mailto:info@indivisibleacton.org).  We will continue to update with new opportunities as we learn about them.
 
 We look forward to when we can gather again.  Well wishes during this difficult time!
 
