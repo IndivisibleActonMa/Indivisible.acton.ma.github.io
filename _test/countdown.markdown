@@ -136,3 +136,4 @@ Hosted by Marlborough and Hudson Activists.
 
 ---
 
+Click [HERE](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3OzOec4BoEzGRjU/edit?usp=sharing){:target="_blank"} to learn how **YOU** can join the Postcard Hosting Team and help make the Blue Wave happen!!
