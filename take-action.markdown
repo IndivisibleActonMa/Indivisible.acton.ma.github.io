@@ -81,7 +81,9 @@ Click [HERE](https://americansofconscience.com/){:target="_blank"} to find the l
 
 ---
 
-Click [HERE](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3OzOec4BoEzGRjU/edit?usp=sharing){:target="_blank"} to learn how **YOU** can join the Postcard Hosting Team and help make the Blue Wave happen!!
+### [COVID-19 Info & Actions](http://www.indivisibleacton.org/2020/04/13/covid19.html)  
+
+Click [HERE](http://www.indivisibleacton.org/2020/04/13/covid19.html) for some ideas about actions relevant to COVID-19.
 
 ---
 
