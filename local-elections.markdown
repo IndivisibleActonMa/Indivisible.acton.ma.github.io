@@ -51,7 +51,7 @@ var x = setInterval(function() {
 ### Important Dates
 
 * ***NEW DATE*** **May 22, 2020** - Last day to register voters for the State Election; registration hours: 2-4p and 7-8p. (by order of the House of Representatives on Mar 23, 2020)  
-* ***NEW DATE*** **June 2, 2020 - State Special Election**
+* ***NEW DATE*** **June 2, State Special Election for the [37th Middlesex](https://malegislature.gov/Legislators/District/37thMiddlesex){:target="_blank"}**  
 * **Sep 1, 2020** - State Primaries
 * **Nov 3, 2020** - State and Presidential Election  
 
@@ -89,7 +89,14 @@ We were very fortunate to have two great Democratic candidates - Dina Samfield a
 Click [HERE](uploads/Support-for-Dan-v1.pdf){:target="_blank"} to learn how you can *[help Dan Sena's campaign](uploads/Support-for-Dan-v1.pdf){:target="_blank"} and keep the 37th Middlesex BLUE*!!  
 
 The **37th Middlesex Special Election is Tuesday June 2, 2020**. Make a plan about when you are going to vote!!
-Click [HERE](https://www.sec.state.ma.us/ele/elespeif/37middlesexcal.htm){:target="_blank"} for more info
+Click [HERE](https://www.sec.state.ma.us/ele/elespeif/37middlesexcal.htm){:target="_blank"} for more info.  
+
+37th Middlesex District consists of:
+* Acton: Precincts 3, 4, 5  
+* Ayer: Precinct 2  
+* Boxborough; Shirley  
+* Harvard (Worcester Co.)    
+* Lunenburg: Precincts A, C, D (Worcester Co.)  
 
 [Letter from Rep Benson to her constituents](https://jenbenson.org/2019/12/19/a-letter-to-my-constituents/){:target="_blank"} 
 
