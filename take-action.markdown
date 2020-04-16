@@ -93,6 +93,7 @@ Click [HERE](http://www.indivisibleacton.org/2020/04/13/covid19.html) for some i
 
 * [Together For 2020](https://togetherfor2020.org){:target="_blank"} is a new collaboration of activist leaders from across the Commonwealth ready to help you take effective action.  Find out how [Together For 2020](https://togetherfor2020.org){:target="_blank"} can help **YOU** defeat Trump and take back our democracy!  
 
+
 * [Sign up to text](https://indivisible.org/payback-project-p2p){:target="_blank} through Indivisible's [PayBack Project](https://www.paybackproject.org){:target="_blank"}.  
 
 * Want to text green? Join [Sierra Club's new Texting Team](https://act.sierraclub.org/actions/National?actionId=AR0235958){:target="_blank"}! Primary season is in full swing, the Earth Day Climate Strike is fast approaching, and the Sierra Club has set a goal of texting millions of people to get out the vote and come strike! Join the Sierra Club’s Texting Team and fight climate change from home!  
