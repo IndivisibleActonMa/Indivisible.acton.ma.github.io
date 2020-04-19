@@ -140,3 +140,6 @@ Click [HERE](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3Oz
 
 from events page:
 ***Wanted:*** *[Volunteers to help co-host our regular postcarding meetups](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3OzOec4BoEzGRjU/edit?usp=sharing){:target="_blank"} - the 1st and 3rd Saturdays, 10a-12p at Bagels Plus in Acton, and the 2nd and 4th Tuesdays, 6:30-8:30p at the Littleton Library.  Indivisible Acton-Area provide all the supplies - postcards, stamps, scripts, addresses.  Contact jeanine@IndivisibleActon.org for more info.*
+
+
+* **6:30-7:45p**, Zoom:  ***[April General Meeting](http://www.indivisibleacton.org/2020/04/12/general-meeting-and-future-plans.html){:target="_blank"}*** - **Zoom** in for this month's general meeting!  Click [HERE](http://www.indivisibleacton.org/2020/04/12/general-meeting-and-future-plans.html){:target="_blank"} for more info.  Look forward to zooming with you!  
