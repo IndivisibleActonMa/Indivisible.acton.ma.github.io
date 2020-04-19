@@ -137,3 +137,6 @@ Hosted by Marlborough and Hudson Activists.
 ---
 
 Click [HERE](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3OzOec4BoEzGRjU/edit?usp=sharing){:target="_blank"} to learn how **YOU** can join the Postcard Hosting Team and help make the Blue Wave happen!!
+
+from events page:
+***Wanted:*** *[Volunteers to help co-host our regular postcarding meetups](https://docs.google.com/document/d/1tGz3UiSv7p4vvcSHpVPkQQqwchNw3OzOec4BoEzGRjU/edit?usp=sharing){:target="_blank"} - the 1st and 3rd Saturdays, 10a-12p at Bagels Plus in Acton, and the 2nd and 4th Tuesdays, 6:30-8:30p at the Littleton Library.  Indivisible Acton-Area provide all the supplies - postcards, stamps, scripts, addresses.  Contact jeanine@IndivisibleActon.org for more info.*
