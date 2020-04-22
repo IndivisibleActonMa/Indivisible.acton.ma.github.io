@@ -143,3 +143,12 @@ from events page:
 
 
 * **6:30-7:45p**, Zoom:  ***[April General Meeting](http://www.indivisibleacton.org/2020/04/12/general-meeting-and-future-plans.html){:target="_blank"}*** - **Zoom** in for this month's general meeting!  Click [HERE](http://www.indivisibleacton.org/2020/04/12/general-meeting-and-future-plans.html){:target="_blank"} for more info.  Look forward to zooming with you!  
+
+Here's some more text and info
+
+
+blah blah
+
+---
+
+<a class="twitter-timeline" href="https://twitter.com/IndActonMa?ref_src=twsrc%5Etfw">Tweets by IndActonMa</a> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
