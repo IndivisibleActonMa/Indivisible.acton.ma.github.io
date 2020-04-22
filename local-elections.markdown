@@ -61,7 +61,7 @@ var x = setInterval(function() {
 
 1. Print and fill out the [application HERE](https://www.acton-ma.gov/DocumentCenter/View/5571/Absentee-Ballot-Application){:target="_blank"} specifying that you want a ballot for March 31/June 2. 
 
-2. Take a photo of the application, making sure your signature is visible, and email it to Clerk@acton-ma.gov or mail it to: Town Clerk,  472 Main Street, Acton MA.
+2. Take a photo of the application, making sure your signature is visible, and email it to [Clerk@acton-ma.gov](mailto:Clerk@acton-ma.gov) or mail it to: Town Clerk,  472 Main Street, Acton MA.
 
 3. The Clerk’s office will mail you the ballots by the next day after they receive your application.  
 
