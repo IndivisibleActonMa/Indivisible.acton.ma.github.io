@@ -75,11 +75,13 @@ Please don't wait on the sidelines.  **It's all hands on deck now until election
 
 ----------
 
-[<iframe src="https://www.mobilize.us/embed/indivisibleacton-area/feed/"
+<iframe src="https://www.mobilize.us/embed/indivisibleacton-area/feed/"
 	style="border:none;"
 	width="100%"
 	id="mobilize-feed-iframe">
-</iframe>]
+</iframe>
+
 <script src="https://cdnjs.cloudflare.com/ajax/libs/iframe-resizer/3.6.1/iframeResizer.min.js">
 </script>
+
 <script>iFrameResize({}, '#mobilize-feed-iframe')</script>
