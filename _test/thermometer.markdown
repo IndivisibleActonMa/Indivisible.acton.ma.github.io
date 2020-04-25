@@ -74,13 +74,19 @@ Please don't wait on the sidelines.  **It's all hands on deck now until election
 
 
 ----------
+
+### Join us!
+
+
 <!-- Begin ActionNetwork Signup Form -->
 
 <link href='https://actionnetwork.org/css/style-embed-v3.css' rel='stylesheet' type='text/css'/>
 
 <script src='https://actionnetwork.org/widgets/v3/form/join-indivisible-acton?format=js&source=widget'></script>
 
-<div id='can-form-area-join-indivisible-acton' style='width: 75%'><!-- this div is the target for our HTML insertion --></div>
+<div id='can-form-area-join-indivisible-acton' style='width: 100%'><!-- this div is the target for our HTML insertion --></div>
+
+[Join our Facebook group](https://www.facebook.com/groups/IndivisibleActon/){:target="_blank"} 
 
 -----------------
 
