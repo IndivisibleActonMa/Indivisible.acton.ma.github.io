@@ -5,13 +5,13 @@ position: 5
 layout: page
 ---
 
-## Join us!
+<!-- Begin ActionNetwork Signup Form -->
 
-You can become a member by clicking the links below. We provide different channels by which you can be reached, which include our newsletter, our google group and our facebook group as people have different preferences. Join one, join all!
+<link href='https://actionnetwork.org/css/style-embed-v3.css' rel='stylesheet' type='text/css'/>
 
-* Click [HERE TO JOIN](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton){:target="_blank"} and get our twice weekly newsletter!
+<script src='https://actionnetwork.org/widgets/v3/form/join-indivisible-acton?format=js&source=widget'></script>
 
-* [Please join our Facebook Group "Indivisible Acton Area"](https://www.facebook.com/groups/IndivisibleActon/){:target="_blank"}  where all the events and action are posted.
+<div id='can-form-area-join-indivisible-acton' style='width: 100%'><!-- this div is the target for our HTML insertion --></div>
 
 ---
 
