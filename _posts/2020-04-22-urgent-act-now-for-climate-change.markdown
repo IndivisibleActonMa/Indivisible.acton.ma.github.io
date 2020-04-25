@@ -1,6 +1,7 @@
 ---
 title: Earth Day!
 date: 2020-04-22 00:19:00 -04:00
+published: false
 is featured: true
 main-image: "/uploads/IMG_1497.jpg"
 ---
