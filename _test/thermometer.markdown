@@ -85,7 +85,16 @@ Please don't wait on the sidelines.  **It's all hands on deck now until election
 <div id='can-form-area-join-indivisible-acton' style='width: 100%'><!-- this div is the target for our HTML insertion --></div>
 
 
+
+----
 ### [Join our Facebook group](https://www.facebook.com/groups/IndivisibleActon/){:target="_blank"} 
+
+### Being a member
+Members of our Indivisible Guide chapter are defined by our action. We find solidarity in our shared opposition to Trump and Trumpism. Each of us explicitly reserves our individual stances on specific issues for other forums as we believe resisting Trump is more important than any single issue. We adhere to a Code of Conduct that welcomes and respects everybody.
+
+Members of our Indivisible Guide chapter come from all kinds of backgrounds and political persuasions. Some of us are first-time activists and other have been at this for decades. We are citizens and noncitizens. Most importantly, we are all patriots that want the best for our country and are willing to work for it.
+
+**All are welcome.**
 
 -----------------
 
