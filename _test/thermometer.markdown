@@ -75,8 +75,6 @@ Please don't wait on the sidelines.  **It's all hands on deck now until election
 
 ----------
 
-### Join us!
-
 
 <!-- Begin ActionNetwork Signup Form -->
 
@@ -86,7 +84,8 @@ Please don't wait on the sidelines.  **It's all hands on deck now until election
 
 <div id='can-form-area-join-indivisible-acton' style='width: 100%'><!-- this div is the target for our HTML insertion --></div>
 
-[Join our Facebook group](https://www.facebook.com/groups/IndivisibleActon/){:target="_blank"} 
+
+### [Join our Facebook group](https://www.facebook.com/groups/IndivisibleActon/){:target="_blank"} 
 
 -----------------
 
