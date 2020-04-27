@@ -41,3 +41,13 @@ Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTe
 
 ---
 
+<iframe src="https://www.mobilize.us/embed/indivisibleacton-area/feed/"
+	style="border:none;"
+	width="100%"
+	id="mobilize-feed-iframe">
+</iframe>
+
+<script src="https://cdnjs.cloudflare.com/ajax/libs/iframe-resizer/3.6.1/iframeResizer.min.js">
+</script>
+
+<script>iFrameResize({}, '#mobilize-feed-iframe')</script>
