@@ -37,7 +37,7 @@ Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTe
 
 *And **PLEASE STAY IN TOUCH!** - send us email at  [info@indivisibleacton.org](mailto:info@indivisibleacton.org) with your activism ideas and let us know what you're up to.  Post to the Facebook group with your ideas and activities.  Let's ALL together!!*
 
-***[Click HERE for more info about our meeting guidelines with regards to COVID-19](https://docs.google.com/document/d/1DSwMiE1I9syvJv1nP2i_8ihsBGCG6TDnPMcMSNtrry4/view){:target="_blank"}.***
+***[Click HERE for more info about our meeting guidelines with regards to COVID-19](https://docs.google.com/document/d/1DSwMiE1I9syvJv1nP2i_8ihsBGCG6TDnPMcMSNtrry4/view){:target="_blank"}.***  
 
 ---
 
@@ -51,3 +51,4 @@ Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTe
 </script>
 
 <script>iFrameResize({}, '#mobilize-feed-iframe')</script>
+
