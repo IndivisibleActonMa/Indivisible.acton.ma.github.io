@@ -131,7 +131,7 @@ Town website: [https://www.townofmaynard-ma.gov/](https://www.townofmaynard-ma.g
 *June 27*: Stow Town Election  
 Town website: [https://www.stow-ma.gov/](https://www.stow-ma.gov/){:target="_blank"}  
 
-**Littleton**
+**Littleton**  
 *June 20*: Littleton Town Election  
 Town website: [https://www.littletonma.org/town-littleton-information-center](https://www.littletonma.org/town-littleton-information-center){:target="_blank"}  
 
