@@ -99,7 +99,7 @@ Members of our Indivisible Guide chapter come from all kinds of backgrounds and 
 -----------------
 <span style="font-family:Papyrus; font-size:1.5em; color:red;">**ANNOUNCEMENT:**</span>  
 
-<span style="font-family:Papyrus; font-size:1.5em;">The Joint Committee on the Judiciary will NOW be accepting electronic written testimony via email, until **Tuesday, May 5, 2020, 5:00pm**. on the [following bills](https://malegislature.gov/Events/Hearings/Detail/3479){:target="_blank"}:</span>. 
+<span style="font-family:Papyrus; font-size:1.5em;">The Joint Committee on the Judiciary will NOW be accepting electronic written testimony via email, until **Tuesday, May 5, 2020, 5:00pm**. on the [following bills](https://malegislature.gov/Events/Hearings/Detail/3479){:target="_blank"}:</span>  
 
 * <span style="font-family:Papyrus; font-size:1.25em;">[H4652](https://malegislature.gov/Bills/191/H4652): An Act regarding decarceration and COVID-19</span>  
 
