@@ -141,6 +141,11 @@ Town website: [https://www.littletonma.org/town-littleton-information-center](ht
 Town website: [https://www.harvard.ma.us/town-clerk/pages/early-voting-mail-only-june-2-2020-special-state-election-and-june-23-2020-town](https://www.harvard.ma.us/town-clerk/pages/early-voting-mail-only-june-2-2020-special-state-election-and-june-23-2020-town){:target="_blank"}  
 
 ---
+### E-signatures on Ballot Questions  
+
+Secretary of State William Galvin has agreed to a new court judgement allowing [ballot question campaigns to collect the 13,000-plus signatures electronically](https://www.lowellsun.com/2020/04/30/accord-clears-way-for-e-sigs-on-ballot-questions/){:target="_blank"}.  
+
+---
 
 ### Nomination Papers
 
