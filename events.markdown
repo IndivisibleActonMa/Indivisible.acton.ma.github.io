@@ -42,7 +42,7 @@ Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTe
 
 ## Events
 
-### [May General Meeting - May 11, 2020](http://www.indivisibleacton.org/2020/05/02/general-meeting-and-future-plans.html){:target="_blank"}
+### [May General Meeting - May 11, 2020](http://www.indivisibleacton.org/2020/05/02/general-meeting-and-future-plans.html){:target="_blank"}  
 
 <iframe src="https://www.mobilize.us/embed/indivisibleacton-area/feed/"
 style="border:none;"
