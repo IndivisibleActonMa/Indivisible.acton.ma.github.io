@@ -24,7 +24,6 @@ Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTe
 
 * Find us and many other opportunities on [Mobilize America](https://www.mobilize.us/indivisibleacton-area/){:target="_blank"}.
 
-
 ---
 
 ## Postcarding and More
@@ -37,18 +36,21 @@ Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTe
 
 *And **PLEASE STAY IN TOUCH!** - send us email at  [info@indivisibleacton.org](mailto:info@indivisibleacton.org) with your activism ideas and let us know what you're up to.  Post to the Facebook group with your ideas and activities.  Let's ALL together!!*
 
-***[Click HERE for more info about our meeting guidelines with regards to COVID-19](https://docs.google.com/document/d/1DSwMiE1I9syvJv1nP2i_8ihsBGCG6TDnPMcMSNtrry4/view){:target="_blank"}.***  
+***[Click HERE for more info about our meeting guidelines with regards to COVID-19](https://docs.google.com/document/d/1DSwMiE1I9syvJv1nP2i_8ihsBGCG6TDnPMcMSNtrry4/view){:target="_blank"}.***
 
 ---
 
+### Events
+
+[May General Meeting - May 11, 2020](http://www.indivisibleacton.org/2020/05/02/general-meeting-and-future-plans.html){:target="_blank"}
+
 <iframe src="https://www.mobilize.us/embed/indivisibleacton-area/feed/"
-	style="border:none;"
-	width="100%"
-	id="mobilize-feed-iframe">
+style="border:none;"
+width="100%"
+id="mobilize-feed-iframe">
 </iframe>
 
 <script src="https://cdnjs.cloudflare.com/ajax/libs/iframe-resizer/3.6.1/iframeResizer.min.js">
 </script>
 
 <script>iFrameResize({}, '#mobilize-feed-iframe')</script>
-
