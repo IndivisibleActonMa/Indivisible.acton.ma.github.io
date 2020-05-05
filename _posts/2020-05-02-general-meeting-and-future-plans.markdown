@@ -15,6 +15,8 @@ Feeling quarantine fatigue?  Join us for our May General Meeting!
 
 Our focus this month to talk upcoming local elections and voting by mail.
 
+Our Featured Speaker is [Rep. Tami Gouveia](https://www.reptamigouveia.com){:target="_blank"}, who will brief us on voting legislature for Massachusetts. 
+
 Let's advocate for the solutions we need and want!
 
 ### We have a lot of work to do!
