@@ -32,6 +32,8 @@ Cc: Senator Nick Collins [Nick.Collins@masenate.gov](mailto:nick.collins@masenat
 
 Also copy your [Senator and Representative](https://malegislature.gov/Search/FindMyLegislator){:target="_blank"}.  
 
+Here is an alternate way to weigh in: [https://secure.everyaction.com/n0yg_y8BhE6Mt05MYE6thA2](https://secure.everyaction.com/n0yg_y8BhE6Mt05MYE6thA2){:target="_blank"}  
+
 ### References    
 
 * [Request Letter for the bill by Governor Baker](https://cdn.ymaws.com/www.maccweb.org/resource/resmgr/advocacy/h4650-eee.pdf){:target="_blank"}  
