@@ -40,6 +40,6 @@ Also copy your [Senator and Representative](https://malegislature.gov/Search/Fin
 
 * [Sample template opposition letter](https://458rl1jp.r.us-east-1.awstrack.me/L0/https:%2F%2Fwww.maccweb.org%2Fresource%2Fresmgr%2Fadvocacy%2Fdraft-sample-_h4650_letter-.docx/1/01000171d22a4fd1-efeb9cc5-9f96-47fb-a316-efe867e65af1-000000/biuwDlo7Amo8-8GtYRvA4uVaf04=160){:target="_blank"}  
 
-Testimony must include your name, title, organization name, address and telephone number of the person submitting the testimony.  
+Testimony must include your **name, title, organization name, address and telephone number of the person** submitting the testimony.  
 
 Send any questions you have to [Dorothy.mcglincy@maccweb.org](mailto:Dorothy.mcglincy@maccweb.org).
