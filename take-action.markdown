@@ -70,7 +70,7 @@ Click [HERE to check out our new mini-website for the Win 2020 Personal Monthly 
 ***Indivisible Acton-Area is proud to endorse the [Acton Climate Coalition](https://actonclimatecoalition.wordpress.com/){:target="_blank"} in declaring a climate emergency in Acton.  Click [HERE](https://actonclimatecoalition.wordpress.com){:target="_blank"} to learn more.***  
 
 
-It’s super important that we get as many people on our side as possible, especially voters! *As 2020 unfolds, let’s make climate change the number one issue for voters across Massachusetts.*   
+It’s super important that we get as many people on informed as  possible! *Let’s make climate change the number one issue for voters across Massachusetts.*   
 
 ---
 
