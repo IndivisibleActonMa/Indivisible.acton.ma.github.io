@@ -6,7 +6,7 @@ is featured: true
 
 <span style="font-family:Papyrus; font-size:1.5em; color:red;">**ANNOUNCEMENT:**</span>
 
-<span style="font-size:1.25em;">Call to Action before <span style="color:red;">**Monday May 11, 2020**</span> to register your opposition to bill [H.4650, "An Act to Mitigate Arbovirus in the Commonwealth](https://malegislature.gov/Bills/191/H4650){:target="_blank"}</span>
+<span style="font-size:1.25em;">Call to Action before <span style="color:red;">**Monday May 11, 2020**</span> to register your opposition to bill [H.4650, "An Act to Mitigate Arbovirus in the Commonwealth"](https://malegislature.gov/Bills/191/H4650){:target="_blank"}</span>
 
 The [Massachusetts Association of Conservation Commissions](https://www.maccweb.org/){:target="_blank"}  opposes the bill.  They are concerned about its broad overreach.
 
