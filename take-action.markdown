@@ -65,9 +65,12 @@ Click [HERE to check out our new mini-website for the Win 2020 Personal Monthly 
 
 “*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation
 
-[Pollution made COVID-19 worse. Now, lockdowns are clearing the air.  Will today's cleaner air inspire us to do better?](https://www.nationalgeographic.com/science/2020/04/pollution-made-the-pandemic-worse-but-lockdowns-clean-the-sky/#close){:target="_blank"}  What do you think??
+[Pollution made COVID-19 worse. Now, lockdowns are clearing the air.  Will today's cleaner air inspire us to do better?](https://www.nationalgeographic.com/science/2020/04/pollution-made-the-pandemic-worse-but-lockdowns-clean-the-sky/#close){:target="_blank"}  What do you think??  
 
-This month, try discussing the climate crisis with family, friends, or even strangers. It’s super important that we get as many people on our side as possible, especially voters! *As 2020 unfolds, let’s make climate change the number one issue for voters across Massachusetts.*  
+***Indivisible Acton-Area is proud to endorse the [Acton Climate Coalition](https://actonclimatecoalition.wordpress.com/){:target="_blank"} in declaring a climate emergency.  Click [HERE](https://actonclimatecoalition.wordpress.com){:target="_blank"} to learn more.***  
+
+
+It’s super important that we get as many people on our side as possible, especially voters! *As 2020 unfolds, let’s make climate change the number one issue for voters across Massachusetts.*  
 
 H/T Sunrise Acton February Newsletter  
 
