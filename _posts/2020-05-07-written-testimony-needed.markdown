@@ -34,6 +34,8 @@ Also copy your [Senator and Representative](https://malegislature.gov/Search/Fin
 
 Here is an alternate way to weigh in: [https://secure.everyaction.com/n0yg_y8BhE6Mt05MYE6thA2](https://secure.everyaction.com/n0yg_y8BhE6Mt05MYE6thA2){:target="_blank"}  
 
+<span style="color:red;">***There will be a hearing on the bill on Monday, May 11, so any phone calls or emails to your electeds to weigh in on this bill would need to happen ASAP.***</span>
+
 ### References    
 
 * [Request Letter for the bill by Governor Baker](https://cdn.ymaws.com/www.maccweb.org/resource/resmgr/advocacy/h4650-eee.pdf){:target="_blank"}  
