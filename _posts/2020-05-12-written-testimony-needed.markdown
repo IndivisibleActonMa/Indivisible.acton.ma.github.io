@@ -34,6 +34,6 @@ The Election Laws Committee is holding a [Virtual hearing Thursday, May 13, 1-5p
 
 * [HD5077](https://malegislature.gov/Bills/191/HD5077){:target="_blank"}
 
-*[H4623](https://malegislature.gov/Bills/191/H4623){:target="_blank"}
+* [H4623](https://malegislature.gov/Bills/191/H4623){:target="_blank"}
 
 * [SD2936](https://malegislature.gov/Bills/191/SD2936){:target="_blank"}
