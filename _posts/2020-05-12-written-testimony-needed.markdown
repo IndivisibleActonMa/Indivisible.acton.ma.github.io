@@ -16,6 +16,8 @@ Submit your comments [HERE](https://www.mass.gov/forms/submit-comments-to-the-re
 
 (H/T Rogan's List)
 
+---
+
 <span style="font-size:1.25em;">Have an opinion on proposed election legislation in response to COVID-19?</span>
 
 Submit your comments to:  
