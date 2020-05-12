@@ -6,7 +6,7 @@ is featured: true
 
 <span style="font-family:Papyrus; font-size:1.5em; color:red;">**ANNOUNCEMENTS:**</span>
 
-<span style="font-size:1.25em;">Submit your comments to the Re-Opening Task Force.</span>
+<span style="font-size:1.25em;">**Submit your comments to the Re-Opening Task Force**</span>
 
 Massachusetts has put together a task force which is collecting feedback to develop a plan to “re-open” the state.
 
@@ -18,7 +18,7 @@ Submit your comments [HERE](https://www.mass.gov/forms/submit-comments-to-the-re
 
 ---
 
-<span style="font-size:1.25em;">Have an opinion on proposed election legislation in response to COVID-19?</span>
+<span style="font-size:1.25em;">**Have an opinion on proposed election legislation in response to COVID-19?**</span>
 
 Submit your comments to:  
 
