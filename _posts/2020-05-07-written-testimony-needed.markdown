@@ -1,50 +1,39 @@
 ---
-title: Call to Action!
+title: Submit Comments
 date: 2020-05-07 08:06:00 -04:00
-published: false
 is featured: true
 ---
 
-<span style="font-family:Papyrus; font-size:1.5em; color:red;">**ANNOUNCEMENT:**</span>
+<span style="font-family:Papyrus; font-size:1.5em; color:red;">**ANNOUNCEMENTS:**</span>
 
-<span style="font-size:1.25em;">Call to Action <span style="color:red;">**before Monday May 11, 2020**</span> to register your opposition to bill [H.4650, "An Act to Mitigate Arbovirus in the Commonwealth"](https://malegislature.gov/Bills/191/H4650){:target="_blank"}</span>
+<span style="font-size:1.25em;">Submit your comments to the Re-Opening Task Force.</span>
 
-The [Massachusetts Association of Conservation Commissions](https://www.maccweb.org/){:target="_blank"}  opposes the bill.  They are concerned about its broad overreach.
+Massachusetts has put together a task force which is collecting feedback to develop a plan to “re-open” the state.
 
-Here are their main concerns:
+Share your thoughts about how you feel about re-opening too soon without at least 14 consecutive days of downward trending infection and death rates.
 
-1. **This bill is much too broad.**  It overrules all other statutes (including the Pesticide Control Act, Massachusetts Endangered Species Act, water supply protection laws, Open Meeting Law, Public Records Act, etc.) as well as decisions by municipalities to not join a regional district because they don’t want nuisance mosquito spraying.  
+Submit your comments [HERE](https://www.mass.gov/forms/submit-comments-to-the-reopening-advisory-board){:target="_blank"}.
 
-2. **This bill would also overrule private property requests for exclusion from spraying.** Inadvertent impacts from spraying are not considered.  
+(H/T Rogan's List)
 
-3. **There is no transparency on the decision making process in this bill.**  There is no information about the actions to be taken, and there is no role for local boards of health or environmental groups.  
+<span style="font-size:1.25em;">Have an opinion on proposed election legislation in response to COVID-19?</span>
 
-4. **There are no requirements for notifications to communities or property owners prior to spraying.**  There is no information on the effectiveness or trigger points for spraying or other actions.  
+Submit your comments to:  
 
-5. **There is no sunset provision to this bill.**  
+* [John.Lawn@mahouse.gov](mailto:John.Lawn@mahouse.gov) - House Chair 
+ 
+* [Barry.Finegold@masenate.gov](Barry.Finegold@masenate.gov) - Senate Chair  
 
-*Without oversight, transparency or coordination with other agencies, this bill could do more harm than good.*.  
+* [Your representative](https://malegislature.gov/search/findmylegislator){:target="_blank"}    
 
-### Action
+The Election Laws Committee is holding a [Virtual hearing Thursday, May 13, 1-5p](https://malegislature.gov/Events/Hearings/Detail/3486){:target="_blank"} with the intent to hear bills relative to election administration in response to COVID-19, including but not limited to certain dockets and proposals pending referral to committee and a proposal by the state secretary:
 
-Please email your letter of opposition to The Joint Committee on Public Health, Senator Comerford at [Jo.Comerford@masenate.gov](mailto:jo.comerford@masenate.gov).
+* [HD5075](https://malegislature.gov/Bills/191/HD5075){:target="_blank"}
 
-Cc: Senator Nick Collins [Nick.Collins@masenate.gov](mailto:nick.collins@masenate.gov); Representative John J. Mahoney [John.Mahoney@mahouse.gov](mailto:john.mahoney@mahouse.gov); Representative Chynah Tyler [Chynah.Tyler@mahouse.gov](mailto:chynah.tyler@mahouse.gov).
+* [HD5066](https://malegislature.gov/Bills/191/HD5066){:target="_blank"}
 
-Also copy your [Senator and Representative](https://malegislature.gov/Search/FindMyLegislator){:target="_blank"}.  
+* [HD5077](https://malegislature.gov/Bills/191/HD5077){:target="_blank"}
 
-Here is an alternate way to weigh in: [https://secure.everyaction.com/n0yg_y8BhE6Mt05MYE6thA2](https://secure.everyaction.com/n0yg_y8BhE6Mt05MYE6thA2){:target="_blank"}  
+*[H4623](https://malegislature.gov/Bills/191/H4623){:target="_blank"}
 
-<span style="color:red;">***There will be a hearing on the bill on Monday, May 11, so any phone calls or emails to your electeds to weigh in on this bill would need to happen ASAP.***</span>
-
-### References    
-
-* [Request Letter for the bill by Governor Baker](https://cdn.ymaws.com/www.maccweb.org/resource/resmgr/advocacy/h4650-eee.pdf){:target="_blank"}  
-
-* [MACC Letter to Senator Comerford](https://www.maccweb.org/resource/resmgr/advocacy/h4650-arbovirus-macc-comment.pdf)  
-
-* [Sample template opposition letter](https://458rl1jp.r.us-east-1.awstrack.me/L0/https:%2F%2Fwww.maccweb.org%2Fresource%2Fresmgr%2Fadvocacy%2Fdraft-sample-_h4650_letter-.docx/1/01000171d22a4fd1-efeb9cc5-9f96-47fb-a316-efe867e65af1-000000/biuwDlo7Amo8-8GtYRvA4uVaf04=160){:target="_blank"}  
-
-Testimony must include your **name, title, organization name, address and telephone number of the person** submitting the testimony.  
-
-Send any questions you have to [Dorothy.mcglincy@maccweb.org](mailto:Dorothy.mcglincy@maccweb.org).
+* [SD2936](https://malegislature.gov/Bills/191/SD2936){:target="_blank"}
