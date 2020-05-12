@@ -1,6 +1,7 @@
 ---
 title: May  General Meeting
 date: 2020-05-02 12:30:00 -04:00
+published: false
 is featured: true
 event-start-date: 2020-05-11 18:30:00 -04:00
 event-end-date: 2020-05-11 19:45:00 -04:00
