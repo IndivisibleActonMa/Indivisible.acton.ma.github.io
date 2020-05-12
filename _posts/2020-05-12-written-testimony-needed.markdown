@@ -4,23 +4,13 @@ date: 2020-05-12 08:06:00 -04:00
 is featured: true
 ---
 
-<span style="font-family:Papyrus; font-size:1.5em; color:red;">**ANNOUNCEMENTS:**</span>
-
-<span style="font-size:1.25em;">**Submit your comments to the Re-Opening Task Force**</span>
-
-Massachusetts has put together a task force which is collecting feedback to develop a plan to “re-open” the state.
-
-Share your thoughts about how you feel about re-opening too soon without at least 14 consecutive days of downward trending infection and death rates.
-
-Submit your comments [HERE](https://www.mass.gov/forms/submit-comments-to-the-reopening-advisory-board){:target="_blank"}.
-
-(H/T Rogan's List)
+<span style="font-family:Papyrus; font-size:1.5em; color:red;">**ANNOUNCEMENTS:**</span>  
 
 ---
 
 <span style="font-size:1.25em;">**Have an opinion on proposed election legislation in response to COVID-19?**</span>
 
-Submit your comments to:  
+Submit your comments by May 13 to:  
 
 * [John.Lawn@mahouse.gov](mailto:John.Lawn@mahouse.gov) - House Chair 
  
@@ -38,4 +28,18 @@ The Election Laws Committee is holding a [Virtual hearing Thursday, May 13, 1-5p
 
 * [H4623](https://malegislature.gov/Bills/191/H4623){:target="_blank"}
 
-* [SD2936](https://malegislature.gov/Bills/191/SD2936){:target="_blank"}
+* [SD2936](https://malegislature.gov/Bills/191/SD2936){:target="_blank"}  
+
+[CLICK HERE](https://docs.google.com/document/d/1vuJ1h7blgtzrY5NDHKFULRHBVpjJjSpNOWBJ1uDRr-U/edit) for more information.  
+
+---
+
+<span style="font-size:1.25em;">**Submit your comments to the Re-Opening Task Force**</span>
+
+Massachusetts has put together a task force which is collecting feedback to develop a plan to “re-open” the state.
+
+Share your thoughts about how you feel about re-opening too soon without at least 14 consecutive days of downward trending infection and death rates.
+
+Submit your comments [HERE](https://www.mass.gov/forms/submit-comments-to-the-reopening-advisory-board){:target="_blank"}.
+
+(H/T Rogan's List)
