@@ -18,7 +18,7 @@ Submit your comments by May 13 to:
 
 * [Your representative](https://malegislature.gov/search/findmylegislator){:target="_blank"}    
 
-The Election Laws Committee is holding a [Virtual hearing Thursday, May 13, 1-5p](https://malegislature.gov/Events/Hearings/Detail/3486){:target="_blank"} with the intent to hear bills relative to election administration in response to COVID-19, including but not limited to certain dockets and proposals pending referral to committee and a proposal by the state secretary:
+The Election Laws Committee is holding a [Virtual hearing Thursday, May 14, 1-5p](https://malegislature.gov/Events/Hearings/Detail/3486){:target="_blank"} with the intent to hear bills relative to election administration in response to COVID-19, including but not limited to certain dockets and proposals pending referral to committee and a proposal by the state secretary:
 
 * [HD5075](https://malegislature.gov/Bills/191/HD5075){:target="_blank"}
 
