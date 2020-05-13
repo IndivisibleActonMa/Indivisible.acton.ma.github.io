@@ -92,6 +92,9 @@ Click [HERE](http://www.indivisibleacton.org/2020/04/13/covid19.html) for some i
 
 * [Everything you ever wanted to know about post carding from home and more!](https://docs.google.com/document/d/1756GTNx8WnkRc2m9HyiEtQ7v8uCmDqVRFngE8GMj-lA/edit?usp=sharing){:target="_blank"}  
 
+* [Support Vote by Mail in Florida and Get Out The Vote in North Carolina
+](https://docs.google.com/document/d/1Qc-LLDHV2egnDt8ge2LZo-DzgmBWK5YnRoPpl1lQ4d0/edit?usp=sharing){:target="_blank"}  
+
 * [Together For 2020](https://togetherfor2020.org){:target="_blank"} is a new collaboration of [activist leaders from across the Commonwealth](https://togetherfor2020.org/about-us/){:target="_blank"} ready to help you take effective action.  Find out how [Together For 2020](https://togetherfor2020.org){:target="_blank"} can help **YOU** defeat Trump and take back our democracy!  
 
 * [Sign up to text](https://indivisible.org/payback-project-p2p){:target="_blank} through Indivisible's [PayBack Project](https://www.paybackproject.org){:target="_blank"}.  
