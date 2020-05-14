@@ -10,7 +10,7 @@ is featured: true
 
 <span style="font-size:1.25em;">**Have an opinion on proposed election legislation in response to COVID-19?**</span>
 
-Submit your comments by May 13 to:  
+Comments may be submitted up until May 15, 5p:
 
 * [John.Lawn@mahouse.gov](mailto:John.Lawn@mahouse.gov) - House Chair 
  
