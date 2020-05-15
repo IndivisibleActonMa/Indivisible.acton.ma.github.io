@@ -68,9 +68,8 @@ Click [HERE to check out our new mini-website for the Win 2020 Personal Monthly 
 
 **Start a Climate Conversation**
 
-“*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation
+“*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation  
 
-[Pollution made COVID-19 worse. Now, lockdowns are clearing the air.  Will today's cleaner air inspire us to do better?](https://www.nationalgeographic.com/science/2020/04/pollution-made-the-pandemic-worse-but-lockdowns-clean-the-sky/#close){:target="_blank"}  What do you think??  
 
 ***Indivisible Acton-Area is proud to endorse the [Acton Climate Coalition](https://actonclimatecoalition.wordpress.com/){:target="_blank"} in declaring a climate emergency in Acton.  Click [HERE](https://actonclimatecoalition.wordpress.com){:target="_blank"} to learn more.***  
 
@@ -79,6 +78,8 @@ It’s super important that we get as many people on informed as  possible! *Let
 
 
 [We’re running out of time to flatten the curve — for climate change](https://grist.org/climate/flatten-the-curve-coronavirus-climate-emissions/?fbclid=IwAR3fzAbVOimlF07xx5BjqRFFDgS28hfU6HqFBEnyqD-DjnR788521nF61qE){:target="_blank"}  
+
+[Pollution made COVID-19 worse. Now, lockdowns are clearing the air.  Will today's cleaner air inspire us to do better?](https://www.nationalgeographic.com/science/2020/04/pollution-made-the-pandemic-worse-but-lockdowns-clean-the-sky/#close){:target="_blank"}  What do you think??  
 
 
 ---
