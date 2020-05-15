@@ -4,7 +4,7 @@ date: 2019-05-06 10:41:00 -04:00
 layout: page
 ---
 
-<span style="font-family:Papyrus; font-size:1.5em; color:red;">**Don't just vote.  Volunteer**</span>  
+<span style="font-family:Papyrus; font-size:2em; color:red;">**Don't just vote.  Volunteer**</span>  
 
 
 ### Vote on Tuesday, Jun 2
