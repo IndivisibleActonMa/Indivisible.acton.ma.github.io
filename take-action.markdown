@@ -77,6 +77,10 @@ Click [HERE to check out our new mini-website for the Win 2020 Personal Monthly 
 
 It’s super important that we get as many people on informed as  possible! *Let’s make climate change the number one issue for voters across Massachusetts.*   
 
+
+[We’re running out of time to flatten the curve — for climate change](https://grist.org/climate/flatten-the-curve-coronavirus-climate-emissions/?fbclid=IwAR3fzAbVOimlF07xx5BjqRFFDgS28hfU6HqFBEnyqD-DjnR788521nF61qE){:target="_blank"}  
+
+
 ---
 
 Click [HERE for the Activist Alliance Newsletter](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?usp=sharing){:target="_blank"}
