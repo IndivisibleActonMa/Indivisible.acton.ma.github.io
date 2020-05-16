@@ -1,5 +1,5 @@
 ---
-title: Submit Comments
+title: Make Your Voice Heard!
 date: 2020-05-12 08:06:00 -04:00
 is featured: true
 ---
@@ -8,29 +8,11 @@ is featured: true
 
 ---
 
-<span style="font-size:1.25em;">**Have an opinion on proposed election legislation in response to COVID-19?**</span>
+**To all environmentally concerned: **
 
-Comments may be submitted up until May 15, 5p:
+Please sign [this petition](https://actionnetwork.org/petitions/mastrong){:target="_blank"} requesting action on environmental legislation *NOW* from our MA legislators. The petition is written by local folks and does not ask for money!  
 
-* [John.Lawn@mahouse.gov](mailto:John.Lawn@mahouse.gov) - House Chair
-
-* [Barry.Finegold@masenate.gov](Barry.Finegold@masenate.gov) - Senate Chair
-
-* [Your representative](https://malegislature.gov/search/findmylegislator){:target="_blank"}
-
-The Election Laws Committee is holding a [Virtual hearing Thursday, May 14, 1-5p](https://malegislature.gov/Events/Hearings/Detail/3486){:target="_blank"} with the intent to hear bills relative to election administration in response to COVID-19, including but not limited to certain dockets and proposals pending referral to committee and a proposal by the state secretary:
-
-* [HD5075](https://malegislature.gov/Bills/191/HD5075){:target="_blank"}
-
-* [HD5066](https://malegislature.gov/Bills/191/HD5066){:target="_blank"}
-
-* [HD5077](https://malegislature.gov/Bills/191/HD5077){:target="_blank"}
-
-* [H4623](https://malegislature.gov/Bills/191/H4623){:target="_blank"}
-
-* [SD2936](https://malegislature.gov/Bills/191/SD2936){:target="_blank"}
-
-[CLICK HERE](https://docs.google.com/document/d/1vuJ1h7blgtzrY5NDHKFULRHBVpjJjSpNOWBJ1uDRr-U/edit) for more information.
+You can [SIGN HERE](https://actionnetwork.org/petitions/mastrong){:target="_blank"}.
 
 ---
 
