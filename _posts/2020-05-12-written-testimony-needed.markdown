@@ -8,7 +8,7 @@ is featured: true
 
 ---
 
-**To all environmentally concerned:**
+**To all environmentally concerned:**. 
 
 Please sign [this petition](https://actionnetwork.org/petitions/mastrong){:target="_blank"} requesting action on environmental legislation *NOW* from our MA legislators. The petition is written by local folks and does not ask for money!  
 
