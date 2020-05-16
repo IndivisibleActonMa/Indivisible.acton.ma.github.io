@@ -45,9 +45,3 @@ Submit your comments [HERE](https://www.mass.gov/forms/submit-comments-to-the-re
 \(H/T Rogan's List)
 
 ---
-
-**Support the HEROES Act:**
-
-1. **[Call your Representative and demand they pass the HEROES Act as it was introduced, without any motions to recommit or amendments to water it down.](https://act.indivisible.org/go/428272?t=12&akid=59430%2E1090453%2EONr7Lv)**House Democrats introduced the [HEROES Act](https://act.indivisible.org/go/428273?t=13&akid=59430%2E1090453%2EONr7Lv){:target="_blank"} as the fourth coronavirus relief package, but we’re worried Republicans will try to strip the bill of its most important protections with a [motion to recommit](https://act.indivisible.org/go/254700?t=14&akid=59430%2E1090453%2EONr7Lv){:target="_blank"}. Working families are struggling to make ends meet. We need every protection in the HEROES Act to pass or lives will be at stake. [Call your Representative and let them know you support the HEROES Act as it was introduced.](https://act.indivisible.org/go/428272?t=15&akid=59430%2E1090453%2EONr7Lv){:target="_blank"}  
-
-2. **[Review and share our HEROES Act summary resource](https://act.indivisible.org/go/428273?t=16&akid=59430%2E1090453%2EONr7Lv){:target="_blank"}**. Every time a new coronavirus relief bill is passed, the swirl of punditry to analyze and interpret its contents begins. We know it can be hard to navigate what’s good and bad about each bill, and that’s why we’re here to help: Indivisible’s team of policy experts has been hard at work analyzing and interpreting how this bill stacks up against the issues that matter most to Indivisibles, and they’ve laid their conclusions out in a new [HEROES Act summary](https://act.indivisible.org/go/428273?t=17&akid=59430%2E1090453%2EONr7Lv){:target="_blank"}. Read this and share it far and wide with those in your networks to help spread the word about what this bill really means for people hit hardest by the coronavirus crisis.
