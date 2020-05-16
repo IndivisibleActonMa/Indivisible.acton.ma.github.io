@@ -68,13 +68,20 @@ Click [HERE to check out our new mini-website for the Win 2020 Personal Monthly 
 
 **Start a Climate Conversation**
 
-“*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation  
+“*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation   
+
+***Action*** To all environmentally concerned:  Please sign [this petition](https://actionnetwork.org/petitions/mastrong){:target="_blank"} requesting action on environmental legislation NOW from our MA legislators.  The petition is written by local folks, does not ask for money!
+You can [SIGN HERE](https://actionnetwork.org/petitions/mastrong){:target="_blank"}.  
+
+Please share the petition widely.  
+ 
 
 
 ***Indivisible Acton-Area is proud to endorse the [Acton Climate Coalition](https://actonclimatecoalition.wordpress.com/){:target="_blank"} in declaring a climate emergency in Acton.  Click [HERE](https://actonclimatecoalition.wordpress.com){:target="_blank"} to learn more.***  
 
 
-It’s super important that we get as many people on informed as  possible! *Let’s make climate change the number one issue for voters across Massachusetts.*   
+It’s super important that we get as many people on informed as  possible! *Let’s make climate change the number one issue for voters across Massachusetts.* 
+ 
 
 Find out more about the impact of climate change:  [Climate Change: The Facts](https://www.pbs.org/video/climate-change-the-facts-ua6lmf/){:target="_blank"}  
 
