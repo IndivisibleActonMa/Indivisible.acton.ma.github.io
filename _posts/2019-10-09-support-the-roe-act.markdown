@@ -4,42 +4,29 @@ date: 2019-10-09 18:15:00 -04:00
 is featured: false
 ---
 
-### ACTION: Move the ROE Act out of committee
+### UPDATE
 
-Please sign this [petition](https://www.change.org/p/massachusetts-state-house-pass-the-roe-act-in-massachusetts-update-our-laws-for-reproductive-justice-access){:target="_blank"} to tell our State Senators and Representatives to move the ROE Act out of committee and onto the floor for a vote.  Please tell your friends - especially if you know anybody that lives in Claire Cronin's district, which covers some of Easton and Brockton.
+May 12 was the deadline for the Judiciary Committee to report out the ROE Act.  *The ROE Act Coalition has learned that the Judiciary Committee has filed to extend both the House and Senate bills to July 31!*
 
----
+The Coalition believes the extension will be approved by the House and Senate. Our liaison to the Coalition, Linda Vieira, will keep us posted.  
 
-***THANK YOU*** to everyone who has written postcards for the ROE Act! *We have sent out over 10,000 postcards*.
+**ALSO**, the Supreme Court of the United States is expected to release an opinion soon on [June Medical Services v. Russo](https://www.scotusblog.com/case-files/cases/june-medical-services-llc-v-russo/){:target="_blank"}, a decision that will impact abortion access for millions of people and could decide the future of abortion rights. The decision is expected to be released at any point between now and the end of June.
 
-**Here is what needs to happen next and how you can help make that happen**.
+We don’t know exactly when it will happen, but we do want to be as prepared as we can to launch a coordinated response. We believe the national spotlight on abortion created by this decision will be an important opportunity to highlight the urgency with which Massachusetts must move forward as so many forces are pushing us back in time.
 
-The ROE Act is in the Joint Judiciary Committee and had a hearing on June 21, 2019. The committee has to take action by the 3rd Wednesday in February 2020 and has 3 options:
+**On the day the decision is released, the ROE Act Coalition will let Linda know and set up an emergency call.** They will aim to have that call within the subsequent 24 hours, so we can debrief the decision, share messaging, and discuss an action plan.
 
-* Vote the bill favorably out of committee so it can be brought to the floor for a vote (this is what we want)
+Here are possible responses that we may be asked to take:
 
-* Vote the bill unfavorably out of committee or
+* **Immediate Digital Action** - We will supply you with sample social media posts as well as graphics.
 
-* Assign it to another committee, both of which means the bill dies.
+* **Engagement in Collaborative Press Activities**
 
-### What can we do:
+* **Some sort of mobilization ask** - Depending on the timing of the decision, the status of the ROE Act and the legislature’s progress in addressing COVID-related emergency needs, there are several actions we may be asking people to take, ranging from a petition to legislative contact. This ask will not be final until the Supreme Court decision is released.
 
-It is too late for a legislator to become a cosponsor so the pressure needs to be on the members of the Judiciary Committee and other legislators to get it voted favorably out of committee.
-
-Call all members on the Judiciary committee who are cosponsors to ask them to bring the ROE Act for a vote out of committee. (There are 17 legislators on this committee, 12 of which are cosponsors).
-
-Call your Representative and Senator.  Even if you have already done it, please do it again and ask 5 friends to do the same.
-
-Have an in-district meeting with your Senator and Representative.  Our Senators and Reps need to know this is a priority and asked why has this bill has not been acted on.
-
-Call/email all your friends/relatives in other districts especially in Western MA and ask them to call their legislators as well as have an in-district meeting about the ROE Act.
-
-Read and distribute [Summary of the ROE Act](https://prochoicemass.org/2019/06/06/statement-roe-act-coalition/){:target="_blank"}.
-
-Contact Linda ***roeact2019@gmail.com*** for more info.
+**If you can commit to participating in rapid response to the decision in June Medical Services v. Russo, please let us know by emailing Olivia at [osantoro@aclum.org](mailto:osantoro@aclum.or) or contact [Lindapiano4593@gmail.com](mailto:Lindapiano4593@gmail.com).**
 
 ---
-
 Find out if your [lawmakers](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors){:target="_blank"} support the **ROE Act**.
 
 Click [HERE](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act){:target="_blank"} for more information about the **ROE Act**.
