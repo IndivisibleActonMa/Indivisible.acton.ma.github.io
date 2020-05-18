@@ -16,14 +16,3 @@ You can [SIGN HERE](https://actionnetwork.org/petitions/mastrong){:target="_blan
 
 ---
 
-<span style="font-size:1.25em;">**Submit your comments to the Re-Opening Task Force**</span>
-
-Massachusetts has put together a task force which is collecting feedback to develop a plan to “re-open” the state.
-
-Share your thoughts about how you feel about re-opening too soon without at least 14 consecutive days of downward trending infection and death rates.
-
-Submit your comments [HERE](https://www.mass.gov/forms/submit-comments-to-the-reopening-advisory-board){:target="_blank"}.
-
-\(H/T Rogan's List)
-
----
