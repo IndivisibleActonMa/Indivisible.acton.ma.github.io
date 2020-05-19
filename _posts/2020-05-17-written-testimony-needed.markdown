@@ -16,3 +16,8 @@ You can [SIGN HERE](https://actionnetwork.org/petitions/mastrong){:target="_blan
 
 ---
 
+The Joint Committee on Revenue has begun their virtual hearing TODAY on [S.2659 - An Act to provide equal stimulus checks to immigrant taxpayers](https://malegislature.gov/Bills/191/S2659).
+
+[Electronic testimony can be submitted HERE](https://docs.google.com/…/1FAIpQLSf08j7Kr23EvRXw8s…/viewform){:target="_blank"} to the committee until this **Friday, May 22 at 5p**!
+
+---
