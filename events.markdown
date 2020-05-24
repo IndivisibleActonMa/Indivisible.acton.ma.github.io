@@ -41,12 +41,12 @@ Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTe
 ---
 
 ## Events
-  
 
-### Check out some more events below!  
-  
-  
-    
+### Check out some more events below!
+
+*Please note - If you want to opt out of Mobilize America texts and emails, you can unsubscribe at the bottom of any of the emails or stop receiving SMS confirmations by replying "NO" to the text messages.*
+
+---
 
 <iframe src="https://www.mobilize.us/embed/indivisibleacton-area/feed/"
 style="border:none;"
