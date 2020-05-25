@@ -136,8 +136,8 @@ Town website: [https://www.stow-ma.gov/](https://www.stow-ma.gov/){:target="_bla
 Town website: [https://www.littletonma.org/town-littleton-information-center](https://www.littletonma.org/town-littleton-information-center){:target="_blank"}  
 
 **Harvard**  
-*June 2* : Special Election  
-*June 23*: Special 37th Middlesex Election  
+*June 2* : Special State Election  
+*June 23*: Town Election  
 Town website: [https://www.harvard.ma.us/town-clerk/pages/early-voting-mail-only-june-2-2020-special-state-election-and-june-23-2020-town](https://www.harvard.ma.us/town-clerk/pages/early-voting-mail-only-june-2-2020-special-state-election-and-june-23-2020-town){:target="_blank"}  
 
 ---
