@@ -158,3 +158,10 @@ blah blah
 <!-- Begin ActionNetwork Signup Form -->
 <link href='https://actionnetwork.org/css/style-embed-v3.css' rel='stylesheet' type='text/css' /><script src='https://actionnetwork.org/widgets/v3/form/join-indivisible-acton?format=js&source=widget'></script><div id='can-form-area-join-indivisible-acton' style='width: 100%'><!-- this div is the target for our HTML insertion --></div>
 <!-- End ActionNetwork Signup Form -->
+
+
+-----
+
+### Other
+
+* Universal Basic Income:  Read about the proposed pilot program in Massachusetts [H.1632](https://malegislature.gov/Bills/191/H1632){:target="_blank"}.  Learn more about Alex Howlett's Basic Income theory [HERE](http://www.greshm.org){:target="_blank"}.
