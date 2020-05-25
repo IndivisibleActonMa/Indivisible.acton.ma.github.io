@@ -27,8 +27,6 @@ Questions?  Email us at *[info@indivisibleacton.org](mailto:info@indivisibleacto
 
 ### Find out what's going on
 
-[Indivisible-Acton Monthly Meetings](http://www.indivisibleacton.org/events/indivisible-acton-monthly-meetings.html)
-
 [Calendar](http://www.indivisibleacton.org/calendar.html)
 
 [Upcoming Events](http://www.indivisibleacton.org/events.html)
