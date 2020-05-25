@@ -21,7 +21,7 @@ Sign up for emails from Indivisible National [HERE](https://indivisible.org){:ta
 
 Learn [How to Take Action](/uploads/Indivisible%20Presentation.pdf){:target="_blank"}
 
-Questions?  Email us at *info@indivisibleacton.org*
+Questions?  Email us at *[info@indivisibleacton.org](mailto:info@indivisibleacton.org)*.  
 
 ---
 
