@@ -5,7 +5,7 @@ layout: page
 ---
 
 ---
-<span style="font-family:Papyrus; font-size:2em; color:red;">***Don't just vote.  Volunteer***</span>  
+<span style="font-family:Papyrus; font-size:2em; color:red;">***Don't just vote.  Volunteer!***</span>  
 
 ---
 
