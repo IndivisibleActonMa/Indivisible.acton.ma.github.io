@@ -15,7 +15,7 @@ is featured: true
 
 * [How To Help George Floyd](https://www.harpersbazaar.com/culture/politics/a32701730/how-to-help-george-floyd-donate/){:target="_blank"}  
 
-* From the Sunrise Movement
+* From the [Sunrise Movement](https://www.sunrisemovement.org){:target="_blank"}  
 
 1. **[Sign the petition to stand with the Minnesota Black Visions Collective and Reclaim the Block in their demand to defund the police and redirect funding to community health and safety strategies](https://click.everyaction.com/k/17676221/202482281/-800463374?nvep=ew0KICAiVGVuYW50VXJpIjogIm5ncHZhbjovL3Zhbi9UU00vVFNNU00vMS84MDU0MSIsDQogICJEaXN0cmlidXRpb25VbmlxdWVJZCI6ICI1NjY5NjViYy1kZWExLWVhMTEtODZlOS0wMDE1NWQwM2I1ZGQiLA0KICAiRW1haWxBZGRyZXNzIjogInNoYXd5YW5nMTAwQGdtYWlsLmNvbSINCn0%3D&hmac=qIYyQTLvaR0JKV1Stde8rKD5enw7NK7oApGmw3wd14Q=&emci=e5ad591a-dda1-ea11-86e9-00155d03b5dd&emdi=566965bc-dea1-ea11-86e9-00155d03b5dd&ceid=136289){:target="_blank"}**.  
 
