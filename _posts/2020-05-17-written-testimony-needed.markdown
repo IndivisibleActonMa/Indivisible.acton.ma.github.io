@@ -13,7 +13,7 @@ is featured: true
 * [Taking Action in Solidarity With Minneapolis](https://indivisible.org/resource/taking-action-solidarity-minneapolis){:target="_blank"}.
 
 
-* [How To Help George Floyd](https://www.harpersbazaar.com/culture/politics/a32701730/how-to-help-george-floyd-donate/){:target="_blank"}\
+* [How To Help George Floyd](https://www.harpersbazaar.com/culture/politics/a32701730/how-to-help-george-floyd-donate/){:target="_blank"}  
 
 * From the Sunrise Movement
 
