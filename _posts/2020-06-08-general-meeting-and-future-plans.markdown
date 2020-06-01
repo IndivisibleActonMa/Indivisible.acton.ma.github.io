@@ -2,8 +2,8 @@
 title: June General Meeting
 date: 2020-06-08 12:30:00 -04:00
 is featured: true
-event-start-date: 2020-05-11 18:30:00 -04:00
-event-end-date: 2020-05-11 19:45:00 -04:00
+event-start-date: 2020-06-08 18:30:00 -04:00
+event-end-date: 2020-06-08 19:45:00 -04:00
 RSVP-link: https://www.mobilize.us/indivisibleacton-area/event/271418/
 ---
 
