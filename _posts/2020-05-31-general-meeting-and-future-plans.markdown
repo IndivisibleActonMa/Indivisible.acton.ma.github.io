@@ -9,7 +9,7 @@ RSVP-link: https://www.mobilize.us/indivisibleacton-area/event/271418/
 
 ### This is a *BIG* year!!
 
-Feeling quarantine fatigue?  Join us for our May General Meeting!
+Feeling quarantine fatigue?  Join us for our June  General Meeting!
 
 ***Zoom*** in to get an update on our [Win 2020 Flip the Senate Campaign](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank"} and learn what actions you can take from home.
 
