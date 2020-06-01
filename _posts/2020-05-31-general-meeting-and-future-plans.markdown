@@ -1,7 +1,6 @@
 ---
-title: May  General Meeting
-date: 2020-05-02 12:30:00 -04:00
-published: false
+title: June General Meeting
+date: 2020-05-31 23:30:00 -04:00
 is featured: true
 event-start-date: 2020-05-11 18:30:00 -04:00
 event-end-date: 2020-05-11 19:45:00 -04:00
@@ -14,9 +13,9 @@ Feeling quarantine fatigue?  Join us for our May General Meeting!
 
 ***Zoom*** in to get an update on our [Win 2020 Flip the Senate Campaign](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank"} and learn what actions you can take from home.
 
-Our focus this month to talk upcoming local elections and voting by mail.
+Please join us to hear amazing activist Rebecca Riccio of Swing Left share moving stories from the field and talk about the work we have to do to get to November.
 
-Our Featured Speaker is [Rep Tami Gouveia - 14th Middlesex](https://www.reptamigouveia.com){:target="_blank"} along with [Rep Lindsay Sabadosa - 1st Hampshire](https://www.lindsaysabadosa.com){:target="_blank"} who will brief us on voting legislature for Massachusetts. 
+We will also hear about what's going on with Indivisible Massachusetts, and upcoming campaigns and candidates that need our support.
 
 Let's advocate for the solutions we need and want!
 
