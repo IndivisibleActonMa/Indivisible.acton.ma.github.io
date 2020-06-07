@@ -47,6 +47,9 @@ var x = setInterval(function() {
 
 ### [Make a plan to WIN in 2020!](http://www.indivisibleacton.org/general-information/election-2020.html)  
 
+*Change will not come if we wait for some other person or if we wait for some other time. We are the ones we've been waiting for.*  
+Barack Obama, Feb 5, 2008
+
 ---
 ### Important Dates
 
