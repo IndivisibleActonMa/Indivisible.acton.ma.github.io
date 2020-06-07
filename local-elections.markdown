@@ -86,6 +86,8 @@ Click [HERE](https://www.sec.state.ma.us/ele/eleidx.htm){:target="_blank"} for m
 ### Special State Election for 37th Middlesex District
 
 Congratulations to Dan Sena, State Representative, 37th Middlesex District!
+Read more [HERE](https://www.sentinelandenterprise.com/2020/06/02/danillo-sena-wins-37th-middlesex-district-representative-seat/){:target="_blank"}  
+
 
 *Remember, we vote again in September!!*
 
