@@ -53,8 +53,6 @@ Barack Obama, Feb 5, 2008
 ---
 ### Important Dates
 
-* ***NEW DATE*** **May 22, 2020** - Last day to register voters for the State Election; registration hours: 2-4p and 7-8p. (by order of the House of Representatives on Mar 23, 2020)  
-* ***NEW DATE*** **June 2, State Special Election for the [37th Middlesex](https://malegislature.gov/Legislators/District/37thMiddlesex){:target="_blank"}**  
 * **Sep 1, 2020** - State Primaries
 * **Nov 3, 2020** - State and Presidential Election  
 
