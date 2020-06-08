@@ -10,7 +10,7 @@ is featured: true
 
 ### Support Justice for Black Lives
 
-* **Donate to Civil Rights groups right here in Boston.** In the words of [Monica Cannon-Grant](https://www.bostonglobe.com/2020/06/06/metro/heres-monica-with-sea-people-behind-her/){:target="_blank"} this is the 2020 Civil Rights Movement. Donate to: [Violence In Boston Inc.](https://www.violenceinboston.org){:target="blank"}, [Massachusetts Bail Fund](https://www.massbailfund.org){:target="blank"}
+* **Donate to Civil Rights groups right here in Boston.** In the words of [Monica Cannon-Grant](https://www.bostonglobe.com/2020/06/06/metro/heres-monica-with-sea-people-behind-her/){:target="_blank"} this is the 2020 Civil Rights Movement. Donate to: [Violence In Boston](https://www.violenceinboston.org){:target="blank"}, [Massachusetts Bail Fund](https://www.massbailfund.org){:target="blank"}.  
 
 * [Taking Action in Solidarity With Minneapolis](https://indivisible.org/resource/taking-action-solidarity-minneapolis){:target="_blank"}.
 
