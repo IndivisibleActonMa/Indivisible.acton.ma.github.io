@@ -26,7 +26,7 @@ Here are possible responses that we may be asked to take:
 
 * **Some sort of mobilization ask** - Depending on the timing of the decision, the status of the ROE Act and the legislature’s progress in addressing COVID-related emergency needs, there are several actions we may be asking people to take, ranging from a petition to legislative contact. This ask will not be final until the Supreme Court decision is released.
 
-**If you can commit to participating in rapid response to the decision in June Medical Services v. Russo, please let us know by emailing Olivia at [osantoro@aclum.org](mailto:osantoro@aclum.or) or contact [Lindapiano4593@gmail.com](mailto:Lindapiano4593@gmail.com).**  
+**If you can commit to participating in rapid response to the decision in [June Medical Services v. Russo](https://www.scotusblog.com/case-files/cases/june-medical-services-llc-v-russo/){:target="_blank"}, please let us know by emailing Olivia at [osantoro@aclum.org](mailto:osantoro@aclum.or) or contact [Lindapiano4593@gmail.com](mailto:Lindapiano4593@gmail.com).**  
 
 There is a Coalition meeting on Wednesday, May 20, 11a-12:30p.  Linda will participate as Indivisible Acton’s liaison. *If you would like to participate, contact [Lindapiano4593@gmail.com](mailto:Lindapiano4593@gmail.com).*  
 
