@@ -34,7 +34,7 @@ Focus on **Pennsylvania**!  Click [HERE](https://sites.google.com/view/win2020pe
 
 ### May Action Tip
 
-Focus on **Ohio***!  Click [HERE](https://sites.google.com/view/win2020personalmonthlystrategy/home/may-ohio?authuser=0){:target="_blank"}  for more info.
+Focus on **Ohio**!  Click [HERE](https://sites.google.com/view/win2020personalmonthlystrategy/home/may-ohio?authuser=0){:target="_blank"}  for more info.
 
 ### April Action Tip
 
