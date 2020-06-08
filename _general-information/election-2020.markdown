@@ -23,9 +23,18 @@ Here are some tools to help **YOU**  make a plan to take effective action to hel
 
 * [Worksheet for contacts](https://drive.google.com/open?id=1b1SqDzTSb3geOk9VTXFmNYtrYHnoyCgR){:target="_blank"}  
 
-* [Worksheet for donation budget](https://drive.google.com/open?id=1IoBTTNQERstFuPNoZg2qefMKoLLhivsm){:target="_blank"} 
+* [Worksheet for donation budget](https://drive.google.com/file/d/1h3YCK23RwZ8a_A_v2LaLt7rcloLFEPMG/view?usp=sharing){:target="_blank"} 
 
 ---
+
+### June Action Tip  
+
+Focus on **Pennsylvania**!  Click [HERE](https://sites.google.com/view/win2020personalmonthlystrategy/home/june-pennsylvania?authuser=0){:target="_blank"}  for more info.  
+
+
+### May Action Tip
+
+Focus on **Ohio***!  Click [HERE](https://sites.google.com/view/win2020personalmonthlystrategy/home/may-ohio?authuser=0){:target="_blank"}  for more info.
 
 ### April Action Tip
 
