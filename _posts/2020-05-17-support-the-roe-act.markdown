@@ -6,13 +6,15 @@ is featured: false
 
 ### UPDATE
 
-May 12 was the deadline for the Judiciary Committee to report out the ROE Act.  *The ROE Act Coalition has learned that the Judiciary Committee has filed to extend both the House and Senate bills to July 31!*
+*The Judiciary Committee has approved an extension to the ROE Act to July 31!*
 
-The Coalition believes the extension will be approved by the House and Senate. Our liaison to the Coalition, Linda Vieira, will keep us posted.  
+Be ready to take action! 
 
-**ALSO**, the Supreme Court of the United States is expected to release an opinion soon on [June Medical Services v. Russo](https://www.scotusblog.com/case-files/cases/june-medical-services-llc-v-russo/){:target="_blank"}, a decision that will impact abortion access for millions of people and could decide the future of abortion rights. The decision is expected to be released at any point between now and the end of June.
+This bill could be voted out of committee and brought to the floor for a vote anytime (we hope!).  Email [Linda](mailto:lindapiano4953@gmail.com),  our liaison to the Coalition, to be a "rapid responder" ready to call your rep and senator when there is any action taken on this bill:  [lindapiano4953@gmail.com](mailto:lindapiano4953@gmail.com)  
 
-We don’t know exactly when it will happen, but we do want to be as prepared as we can to launch a coordinated response. We believe the national spotlight on abortion created by this decision will be an important opportunity to highlight the urgency with which Massachusetts must move forward as so many forces are pushing us back in time.
+**ALSO**, the Supreme Court of the United States is expected to release an opinion soon on [June Medical Services v. Russo](https://www.scotusblog.com/case-files/cases/june-medical-services-llc-v-russo/){:target="_blank"}, a decision that will impact abortion access for millions of people and could decide the future of abortion rights. The decision is expected to be released anytime before June 30.
+
+The national spotlight on abortion created by this decision will be an important opportunity to highlight the urgency with which Massachusetts must move forward as so many forces are pushing us back in time.
 
 **On the day the decision is released, the ROE Act Coalition will let Linda know and set up an emergency call.** They will aim to have that call within the subsequent 24 hours, so we can debrief the decision, share messaging, and discuss an action plan.
 
