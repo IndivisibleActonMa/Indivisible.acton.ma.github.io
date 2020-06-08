@@ -19,7 +19,7 @@ Here are some tools to help **YOU**  make a plan to take effective action to hel
 
 * [Personal Volunteer Plan](https://drive.google.com/file/d/1xu0tnXUHrRnEQOotwek8t1EvxDpjEvHe/view?usp=sharing){:target="_blank"}
 
-* [Volunteer Events](https://drive.google.com/file/d/1_jjEG-C5jJ8QzP0cjWJhKbR7mzHgrYpX/view?usp=sharing){:target="_blank"}. Check out the [events page](http://www.indivisibleacton.org/events.html){:target="_blank"} and the [calendar](http://www.indivisibleacton.org/calendar.html){:target="_blank"} for more info.  
+* Check out the [events page](http://www.indivisibleacton.org/events.html){:target="_blank"} and the [calendar](http://www.indivisibleacton.org/calendar.html){:target="_blank"} for more info.  
 
 * [Worksheet for contacts](https://drive.google.com/open?id=1b1SqDzTSb3geOk9VTXFmNYtrYHnoyCgR){:target="_blank"}  
 
