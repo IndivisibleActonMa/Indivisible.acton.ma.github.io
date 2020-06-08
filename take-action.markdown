@@ -9,16 +9,6 @@ layout: page
 
 ---
 
-### Vote on Tuesday, Jun 2
-
-**Tuesday, Jun 2** is ***The 37th Middlesex Special Election!***
-
-Be sure to **make a plan** about when you are going to vote!!  
-
-
-
----
-
 <p id="demo">
 </p>
 
