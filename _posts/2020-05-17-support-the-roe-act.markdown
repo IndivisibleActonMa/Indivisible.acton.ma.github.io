@@ -28,7 +28,6 @@ Here are possible responses that we may be asked to take:
 
 **If you can commit to participating in rapid response to the decision in [June Medical Services v. Russo](https://www.scotusblog.com/case-files/cases/june-medical-services-llc-v-russo/){:target="_blank"}, please let us know by emailing Olivia at [osantoro@aclum.org](mailto:osantoro@aclum.or) or contact [Lindapiano4593@gmail.com](mailto:Lindapiano4593@gmail.com).**  
 
-There is a Coalition meeting on Wednesday, May 20, 11a-12:30p.  Linda will participate as Indivisible Acton’s liaison. *If you would like to participate, contact [Lindapiano4593@gmail.com](mailto:Lindapiano4593@gmail.com).*  
 
 ---
 Find out if your [lawmakers](https://www.plannedparenthoodaction.org/planned-parenthood-advocacy-fund-massachusetts-inc/issues/roe-act/roe-act-cosponsors){:target="_blank"} support the **ROE Act**.
