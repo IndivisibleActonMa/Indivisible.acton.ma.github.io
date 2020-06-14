@@ -11,7 +11,6 @@ date: 2019-11-22 08:43:00 -05:00
 
 <span style="font-family:Papyrus; font-size:1.5em;">**In light of the declaration of the [State of Emergency to respond to COVID-19](https://www.mass.gov/executive-orders/no-591-declaration-of-a-state-of-emergency-to-respond-to-covid-19){:target="_blank"} *ALL* Indivisible Acton-Area in-person events are temporarily cancelled until further notice, but we are meeting on-line!  Check events below and on the calendar!**</span>
 
-Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTelUwJXx6pW3oI/edit?usp=sharing){:target="_blank"} for ideas on how to be an activist from home!
 
 ---
 
