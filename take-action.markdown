@@ -103,6 +103,11 @@ Click [HERE](http://www.indivisibleacton.org/2020/04/13/covid19.html) for some i
 
 * [Local postcarding resources](https://docs.google.com/document/d/1Qc-LLDHV2egnDt8ge2LZo-DzgmBWK5YnRoPpl1lQ4d0/edit?usp=sharing){:target="_blank"} - Get postcards-to -go action packets from several local resources.  Find out more [HERE](https://docs.google.com/document/d/1Qc-LLDHV2egnDt8ge2LZo-DzgmBWK5YnRoPpl1lQ4d0/edit?usp=sharing){:target="_blank"}.  
 
+* If we're going to be avoiding public gatherings and/or self-quarantined we may as well stay busy. Please, sign up to write letters to low-propensity voters with [Vote Forward](https://votefwd.org){:target="_blank"}. This is a great way to resist: it's so easy and studies have shown these letters to be uniquely effective. All you need is a printer, a pen, and a stamp!  
+
+* Sign up for a postcard campaign with [Postcards to Voters](https://postcardstovoters.org){:target="_blank"}.  
+
+
 * [Together For 2020](https://togetherfor2020.org){:target="_blank"} is a new collaboration of [activist leaders from across the Commonwealth](https://togetherfor2020.org/about-us/){:target="_blank"} ready to help you take effective action.  Find out how [Together For 2020](https://togetherfor2020.org){:target="_blank"} can help **YOU** defeat Trump and take back our democracy!  
 
 * [Sign up to text](https://indivisible.org/payback-project-p2p){:target="_blank} through Indivisible's [PayBack Project](https://www.paybackproject.org){:target="_blank"}.  
@@ -111,10 +116,6 @@ Click [HERE](http://www.indivisibleacton.org/2020/04/13/covid19.html) for some i
  H/T Chop Wood Carry Water  
 
 * Sign up to text with [Open Progress](https://www.openprogress.com){:target="_blank"}. This weekend they are texting voters in PA and Indiana with the organization VoterProChoice.  
-
-* If we're going to be avoiding public gatherings and/or self-quarantined we may as well stay busy. Please, sign up to write letters to low-propensity voters with [Vote Forward](https://votefwd.org){:target="_blank"}. This is a great way to resist: it's so easy and studies have shown these letters to be uniquely effective. All you need is a printer, a pen, and a stamp!  
-
-* Sign up for a postcard campaign with [Postcards to Voters](https://postcardstovoters.org){:target="_blank"}.  
 
 * Join the [Environmental Voter Project](https://www.environmentalvoter.org){:target="_blank"} (EVP) for a [volunteer training webinar](https://www.environmentalvoter.org/events){:target="_blank}. During the webinar, volunteers will be trained in texting and calling environmental voters using EVP’s unique messaging. 
 
