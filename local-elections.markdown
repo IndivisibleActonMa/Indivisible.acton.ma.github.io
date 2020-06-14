@@ -98,7 +98,7 @@ Acton’s Town Clerk posted this week that applications for both the town electi
 **Acton**  
 *June 2*: Acton Town Election  
 *June 2*: Special 37th Middlesex Election (Precincts 3, 4 and 5)  
-TBD – Annual Town Meeting  
+*June 29*: – [Annual Town Meeting](https://www.acton-ma.gov/CivicAlerts.aspx?AID=1160){:target="_blank"}    
 Town website: [https://www.acton-ma.gov](https://www.acton-ma.gov){:target="_blank"} (sign up for alerts)   
 Click [HERE](http://www.lwv-aa.org/2020-election){:target="_blank"} to get more information about the candidates.  
  
