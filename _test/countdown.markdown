@@ -159,7 +159,19 @@ blah blah
 <link href='https://actionnetwork.org/css/style-embed-v3.css' rel='stylesheet' type='text/css' /><script src='https://actionnetwork.org/widgets/v3/form/join-indivisible-acton?format=js&source=widget'></script><div id='can-form-area-join-indivisible-acton' style='width: 100%'><!-- this div is the target for our HTML insertion --></div>
 <!-- End ActionNetwork Signup Form -->
 
+---
+***Absentee voting** is available to any eligible Acton voter, and provides an easy way to keep social distance between you and election workers and other voters.*
 
+1. Print and fill out the [application HERE](https://www.acton-ma.gov/DocumentCenter/View/5571/Absentee-Ballot-Application){:target="_blank"} specifying that you want a ballot for March 31/June 2. 
+
+2. Take a photo of the application, making sure your signature is visible, and email it to [Clerk@acton-ma.gov](mailto:Clerk@acton-ma.gov) or mail it to: Town Clerk,  472 Main Street, Acton MA.
+
+3. The Clerk’s office will mail you the ballots by the next day after they receive your application.  
+
+4. Fill out, sign, and mail the completed ballots back to the Clerk’s office in the provided envelopes.  
+
+
+---
 -----
 
 ### Other
