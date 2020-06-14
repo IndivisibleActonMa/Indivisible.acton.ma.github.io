@@ -32,7 +32,7 @@ Click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTe
 
 *Click [HERE](https://docs.google.com/document/d/1756GTNx8WnkRc2m9HyiEtQ7v8uCmDqVRFngE8GMj-lA/edit?usp=sharing){:target="_blank"} for the latest and greatest on safe postcarding!*
 
-*Check out some ideas on the [Take Action](http://www.indivisibleacton.org/take-action.html){:target="_blank"} page or click [HERE](https://docs.google.com/document/d/1kyf7CodM3JF2oRbuYk25Fi5gzvc3XTelUwJXx6pW3oI/edit?usp=sharing){:target="_blank"}.*
+*Check out some ideas on the [Take Action](http://www.indivisibleacton.org/take-action.html){:target="_blank"} page or one of the events below.*
 
 *And **PLEASE STAY IN TOUCH!** - send us email at  [info@indivisibleacton.org](mailto:info@indivisibleacton.org) with your activism ideas and let us know what you're up to.  Post to the Facebook group with your ideas and activities.  Let's ALL together!!*
 
