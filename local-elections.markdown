@@ -58,19 +58,6 @@ Barack Obama, Feb 5, 2008
 
 ---
 
-***Absentee voting** is available to any eligible Acton voter, and provides an easy way to keep social distance between you and election workers and other voters.*
-
-1. Print and fill out the [application HERE](https://www.acton-ma.gov/DocumentCenter/View/5571/Absentee-Ballot-Application){:target="_blank"} specifying that you want a ballot for March 31/June 2. 
-
-2. Take a photo of the application, making sure your signature is visible, and email it to [Clerk@acton-ma.gov](mailto:Clerk@acton-ma.gov) or mail it to: Town Clerk,  472 Main Street, Acton MA.
-
-3. The Clerk’s office will mail you the ballots by the next day after they receive your application.  
-
-4. Fill out, sign, and mail the completed ballots back to the Clerk’s office in the provided envelopes.  
-
-
----
-
 Click [HERE](https://www.sec.state.ma.us/ele/covid-19/covid-19.htm){:target="_blank"} for the State of MA [COVID-19 Election Updates](https://www.sec.state.ma.us/ele/covid-19/covid-19.htm){:target="_blank"}.  
 
 Make sure you are not an [inactive voter](https://www.sec.state.ma.us/ele/eleinactivevoters/inactivevotersidx.htm){:target="_blank"}.  
