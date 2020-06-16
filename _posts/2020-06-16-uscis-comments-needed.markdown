@@ -1,0 +1,29 @@
+---
+title: Call your Senator TODAY
+date: 2020-06-16 09:58:00 -04:00
+published: false
+is featured: true
+---
+
+Common Cause Massachusetts\
+11 Beacon Street, Suite 620\
+Boston, MA 02108\
+617\.426.9600
+
+Today, your senator is going to vote on S. 2772, a bill that will help keep our elections accessible, participatory, and safe in the face of this unprecedented pandemic. **[Will you tell your Senator to support the legislation and three important changes?](https://u1584542.ct.sendgrid.net/ss/c/P8Elou2Rvc0qoMPEUZrMXcOpy_XqN4R2ZGjoK-5zZnmjXZG4k-_g-iGsOBfobk4B_ioxdLqfu1_8lq92O0eq0olPyCZr27DqZjOHI_WbFH4xVmHtDDGy9a7xF56MJBXJrIDuHe4iA20IPwkF8z2l5JrilFRFI-NAigfa04rAl63IGwCAiZPcT_KSRMYRYRcvMy7t_ak41vSD8znkGRYoMamsYUTOtUltyFPJ9yMZT3B_dpqti25Wuqp3MBpzjxR6u8iJpWlPW_Ut3LJtvk47GqoWDc3nZ35fgIZRSCc-9ZMznyODoP1iO87gady2PlFd0Ep794ZxQFoLoOjmB-bCfQ/32o/VJMRyrH8RmOOCmkJj3_D0g/h0/Dcv-ulLl0a99PM6WrnfmSz4Qe_G_QS0oVQqqAGJK6n8)**
+
+Since the outbreak of COVID-19 in March, have been working with the legislature to craft and move the strongest possible legislation to protect voters and elections officials alike this fall. All of that work now depends on this vote. **[Your senator really needs to hear from you TODAY.](https://u1584542.ct.sendgrid.net/ss/c/P8Elou2Rvc0qoMPEUZrMXcOpy_XqN4R2ZGjoK-5zZnmjXZG4k-_g-iGsOBfobk4B_ioxdLqfu1_8lq92O0eq0olPyCZr27DqZjOHI_WbFH4xVmHtDDGy9a7xF56MJBXJfjwjsOKtXgrJZm3qLBVSjtICY22vbleUVRsgwKsWwEikeKWzh54YCa9DZGBhIfrGcXDEgedR-HfkIYPOOl92oNf6V9cgKN76EkqEQIDZA-_Wo_-LM_xHOXC_Cd55tldny6obtK-Wug-6FO7nm1zDfUDsNB3NY3Qso5WsI63z_p8Rsfw4TI0Md2uv7abzhcjwT_GZ16kPeESHGck33fwBWw/32o/VJMRyrH8RmOOCmkJj3_D0g/h1/KHsXKKu77eFb50De3geMWf5czWvoxLAk0UZxWi_35aw)**
+
+The bill will expand safe voting options for Bay Staters and help ensure that our elections officials can manage a surge in mail balloting. We’ve paid careful attention to and learned from the successes and failures of other states and know that this legislation is a strong step forward. Politics is the art of the possible and we are still pushing for three changes to improve the bill. **[Please ask your senator to support these amendments:](https://u1584542.ct.sendgrid.net/ss/c/P8Elou2Rvc0qoMPEUZrMXcOpy_XqN4R2ZGjoK-5zZnmjXZG4k-_g-iGsOBfobk4B_ioxdLqfu1_8lq92O0eq0olPyCZr27DqZjOHI_WbFH4xVmHtDDGy9a7xF56MJBXJPV2sny_GDIORbfNyeJAoI-UKA8HlE-TAz5_0_Cuv7BS7DasB_58MCAzmco81ZmOit5CHyEI-AFcWgyeYCXtWsB2GZSRzbko9Ud3pGIr4LH1PJ6CssgekqgP_TD5gqDG285FQn2eEkzGfdX5uLImyYE_MOM_DswI5wY_BVWEMk8vHtwh_LEF8nku5a0BEvrttdc7iYlk0qPvkBpCkR0Q-yA/32o/VJMRyrH8RmOOCmkJj3_D0g/h2/V8IeELpLQPOyBxXlNRnIL0HS7Jiml7jxgSqCwO4zhfw)**
+
+* Amendment #3, to strengthen the online portal for requesting ballots.
+
+* Amendment #8, to ensure that *all* ballots sent before or on Election Day in November to be counted. Some mail does not get postmarked and those ballots should be counted too.
+
+* Amendment #33, to give voters enough time to request their absentee ballot. Voters must be given until the Friday before Election Day to put in their request.
+
+It’s never been more important that the people be able to exercise their constitutional right to cast a ballot. This bill will help ensure that they can.
+
+Thanks for all you do,
+
+Pam Wilmot and the Common Cause team.
