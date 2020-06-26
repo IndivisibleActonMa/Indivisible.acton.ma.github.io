@@ -18,6 +18,7 @@ layout: page
 <script>
 // Set the date we're counting down to
 var countDownDate = new Date("Nov 3 2020 00:00");
+var countDownDateMA = new Date("Sep 1 2020 00:00");
 
 // Update the count down every 1 second
 var x = setInterval(function() {
@@ -27,12 +28,18 @@ var x = setInterval(function() {
     
   // Find the distance between now and the count down date
   var t = countDownDate - now;
+  var tMA = countDownDateMA - now;
     
   // Time calculations for days
   var days = Math.floor(t / (1000 * 60 * 60 * 24));
   var hours = Math.floor((t%(1000 * 60 * 60 * 24))/(1000 * 60 * 60)); 
   var minutes = Math.floor((t % (1000 * 60 * 60)) / (1000 * 60)); 
   var seconds = Math.floor((t % (1000 * 60)) / 1000);  
+
+  var daysMA = Math.floor(tMA / (1000 * 60 * 60 * 24));
+  var hoursMA = Math.floor((tMA%(1000 * 60 * 60 * 24))/(1000 * 60 * 60)); 
+  var minutesMA = Math.floor((tMA % (1000 * 60 * 60)) / (1000 * 60)); 
+  var secondsMA = Math.floor((tMA % (1000 * 60)) / 1000);  
 
   // Output the result in an element with id="demo"
   var test1 = document.getElementById("demo");
@@ -41,6 +48,9 @@ var x = setInterval(function() {
 //test1.innerHTML = days + " days left until Nov 3, 2020!";
   test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s until Nov 3, 2020!";
   
+  var testMA = document.GetElementById("demo");
+  testMA.style.font = "italic bold 30px arial, serif";
+  testMA.innerHTML = daysMA + "d " + hoursMA + "h " + minutesMA + "m " + secondsMA + "s until Sep 1, 2020!";
   
   // If the count down is over, write some text 
   if (t < 0) {
