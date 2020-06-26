@@ -15,6 +15,9 @@ layout: page
 <p id="demo">
 </p>
 
+<p id="demoMA">
+</p>
+
 <script>
 // Set the date we're counting down to
 var countDownDate = new Date("Nov 3 2020 00:00");
@@ -48,7 +51,7 @@ var x = setInterval(function() {
 //test1.innerHTML = days + " days left until Nov 3, 2020!";
   test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s until Nov 3, 2020!";
   
-  var testMA = document.GetElementById("demo");
+  var testMA = document.GetElementById("demoMA");
   testMA.style.font = "italic bold 30px arial, serif";
   testMA.innerHTML = daysMA + "d " + hoursMA + "h " + minutesMA + "m " + secondsMA + "s until Sep 1, 2020!";
   
