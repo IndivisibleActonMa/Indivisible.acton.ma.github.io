@@ -8,6 +8,6 @@ layout: calendar
 ---
 
 
-Click [HERE](http://www.indivisibleacton.org/events/upcoming-events.html) for more events of interest.
+Click [HERE](http://www.indivisibleacton.org/events.html) for more events of interest.
 
 ---
