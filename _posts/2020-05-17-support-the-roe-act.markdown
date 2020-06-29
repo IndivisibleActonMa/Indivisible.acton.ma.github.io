@@ -13,7 +13,7 @@ If you would like to participate, please have a handwritten sign that says “Pa
 Hope you can join us, and have a few laughs in the process!  Contact [lindapiano4953@gmail.com](mailto:lindapiano4953@gmail.com) with questions.
 
 **ACTION**: [Sign the petition](https://tinyurl.com/PassROEAct){:target="_blank"}  
-**LISTEN**: [Red Cloaks Radio](https://www.bostonredcloaks.com/red-cloaks-radio){:target="_blank"}. 
+**LISTEN**: [Red Cloaks Radio](https://www.bostonredcloaks.com/red-cloaks-radio){:target="_blank"}.   
 [CONTACT your legislators](http://malegislature.gov/search/findmylegislator){:target="_blank"}  
 
 ---
