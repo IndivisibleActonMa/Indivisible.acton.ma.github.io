@@ -6,7 +6,9 @@ is featured: true
 
 <span style="font-family:Papyrus; font-size:1.2em; color:red;">**PLEASE NOTE:**</span>
 
-<span style="font-family:Papyrus; font-size:1.2em;">Massachusetts needs transparency in the legislature and 100% renewable energy! Please sign these two petitions to get these two referendum questions on the ballot **today**.</span> <span style="font-family:Papyrus; font-size:1.2em; color:red;">  ***Deadline is July 1!***</span>
+<span style="font-family:Papyrus; font-size:1.2em;">Massachusetts needs transparency in the legislature and 100% renewable energy! Please sign these two petitions to get these two referendum questions on the ballot **today**.</span> 
+
+<span style="font-family:Papyrus; font-size:1.2em; color:red;">***Deadline is July 1!***</span>
 
 ---
 
