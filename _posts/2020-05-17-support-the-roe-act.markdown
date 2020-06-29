@@ -1,7 +1,7 @@
 ---
 title: Support the ROE Act!
 date: 2020-05-17 06:15:00 -04:00
-is featured: false
+is featured: true
 ---
 
 This is your chance to make a statement on the ROE Act.
@@ -12,9 +12,9 @@ If you would like to participate, please have a handwritten sign that says “Pa
 
 Hope you can join us, and have a few laughs in the process!  Contact [lindapiano4953@gmail.com](mailto:lindapiano4953@gmail.com) with questions.
 
-**ACTION**: [Sign the petition](https://tinyurl.com/PassROEAct){:target="_blank"}\
-**LISTEN**: [Red Cloaks Radio](https://www.bostonredcloaks.com/red-cloaks-radio){:target="_blank"}\
-[CONTACT your legislators](http://malegislature.gov/search/findmylegislator){:target="_blank"}
+**ACTION**: [Sign the petition](https://tinyurl.com/PassROEAct){:target="_blank"}  
+**LISTEN**: [Red Cloaks Radio](https://www.bostonredcloaks.com/red-cloaks-radio){:target="_blank"}. 
+[CONTACT your legislators](http://malegislature.gov/search/findmylegislator){:target="_blank"}  
 
 ---
 
