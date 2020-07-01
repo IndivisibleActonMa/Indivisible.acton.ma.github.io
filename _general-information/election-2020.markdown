@@ -17,7 +17,7 @@ Click [HERE for our election strategy presentation.](https://drive.google.com/fi
 
 Here are some tools to help **YOU**  make a plan to take effective action to help change the direction of our country.  
 
-* [Personal Volunteer Plan](https://drive.google.com/file/d/1xu0tnXUHrRnEQOotwek8t1EvxDpjEvHe/view?usp=sharing){:target="_blank"}
+* [Personal Volunteer Plan](https://drive.google.com/file/d/1fXYUi0CMiVq2CBV_3STTQrD1LN7fEOIA/view){:target="_blank"}  
 
 * Check out the [events page](http://www.indivisibleacton.org/events.html){:target="_blank"} and the [calendar](http://www.indivisibleacton.org/calendar.html){:target="_blank"} for more info.  
 
