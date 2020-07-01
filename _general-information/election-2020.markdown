@@ -9,7 +9,7 @@ layout: page
 ### *2020 Is a MUST win year!*  
 
 
-Click [HERE for our election strategy presentation.](https://drive.google.com/file/d/1s9X2getFA_Xn2bFTMBzF0JoZOswG-NPY/view?usp=sharing){:target="_blank"}    
+Click [HERE for our election strategy presentation.](https://drive.google.com/file/d/1fXYUi0CMiVq2CBV_3STTQrD1LN7fEOIA/view){:target="_blank"}     
 
 ---  
 
