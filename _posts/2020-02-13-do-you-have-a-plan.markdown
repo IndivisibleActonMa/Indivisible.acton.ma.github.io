@@ -49,7 +49,7 @@ var x = setInterval(function() {
 
 <span style="font-style:Brandon; font-size:1.5em;">Go [HERE](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank"} to see [Indivisible Acton-Area's Election Strategy](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank"} and make YOUR plan!</span>. 
 
-<span style="font-style:Brandon; font-size:1.5em;">Click [HERE](https://sites.google.com/view/win2020personalmonthlystrategy/home/may-ohio?authuser=0){:target="_blank"} for [June Tip - Focus on Pennsylvania](https://sites.google.com/view/win2020personalmonthlystrategy/home/june-pennsylvania?authuser=0){:target="_blank"}!</span>
+<span style="font-style:Brandon; font-size:1.5em;">July Tip - [Focus on Colorado](https://sites.google.com/view/win2020personalmonthlystrategy/home/july-colorado?authuser=0) {:target="_blank"} and [Georgia](https://sites.google.com/view/win2020personalmonthlystrategy/home/july-georgia?authuser=0){:target="_blank"}!</span>  
 
 <span style="font-family:Papyrus; font-size:1em; color:red">2020 is a **MUST** win year.  If we take action, we win!!</span>. 
 
