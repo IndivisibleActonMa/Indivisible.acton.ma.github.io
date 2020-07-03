@@ -17,4 +17,4 @@ If you would like to speak about your candidate/cause (1-2 minutes), please emai
 
 Let's advocate for the solutions we need and want!
 
-### We have a lot of work to do!
+### *We have a lot of work to do!*
