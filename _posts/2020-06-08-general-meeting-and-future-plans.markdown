@@ -1,22 +1,19 @@
 ---
-title: June General Meeting
+title: July General Meeting
 date: 2020-06-08 12:30:00 -04:00
-published: false
 is featured: true
-event-start-date: 2020-06-08 18:30:00 -04:00
-event-end-date: 2020-06-08 19:45:00 -04:00
-RSVP-link: https://www.mobilize.us/indivisibleacton-area/event/271418/
+event-start-date: 2020-07-13 18:30:00 -04:00
+event-end-date: 2020-07-13 19:45:00 -04:00
+RSVP-link: https://www.mobilize.us/indivisibleacton-area/event/284378/
 ---
 
-### This is a *BIG* year!!
+### Less than 125 days to November 3!!!
 
-Feeling quarantine fatigue?  Join us for our June  General Meeting!
+Join us for an update on Vote By Mail in MA, candidates and causes championed by members, Black Lives Matter update and more!
 
-***Zoom*** in to get an update on our [Win 2020 Flip the Senate Campaign](https://sites.google.com/view/win2020personalmonthlystrategy/home){:target="_blank"} and learn what actions you can take from home.
+If you would like to speak about your candidate/cause (1-2 minutes), please email [Christine Brown](mailto:Christine@IndivisibleActon.org) so she can put you on the schedule.  
 
-Please join us to hear amazing activist Rebecca Riccio of Swing Left share moving stories from the field and talk about the work we have to do to get to November.
-
-We will also hear about what's going on with Indivisible Massachusetts, and upcoming campaigns and candidates that need our support.
+***Zoom*** in to get an update on our [Win 2020 Flip the Senate Campaign](http://www.indivisibleacton-elections.org){:target="_blank"} and learn what actions you can take from home.
 
 Let's advocate for the solutions we need and want!
 
