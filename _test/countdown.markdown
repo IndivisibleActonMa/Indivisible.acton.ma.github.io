@@ -214,3 +214,48 @@ blah blah
 ### Other
 
 * Universal Basic Income:  Read about the proposed pilot program in Massachusetts [H.1632](https://malegislature.gov/Bills/191/H1632){:target="_blank"}.  Learn more about Alex Howlett's Basic Income theory [HERE](http://www.greshm.org){:target="_blank"}.
+
+
+----
+### Update on Town and Special Elections from League of Women Voters
+
+*Mail-in early voting is encouraged for any elections taking place before June 30. Mail-in early voting keeps you and the elections workers safe.*
+
+Acton’s Town Clerk posted this week that applications for both the town election and special election on June 2 are available. There are similar messages on your town website for these upcoming elections. We will continue to update this as we learn more about these elections in the coming weeks.
+
+**Acton**  
+*June 2*: Acton Town Election  
+*June 2*: Special 37th Middlesex Election (Precincts 3, 4 and 5)  
+*June 29*: – [Annual Town Meeting](https://www.acton-ma.gov/CivicAlerts.aspx?AID=1160){:target="_blank"}    
+Town website: [https://www.acton-ma.gov](https://www.acton-ma.gov){:target="_blank"} (sign up for alerts)   
+Click [HERE](http://www.lwv-aa.org/2020-election){:target="_blank"} to get more information about the candidates.  
+ 
+**Boxborough**. 
+*June 2* : Boxborough Town Election   
+*June 2* : Special 37th Middlesex Election       
+*June 15*: Annual Town Meeting    
+Town website: [https://www.boxborough-ma.gov/](https://www.boxborough-ma.gov/){:target="_blank"}  
+
+**Maynard**  
+*May 5* : Maynard Town Election  
+*May 18*: Annual Town Meeting  
+Town website: [https://www.townofmaynard-ma.gov/](https://www.townofmaynard-ma.gov/){:target="_blank"}  
+
+**Stow**  
+*June 22*: Stow Annual Town Meeting  
+*June 27*: Stow Town Election  
+Town website: [https://www.stow-ma.gov/](https://www.stow-ma.gov/){:target="_blank"}  
+
+**Littleton**  
+*June 20*: Littleton Town Election  
+Town website: [https://www.littletonma.org/town-littleton-information-center](https://www.littletonma.org/town-littleton-information-center){:target="_blank"}  
+
+**Harvard**  
+*June 2* : Special State Election  
+*June 23*: Town Election  
+Town website: [https://www.harvard.ma.us/town-clerk/pages/early-voting-mail-only-june-2-2020-special-state-election-and-june-23-2020-town](https://www.harvard.ma.us/town-clerk/pages/early-voting-mail-only-june-2-2020-special-state-election-and-june-23-2020-town){:target="_blank"}  
+
+---
+### E-signatures on Ballot Questions  
+
+Secretary of State William Galvin has agreed to a new court judgement allowing [ballot question campaigns to collect the 13,000-plus signatures electronically](https://www.lowellsun.com/2020/04/30/accord-clears-way-for-e-sigs-on-ballot-questions/){:target="_blank"}.  
