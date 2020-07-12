@@ -70,11 +70,7 @@ Click [HERE](https://www.sec.state.ma.us/ele/eleidx.htm){:target="_blank"} for m
 
 ---
 
-### Special State Election for 37th Middlesex District
-
-Congratulations to Dan Sena, State Representative, 37th Middlesex District!
-Read more [HERE](https://www.sentinelandenterprise.com/2020/06/02/danillo-sena-wins-37th-middlesex-district-representative-seat/){:target="_blank"}  
-
+### Congratulations to Dan Sena, State Representative 37th Middlesex District  
 
 *Remember, we vote again in September!!*
 
@@ -84,8 +80,6 @@ Read more [HERE](https://www.sentinelandenterprise.com/2020/06/02/danillo-sena-w
 * Boxborough; Shirley  
 * Harvard (Worcester Co.)    
 * Lunenburg: Precincts A, C, D (Worcester Co.)  
-
-[Letter from Rep Benson to her constituents](https://jenbenson.org/2019/12/19/a-letter-to-my-constituents/){:target="_blank"} 
 
 ---
 
