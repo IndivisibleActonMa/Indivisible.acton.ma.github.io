@@ -1,6 +1,7 @@
 ---
 title: July General Meeting
 date: 2020-06-08 12:30:00 -04:00
+published: false
 is featured: true
 event-start-date: 2020-07-13 18:30:00 -04:00
 event-end-date: 2020-07-13 19:45:00 -04:00
