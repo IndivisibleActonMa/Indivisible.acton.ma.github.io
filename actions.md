@@ -65,4 +65,6 @@ Email:  *newsletter@indivisibleacton.org*
 
 [Indivisible Westford](https://indivisiblewestford.org){:target="_blank"} 
 
-[Minuteman Indivisible](https://www.minutemanindivisible.org){:target="_blank"} 
+[Minuteman Indivisible](https://www.minutemanindivisible.org){:target="_blank"}   
+
+[Together For 2020](https://togetherfor2020.org){:target="_blank"} 
