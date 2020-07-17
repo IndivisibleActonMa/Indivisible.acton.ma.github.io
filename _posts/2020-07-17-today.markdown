@@ -8,7 +8,7 @@ We are in the home stretch for the drivers licenses campaign so it's all hands o
 
 [The Work and Family Mobility Act](https://www.aclum.org/sites/default/files/field_documents/work_and_family_mobily_act.pdf){:target="_blank"} would enable all qualified state residents to apply for a standard Massachusetts driver’s license, regardless of immigrant status, while keeping our Commonwealth in full compliance with REAL ID requirements.
 
-<span style="font-family:Papyrus; font-size:1.2em;">The Work and Family Mobility Act needs to be passed by **TUESDAY, July 21**.</span>
+<span style="font-family:Papyrus; font-size:1.2em; color:red">The Work and Family Mobility Act needs to be passed by **TUESDAY, July 21**.</span>
 
 Immigrant leaders from across the state have decided that they will CAMP OUT at the state house Friday-Tuesday to demonstrate just how urgently the community needs drivers licenses.
 
