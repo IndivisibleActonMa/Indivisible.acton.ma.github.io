@@ -47,6 +47,12 @@ document.getElementById("demo").innerHTML = "Let's Get Out and VOTE!!!";
 </script>
 
 ---
+  
+*"Do not get lost in a sea of despair. Be hopeful, be optimistic. Our struggle is not the struggle of a day, a week, a month, or a year, it is the struggle of a lifetime. Never, ever be afraid to make some noise and get in good trouble, necessary trouble."*
+
+[Rep John Lewis, June 2018](https://twitter.com/repjohnlewis/status/1011991303599607808?s=20){:target="_blank"}. 
+
+---
 
 ["*Be a fanatical optimist. Make a plan. Take action.*"](https://www.wbur.org/cognoscenti/2020/02/05/trump-impeachment-acquittal-steve-almond){:target="_blank"}  Steve Almond  
 
