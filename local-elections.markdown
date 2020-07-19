@@ -47,8 +47,14 @@ var x = setInterval(function() {
 
 ### [Make a plan to WIN in 2020!](http://www.indivisibleacton-elections.org){:target="_blank"} 
 
-*Change will not come if we wait for some other person or if we wait for some other time. We are the ones we've been waiting for.*  
-Barack Obama, Feb 5, 2008
+*"Change will not come if we wait for some other person or if we wait for some other time. We are the ones we've been waiting for."*  
+
+Barack Obama, Feb 5, 2008   
+
+
+*“My dear friends: Your vote is precious, almost sacred. It is the most powerful nonviolent tool we have to create a more perfect union."*  
+
+— John Lewis, A 2012 speech in Charlotte, NC  
 
 ---
 ### Important Dates
