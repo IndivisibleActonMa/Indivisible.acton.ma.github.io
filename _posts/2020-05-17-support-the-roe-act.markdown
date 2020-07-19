@@ -6,15 +6,12 @@ is featured: true
 
 This is your chance to make a statement on the ROE Act.
 
-Join us for [Wednesday night postcards, 6:30-7:30p](https://www.mobilize.us/indivisibleacton-area/event/268602/){:target="_blank"}. At 7:15p, we will be making a video like the one made by the Boston Red Cloaks.  Jessie of the Boston Red Cloaks will be joining us to help with the video clips.  Click [HERE](https://www.facebook.com/bostonredcloaks/videos/1436054239924457/UzpfSTEwMDAwODYwNDg1MDk5OTpWSzoyNjU5NjIxNzg3NTg1NzI0/){:target="_blank"} to see the reference video.
+It could be YEARS before we get another chance if we don't pass the ROE Act by July 31st when the MA legislative session ends. CONTACT your STATE REP & STATE SENATOR TODAY!  Let's do this!
 
-If you would like to participate, please have a handwritten sign that says “Pass the ROE Act” on one side and “Pass it on” on the other side. The video clips will be sent to the Boston Red Cloaks for editing.
+**ACTION**: [Sign the petition](https://tinyurl.com/PassROEAct){:target="_blank"}\
+**LISTEN**: [Red Cloaks Radio](https://www.bostonredcloaks.com/red-cloaks-radio){:target="_blank"}.\\
 
-Hope you can join us, and have a few laughs in the process!  Contact [lindapiano4953@gmail.com](mailto:lindapiano4953@gmail.com) with questions.
-
-**ACTION**: [Sign the petition](https://tinyurl.com/PassROEAct){:target="_blank"}  
-**LISTEN**: [Red Cloaks Radio](https://www.bostonredcloaks.com/red-cloaks-radio){:target="_blank"}.   
-[CONTACT your legislators](http://malegislature.gov/search/findmylegislator){:target="_blank"}  
+**[Contact your state lawmakers](https://t.co/29fvInvWA0?amp=1){:target="_blank"}**
 
 ---
 
