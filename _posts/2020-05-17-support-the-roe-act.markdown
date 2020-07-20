@@ -8,8 +8,9 @@ This is your chance to make a statement on the ROE Act.
 
 It could be YEARS before we get another chance if we don't pass the ROE Act by July 31st when the MA legislative session ends. CONTACT your STATE REP & STATE SENATOR TODAY!  Let's do this!
 
-**ACTION**: [Sign the petition](https://tinyurl.com/PassROEAct){:target="_blank"}\
-**LISTEN**: [Red Cloaks Radio](https://www.bostonredcloaks.com/red-cloaks-radio){:target="_blank"}.\\
+**ACTION**: [Sign the petition](https://tinyurl.com/PassROEAct){:target="_blank"}  
+
+**LISTEN**: [Red Cloaks Radio](https://www.bostonredcloaks.com/red-cloaks-radio){:target="_blank"}.  
 
 **[Contact your state lawmakers](https://t.co/29fvInvWA0?amp=1){:target="_blank"}**
 
