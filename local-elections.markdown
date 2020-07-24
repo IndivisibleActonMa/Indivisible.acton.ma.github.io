@@ -59,11 +59,19 @@ Barack Obama, Feb 5, 2008
 ---
 ### Important Dates
 
-* **Sep 1, 2020** - State Primaries
-* **Nov 3, 2020** - State and Presidential Election  
+* **Sep  1, 2020** - State Primaries
+* **Nov  3, 2020** - State and Presidential Election  
 
 ---
 
+### Voting By Mail
+
+[HERE](http://www.sec.state.ma.us/ele/eleev/early-voting-by-mail.htm){:target="_blank"} is everything you need to know about how to request your mail-in ballot:  [www.MailMyBallotMA.com](http://www.sec.state.ma.us/ele/eleev/early-voting-by-mail.htm){:target="_blank"}  
+
+*Voting by mail is available to all voters for all elections in 2020. You do not need an excuse to vote by mail this year.  
+*
+
+---
 Click [HERE](https://www.sec.state.ma.us/ele/covid-19/covid-19.htm){:target="_blank"} for the State of MA [COVID-19 Election Updates](https://www.sec.state.ma.us/ele/covid-19/covid-19.htm){:target="_blank"}.  
 
 Make sure you are not an [inactive voter](https://www.sec.state.ma.us/ele/eleinactivevoters/inactivevotersidx.htm){:target="_blank"}.  
