@@ -68,8 +68,7 @@ Barack Obama, Feb 5, 2008
 
 [HERE](http://www.sec.state.ma.us/ele/eleev/early-voting-by-mail.htm){:target="_blank"} is everything you need to know about how to request your mail-in ballot:  [www.MailMyBallotMA.com](http://www.sec.state.ma.us/ele/eleev/early-voting-by-mail.htm){:target="_blank"}  
 
-*Voting by mail is available to all voters for all elections in 2020. You do not need an excuse to vote by mail this year.  
-*
+*Voting by mail is available to all voters for all elections in 2020. You do not need an excuse to vote by mail this year.*
 
 ---
 Click [HERE](https://www.sec.state.ma.us/ele/covid-19/covid-19.htm){:target="_blank"} for the State of MA [COVID-19 Election Updates](https://www.sec.state.ma.us/ele/covid-19/covid-19.htm){:target="_blank"}.  
