@@ -81,6 +81,8 @@ Click [HERE](https://www.sec.state.ma.us/ele/eleidx.htm){:target="_blank"} for m
 
 [Make sure you are registered to vote](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}!!  *Deadline to register is Aug 12.* 
 
+[MA Election Division](https://www.sec.state.ma.us/ele/eleidx.htm){:target="_blank"}  
+
 ---
 
 ### Congratulations to Dan Sena, State Representative 37th Middlesex District  
