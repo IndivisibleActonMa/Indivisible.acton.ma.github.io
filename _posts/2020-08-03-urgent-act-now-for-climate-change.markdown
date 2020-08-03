@@ -1,7 +1,6 @@
 ---
 title: Declaring a Climate Emergency in Acton, MA
 date: 2020-08-03 19:19:00 -04:00
-published: false
 is featured: true
 main-image: "/uploads/IMG_1497.jpg"
 ---
