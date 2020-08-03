@@ -9,7 +9,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 <span style="font-family:Papyrus; font-size:1.5em;">Ordinary people with extraordinary vision can redeem the soul of America by getting in what I call good trouble, necessary trouble. Voting and participating in the democratic process are key. The vote is the most powerful nonviolent change agent you have in a democratic society. You must use it because it is not guaranteed. You can lose it.</span>
 
-<span style="font-family:Papyrus; font-size:1.0em;">[John Lewis, July 2020](https://www.nytimes.com/2020/07/30/opinion/john-lewis-civil-rights-america.html){target="_blank"}</span>
+<span style="font-family:Papyrus; font-size:1.0em;">[John Lewis, July 2020](https://www.nytimes.com/2020/07/30/opinion/john-lewis-civil-rights-america.html){:target="_blank"}</span>
 
 ---
 
