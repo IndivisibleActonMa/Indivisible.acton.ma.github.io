@@ -1,11 +1,11 @@
 ---
-title: Declaring a Climate Emergency in Acton, MA
+title: Acton - Act for Climate Change
 date: 2020-08-03 19:19:00 -04:00
 is featured: true
 main-image: "/uploads/IMG_1497.jpg"
 ---
 
-## [Declaring a Climate Emergency: A Better Future Starting Now](https://www.actonclimatecoalition.org/#declaration){:target="_blank"}
+### [Declaring a Climate Emergency: A Better Future Starting Now](https://www.actonclimatecoalition.org/#declaration){:target="_blank"}
 
 Indivisible Acton-Area supports the work of the [Acton Climate Coalition](https://ActonClimateCoalition.org){:target="_blank"}  to pass this [declaration of a Climate Emergency](https://www.actonclimatecoalition.org/#declaration){:target="_blank"} at Acton Special Town Meeting in September.
 
