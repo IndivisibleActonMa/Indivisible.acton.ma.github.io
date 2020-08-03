@@ -74,6 +74,8 @@ You can register [HERE](https://www.mobilize.us/indivisibleacton-area/event/2709
 
 ---
 
+### Other resources 
+
 * Click **[HERE](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal){:target="_blank"}** to see events published on Indivisible Acton's Public Facebook page.
 
 
@@ -82,20 +84,6 @@ You can register [HERE](https://www.mobilize.us/indivisibleacton-area/event/2709
 * [Sign up for our newsletter](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton){:target="_blank"} to find out more ways you can get involved!
 
 * Find us and many other opportunities on [Mobilize America](https://www.mobilize.us/indivisibleacton-area/){:target="_blank"}.
-
----
-
-## Postcarding and More
-
-***In-person meet ups are temporarily suspended, but you can write postcards or text from your kitchen table!***
-
-*Click [HERE](https://docs.google.com/document/d/1756GTNx8WnkRc2m9HyiEtQ7v8uCmDqVRFngE8GMj-lA/edit?usp=sharing){:target="_blank"} for the latest and greatest on safe postcarding!*
-
-*Check out some ideas on the [Take Action](http://www.indivisibleacton.org/take-action.html){:target="_blank"} page or one of the events below.*
-
-*And **PLEASE STAY IN TOUCH!** - send us email at  [info@indivisibleacton.org](mailto:info@indivisibleacton.org) with your activism ideas and let us know what you're up to.  Post to the Facebook group with your ideas and activities.  Let's ALL together!!*
-
-***[Click HERE for more info about our meeting guidelines with regards to COVID-19](https://docs.google.com/document/d/1DSwMiE1I9syvJv1nP2i_8ihsBGCG6TDnPMcMSNtrry4/view){:target="_blank"}.***
 
 ---
 
