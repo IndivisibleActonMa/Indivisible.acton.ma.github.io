@@ -23,7 +23,7 @@ We will start at 4 with training using the new Sara Gideon script, then we’ll 
 
 For more formal training, we encourage you to attend one of the weekly sessions [HERE](https://docs.google.com/document/d/1gO8KTjylSolnqE0MYWZBor-lh0rp1Sv8-b_MJn8TD-c/edit?usp=sharing){:target="_blank"}
 
-Register [HERE](https://www.mobilize.us/indivisibleacton-area/event/281380/){:target="_blank"} to get a zoom link and join us!
+[Register HERE](https://www.mobilize.us/indivisibleacton-area/event/281380/){:target="_blank"} to get a zoom link and join us!
 
 **Tuesday 1:00 – 2:00 PM: Touch Base Tuesdays – Election 2020 Update**
 
@@ -33,7 +33,7 @@ Let’s get together to update/review/share news and actions people can take to 
 
 *August: Arizona and Maine*
 
-Register [HERE](https://www.mobilize.us/indivisibleacton-area/event/270060/){:target="_blank"} to get a zoom link and join us.
+[Register HERE](https://www.mobilize.us/indivisibleacton-area/event/270060/){:target="_blank"} to get a zoom link and join us.
 
 **Tuesday 6:30 – 8:00 PM: Carolina in My Mind: Phone banking to Super State, North Carolina**
 
@@ -43,12 +43,12 @@ What a great night last week! We had 21 callers and made a whopping 682 calls!
 
 These calls are really making a difference in NC. All 3 candidates, Biden, Cunningham and Cooper are up in the polls!
 
-Please join us! Register [HERE](https://www.mobilize.us/wmatakebackourdemocracy/event/282233/){:target="_blank"}.
+Please join us! [Register HERE](https://www.mobilize.us/wmatakebackourdemocracy/event/282233/){:target="_blank"}.
 
 **Wednesday 6:30 – 7:30 PM: Pandemic Post Carding and Check-In**
 
 Join us for an hour of shared post carding and conversation over Zoom!
-Register [HERE](https://www.mobilize.us/indivisibleacton-area/event/268602/){:target="_blank"} to get a zoom link.
+[Register HERE](https://www.mobilize.us/indivisibleacton-area/event/268602/){:target="_blank"} to get a zoom link.
 
 **Thursday 1:00 – 2:00PM: Texting Thursdays – Demo and Training**
 
@@ -56,7 +56,7 @@ Register [HERE](https://www.mobilize.us/indivisibleacton-area/event/268602/){:ta
 
 This is an Intro to Texting class for beginners and refreshers. Christine will demonstrate live cases texting with the simple to use MoveOn platform which provides a variety of interesting and important campaigns around the country.  We will help you set up your account so you can text by the end of the class.
 
-Register [HERE](https://www.mobilize.us/indivisibleacton-area/event/270069/){:target="_blank"} to get a zoom link and join us!
+[Register HERE](https://www.mobilize.us/indivisibleacton-area/event/270069/){:target="_blank"} to get a zoom link and join us!
 
 **Friday 4:00 – 5:00PM: Happy Hour Fridays Texting Together**
 
@@ -64,13 +64,13 @@ Let's zoom together while we text! This is a happy hour social event on Fridays 
 
 Please bring your favorite cocktail (quarantinis or beverage of your choice) and good spirits.
 
-Register [HERE](https://www.mobilize.us/indivisibleacton-area/event/274611/){:target="_blank"}  to get a zoom link.
+[Register HERE](https://www.mobilize.us/indivisibleacton-area/event/274611/){:target="_blank"}  to get a zoom link.
 
 **Saturdays 10:00 – 11:00 AM:  Winning Saturdays - Coffee, Conversations, Postcarding**
 
 Let's get together virtually and share what we're doing to take action! Bring your coffee and your project ideas!
 
-You can register [HERE](https://www.mobilize.us/indivisibleacton-area/event/270980/){:target="_blank"} in advance to put on your calendar and get reminders.  You can also register as you join us!
+You can [register HERE](https://www.mobilize.us/indivisibleacton-area/event/270980/){:target="_blank"} in advance to put on your calendar and get reminders.  You can also register as you join us!
 
 ---
 
