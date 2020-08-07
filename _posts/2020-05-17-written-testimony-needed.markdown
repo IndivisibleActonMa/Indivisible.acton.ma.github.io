@@ -7,6 +7,15 @@ is featured: true
 <span style="font-family:Papyrus; font-size:1.5em; color:red;">**ANNOUNCEMENTS:**</span>
 
 ---
+### No Cost Calls
+
+Please help push the Senate and House to pass No Cost Calls legislation ASAP!
+
+Let's #KeepFamiliesConnected and urge our legislators to pass [S.2846](https://malegislature.gov/Bills/191/S2846){:target="_blank"}.  
+
+Get more info [HERE](https://docs.google.com/document/d/e/2PACX-1vR_heu66surcN4NlK53CrzPPyHJiajisZZu-QYHwJJkWX5WAsGlVT5c2PU0-wPHm2s1F50aZB_3Q53m/pub){:target="_blank"}  
+
+---
 
 ### Support Justice for Black Lives
 
