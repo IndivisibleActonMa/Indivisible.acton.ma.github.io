@@ -7,7 +7,9 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
-### Come to the [August General Meeting](https://www.mobilize.us/indivisibleacton-area/event/293171/){:target="_blank"}, August 10, 2020!  Click [HERE](http://www.indivisibleacton.org/2020/08/06/general-meeting-and-future-plans.html) for more info.
+### Come to the [August General Meeting](https://www.mobilize.us/indivisibleacton-area/event/293171/){:target="_blank"}, August 10, 2020!
+
+Click [HERE](http://www.indivisibleacton.org/2020/08/06/general-meeting-and-future-plans.html) for more info.
 
 ---
 
