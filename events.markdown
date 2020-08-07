@@ -89,7 +89,7 @@ You can [register HERE](https://www.mobilize.us/indivisibleacton-area/event/2709
 
 ## Events
 
-### Check out some more events below!
+### Check out more events below!
 
 *Please note - If you want to opt out of Mobilize America texts and emails, you can unsubscribe at the bottom of any of the emails or stop receiving SMS confirmations by replying "NO" to the text messages.*
 
