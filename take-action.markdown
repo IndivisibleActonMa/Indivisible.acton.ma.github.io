@@ -75,6 +75,8 @@ Please share the petition widely.
 
 ***Indivisible Acton-Area is proud to endorse the [Acton Climate Coalition](https://www.actonclimatecoalition.org){:target="_blank"} in declaring a climate emergency in Acton.  Click [HERE](https://www.actonclimatecoalition.org){:target="_blank"} to learn more.***  
 
+Click [HERE](https://www.actonclimatecoalition.org/#webinars){:target="_blank"} to sign up for a webinar to learn about learn about recent climate change news and why we must [declare a Climate Emergency](https://www.actonclimatecoalition.org/#declaration){:target="_blank"}.  
+ 
 
 It’s super important that we get as many people on informed as  possible! *Let’s make climate change the number one issue for voters across Massachusetts.* 
  
