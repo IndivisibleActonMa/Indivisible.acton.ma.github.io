@@ -43,13 +43,15 @@ Let’s get together to update/review/share news and actions people can take to 
 
 **Tuesday 6:30 – 8:00 PM: Carolina in My Mind: Phone banking to Super State, North Carolina**
 
-Indivisible Acton Area joined Indivisible Western MA Take Back Our Democracy in their Tues night NC phonebanking to identify voters in the three key national races in North Carolina - presidential, governorship, and US Senate.
+Indivisible Acton Area has joined Indivisible Western MA Take Back Our Democracy in their Tues night NC phonebanking to identify voters in the three key national races in North Carolina - presidential, governorship, and US Senate.
 
 What a great night last week! We had 21 callers and made a whopping 682 calls!
 
 These calls are really making a difference in NC. All 3 candidates, Biden, Cunningham and Cooper are up in the polls!
 
-Please join us! [Register HERE](https://www.mobilize.us/wmatakebackourdemocracy/event/282233/){:target="_blank"}.
+Join [Shaw](mailto:shaw@indivisibleacton.org), [Denise](mailto:denise@indivisibleacton.org), and other IA members.  
+
+Please [REGISTER HERE](https://us02web.zoom.us/meeting/register/tZEvfu-tqzwrE9EebmPU53lB1axn8YOEpZV_){:target="_blank"}.  *Note - This is a NEW link.*
 
 **Wednesday 6:30 – 7:30 PM: Pandemic Post Carding and Check-In**
 
@@ -63,6 +65,12 @@ Join us for an hour of shared post carding and conversation over Zoom!
 This is an Intro to Texting class for beginners and refreshers. Christine will demonstrate live cases texting with the simple to use MoveOn platform which provides a variety of interesting and important campaigns around the country.  We will help you set up your account so you can text by the end of the class.
 
 [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/270069/){:target="_blank"} to get a zoom link and join us!
+
+**Thursday 6:30 - 8:30 PM: Ridin’ with Biden - Phone Bank**
+ 
+Join MetroWest+ for Biden to call voters in swing states to vote for Biden and Democrats up and down the ballot. Very simple script.  Training will be provided.  Join shaw, denise, and other IA members.  Contact Peg at  peggidy@verizon.net for more details.
+ 
+[Register HERE](https://www.mobilize.us/joebiden/event/286181/){:target="_blank"}.  
 
 **Friday 4:00 – 5:00PM: Happy Hour Fridays Texting Together**
 
