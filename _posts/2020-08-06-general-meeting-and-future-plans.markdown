@@ -1,6 +1,7 @@
 ---
 title: August General Meeting
 date: 2020-08-06 22:30:00 -04:00
+published: false
 is featured: true
 event-start-date: 2020-08-10 18:30:00 -04:00
 event-end-date: 2020-08-10 19:45:00 -04:00
