@@ -51,7 +51,7 @@ These calls are really making a difference in NC. All 3 candidates, Biden, Cunni
 
 Join [Shaw](mailto:shaw@indivisibleacton.org), [Denise](mailto:denise@indivisibleacton.org), and other IA members.  
 
-Please [REGISTER HERE](https://us02web.zoom.us/meeting/register/tZEvfu-tqzwrE9EebmPU53lB1axn8YOEpZV_){:target="_blank"}.  *Note - This is a NEW link.*
+Please [Register HERE](https://us02web.zoom.us/meeting/register/tZEvfu-tqzwrE9EebmPU53lB1axn8YOEpZV_){:target="_blank"}.  *Note - This is a NEW link.*
 
 **Wednesday 6:30 – 7:30 PM: Pandemic Post Carding and Check-In**
 
