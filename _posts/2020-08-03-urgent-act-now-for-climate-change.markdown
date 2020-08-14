@@ -7,7 +7,7 @@ main-image: "/uploads/IMG_1497.jpg"
 
 ### [Declaring a Climate Emergency: A Better Future Starting Now](https://www.actonclimatecoalition.org/#declaration){:target="_blank"}
 
-Indivisible Acton-Area supports the work of the [Acton Climate Coalition](https://ActonClimateCoalition.org){:target="_blank"}  to pass this [declaration of a Climate Emergency](https://www.actonclimatecoalition.org/#declaration){:target="_blank"} at Acton Special Town Meeting in September.
+Indivisible Acton-Area supports the work of the [Acton Climate Coalition](https://ActonClimateCoalition.org){:target="_blank"}  to pass this [declaration of a Climate Emergency](https://www.actonclimatecoalition.org/#declaration){:target="_blank"} at Acton Special Town Meeting September 8.
 
 ### Webinars
 
