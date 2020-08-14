@@ -77,24 +77,11 @@ Make sure you are not an [inactive voter](https://www.sec.state.ma.us/ele/eleina
 
 [Click HERE to check your registration status](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}.  
 
-Click [HERE](https://www.sec.state.ma.us/ele/eleidx.htm){:target="_blank"} for more voter information.
+Click [HERE](https://www.sec.state.ma.us/ele/eleidx.htm){:target="_blank"} for more voter and election information in MA.
 
 [Make sure you are registered to vote](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}!!  *Deadline to register is Aug 12.* 
 
-[MA Election Division](https://www.sec.state.ma.us/ele/eleidx.htm){:target="_blank"}  
-
----
-
-### Congratulations to Dan Sena, State Representative 37th Middlesex District  
-
-*Remember, we vote again in September!!*
-
-37th Middlesex District consists of:
-* Acton: Precincts 3, 4, 5  
-* Ayer: Precinct 2  
-* Boxborough; Shirley  
-* Harvard (Worcester Co.)    
-* Lunenburg: Precincts A, C, D (Worcester Co.)  
+Get the 411 on Voting from the [League of Women Voters](https://www.vote411.org/massachusetts){:target="_blank"}.  
 
 ---
 
