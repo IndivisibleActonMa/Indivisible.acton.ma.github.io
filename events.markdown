@@ -7,11 +7,6 @@ date: 2019-11-22 08:43:00 -05:00
 
 ---
 
-### Come to the [August General Meeting](https://www.mobilize.us/indivisibleacton-area/event/293171/){:target="_blank"}, August 10, 2020!
-
-Click [HERE](http://www.indivisibleacton.org/2020/08/06/general-meeting-and-future-plans.html) for more info.
-
----
 
 <span style="font-family:Papyrus; font-size:1.5em;">Ordinary people with extraordinary vision can redeem the soul of America by getting in what I call good trouble, necessary trouble. Voting and participating in the democratic process are key. The vote is the most powerful nonviolent change agent you have in a democratic society. You must use it because it is not guaranteed. You can lose it.</span>
 
