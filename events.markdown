@@ -15,7 +15,7 @@ date: 2019-11-22 08:43:00 -05:00
 ---
 ### Special events this week Aug 17-23
 
-** Thursday, Aug 20 9:00 PM: Convention Watch Party Day 4**  
+**Thursday, Aug 20 9:00 PM: Convention Watch Party Day 4**  
 
 Join Indivisible Acton to watch the fourth and final day of the Democratic Convention virtually from the comfort of your own home! We look forward to watching together as Biden accepts the Democratic nomination. Be sure to bring your favorite Biden swag. We're polishing our aviator sunglasses and making sure our Biden beveragewear is ready to go.  
  
