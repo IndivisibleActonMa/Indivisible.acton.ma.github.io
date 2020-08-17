@@ -13,6 +13,35 @@ date: 2019-11-22 08:43:00 -05:00
 <span style="font-family:Papyrus; font-size:1.0em;">[John Lewis, July 2020](https://www.nytimes.com/2020/07/30/opinion/john-lewis-civil-rights-america.html){:target="_blank"}</span>
 
 ---
+### Special events this week Aug 17-23
+
+** Thursday, Aug 20 9:00 PM: Convention Watch Party Day 4**  
+
+Join Indivisible Acton to watch the fourth and final day of the Democratic Convention virtually from the comfort of your own home! We look forward to watching together as Biden accepts the Democratic nomination. Be sure to bring your favorite Biden swag. We're polishing our aviator sunglasses and making sure our Biden beveragewear is ready to go.  
+ 
+[RSVP HERE](https://www.mobilize.us/indivisibleacton-area/event/299642/){:target="_blank"}  
+
+**Saturday, Aug 22 3:00 - 6:00 PM:  ONE MILLION Voters Text-a-Thon Party**. 
+
+The goal is to reach one million voters in swing states who need to hear how to sign up for vote by mail.  Here is a fun and effective way for us to reach them! Together for 2020 is organizing a Text-a-thon with Sammy Bananas and other DJ’s, music and surprise guests. Anyone can text right from their computer or tablet or smartphone.
+ 
+For this text-a-thon, you will need to know how to join and use Resistance Labs' version of the texting platform Spoke.  If you have texted with Move On, you will find it easy to text with Resistance Labs. They also use Spoke, but they do have an additional step of tagging that you will need to learn (takes 5 min). 
+
+Also please review the OPT OUT rules as they are different for each organization.   
+
+If you need training or a refresher on Resistance Labs' texting:
+
+* You can find a terrific do-it-yourself training Together for 2020’s Texting Action Kit for Resistance Labs: [https://togetherfor2020.org/action-recipe/texting-with-resistance-labs/](https://togetherfor2020.org/action-recipe/texting-with-resistance-labs/){:target="_blank"}.  
+
+* You can find the schedule of virtual trainings on Together for 2020's texting calendar: [https://togetherfor2020.org/take-action/tactic/text/](https://togetherfor2020.org/take-action/tactic/text/){:target="_blank"}. 
+
+* Right before the Text-a-Thon begins, Resistance Labs will be offering a virtual training for those who prefer training then. Please RSVP for the 2pm ET training, and then you’ll be ready when the Text-a-Thon begins at 2:45pm ET:
+[https://www.mobilize.us/togetherfor2020/event/294918/](https://www.mobilize.us/togetherfor2020/event/294918/){:target="_blank"}. 
+ 
+[RSVP HERE](https://www.mobilize.us/togetherfor2020/event/294363/){:target="_blank"} for the TEXT-A-THON! Hope you will join us!  
+
+
+---
 
 ### Weekly events!
 
@@ -63,9 +92,7 @@ This is an Intro to Texting class for beginners and refreshers. Christine will d
 
 **Thursday 6:30 - 8:30 PM: Ridin’ with Biden - Phone Bank**
  
-Join MetroWest+ for Biden to call voters in swing states to vote for Biden and Democrats up and down the ballot. Very simple script.  Training will be provided.  Join shaw, denise, and other IA members.  Contact Peg at  peggidy@verizon.net for more details.
- 
-[Register HERE](https://www.mobilize.us/joebiden/event/286181/){:target="_blank"}.  
+*No Biden phonebanking this Thursday.  Just join us for the fun-filled Convention watch party.*. 
 
 **Friday 4:00 – 5:00PM: Happy Hour Fridays Texting Together**
 
