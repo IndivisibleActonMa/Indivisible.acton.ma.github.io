@@ -7,21 +7,14 @@ is featured: true
 <span style="font-family:Papyrus; font-size:1.5em; color:red;">**ANNOUNCEMENTS:**</span>
 
 ---
-### The Housing Choice
 
-Lawmakers are currently in committee reconciling an economic development bill that will result in increased gentrification, evictions, and therefore homelessness in MA. During a pandemic, this goes beyond morality and is also a Public Health Danger. Furthermore, the burden will fall disproportionately on Black, Indigenous, and Latinx people of color, who are already suffering disproportionately from both the Pandemic and systemic racism.  
-
-Please [sign this petition](https://www.change.org/p/massachusetts-state-senator-karen-spilka-no-new-eviction-machine-nix-it-or-fix-it){:target="_blank"}. 
-
-
----  
 ### No Cost Calls
 
 Please help push the Senate and House to pass No Cost Calls legislation ASAP!
 
-Let's #KeepFamiliesConnected and urge our legislators to pass [S.2846](https://malegislature.gov/Bills/191/S2846){:target="_blank"}.  
+Let's #KeepFamiliesConnected and urge our legislators to pass [S.2846](https://malegislature.gov/Bills/191/S2846){:target="_blank"}.
 
-Get more info [HERE](https://docs.google.com/document/d/e/2PACX-1vR_heu66surcN4NlK53CrzPPyHJiajisZZu-QYHwJJkWX5WAsGlVT5c2PU0-wPHm2s1F50aZB_3Q53m/pub){:target="_blank"}  
+Get more info [HERE](https://docs.google.com/document/d/e/2PACX-1vR_heu66surcN4NlK53CrzPPyHJiajisZZu-QYHwJJkWX5WAsGlVT5c2PU0-wPHm2s1F50aZB_3Q53m/pub){:target="_blank"}
 
 ---
 
