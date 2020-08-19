@@ -1,7 +1,6 @@
 ---
 title: The Housing Choice
 date: 2019-12-03 06:50:00 -05:00
-published: false
 is featured: true
 ---
 
