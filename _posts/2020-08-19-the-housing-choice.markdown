@@ -1,6 +1,6 @@
 ---
 title: The Housing Choice
-date: 2019-12-03 06:50:00 -05:00
+date: 2020-08-19 07:50:00 -04:00
 is featured: true
 ---
 
