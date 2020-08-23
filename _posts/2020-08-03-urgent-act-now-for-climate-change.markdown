@@ -11,7 +11,9 @@ Indivisible Acton-Area supports the work of the [Acton Climate Coalition](https:
 
 ### Webinars
 
-Click [HERE](https://www.actonclimatecoalition.org/#webinar){:target="_blank"} for all the available webinar dates.
+Click [HERE](https://www.actonclimatecoalition.org/#webinar){:target="_blank"} for all the available webinar dates.  
+
+Click [HERE](https://www.youtube.com/watch?v=TXPwtmTKvjg){:target="_blank"} to see a recorded version of the webinar.  
 
 ### Pledge Your Support
 
