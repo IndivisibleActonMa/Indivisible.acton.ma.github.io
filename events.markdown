@@ -46,9 +46,10 @@ YwZXVPZz09){:target="_blank"}!
 
 Join in for checking in/greeting at 3PM, then a brief training to set up calling until 5PM. Contact [Linda](mailto:lindapiano4953@gmail.com) for more info.
 
-[Click HERE](https://mit.zoom.us/j/4835108330?pwd=emZCWW8ra011bHNYdnZyTEJXRUU2QT09){:target="_blank"} to join this special phonebook! 
+[Click HERE](https://mit.zoom.us/j/4835108330?pwd=emZCWW8ra011bHNYdnZyTEJXRUU2QT09){:target="_blank"} to join this special phonebook!  
 
-*Please note - IndivisibleActon does not endorse candidates before the primary.*
+*Please note - IndivisibleActon does not endorse candidates before the primary.*. 
+
 ---
 
 ### Weekly events!
