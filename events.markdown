@@ -13,34 +13,43 @@ date: 2019-11-22 08:43:00 -05:00
 <span style="font-family:Papyrus; font-size:1.0em;">[John Lewis, July 2020](https://www.nytimes.com/2020/07/30/opinion/john-lewis-civil-rights-america.html){:target="_blank"}</span>
 
 ---
-### Special events this week Aug 17-23
+### Special events for the week of Aug 24
 
-**Thursday, Aug 20 9:00 PM: Convention Watch Party Day 4**  
+**Monday through Thursday - drop in anytime between 7:30 PM – 8:30 PM**  
+**Democrat Response Party - When They Go Low, We Go Fight**  
 
-Join Indivisible Acton to watch the fourth and final day of the Democratic Convention virtually from the comfort of your own home! We look forward to watching together as Biden accepts the Democratic nomination. Be sure to bring your favorite Biden swag. We're polishing our aviator sunglasses and making sure our Biden beveragewear is ready to go.  
- 
-[RSVP HERE](https://www.mobilize.us/indivisibleacton-area/event/299642/){:target="_blank"}  
+Now that you heard from Michelle, Barack, Kamala, and Joe, let’s go and change history with our actions. While the Republicans hold their convention to lie, scare, distract, and divide, let’s take action (any amount is good) and show them that when they go low, we go fight. 
 
-**Saturday, Aug 22 3:00 - 6:00 PM:  ONE MILLION Voters Text-a-Thon Party**. 
+Please drop in anytime to our Democrat Response zoom party to check in and
+share with us your actions, your thoughts and ideas on how we can win in
+November.  
 
-The goal is to reach one million voters in swing states who need to hear how to sign up for vote by mail.  Here is a fun and effective way for us to reach them! Together for 2020 is organizing a Text-a-thon with Sammy Bananas and other DJ’s, music and surprise guests. Anyone can text right from their computer or tablet or smartphone.
- 
-For this text-a-thon, you will need to know how to join and use Resistance Labs' version of the texting platform Spoke.  If you have texted with Move On, you will find it easy to text with Resistance Labs. They also use Spoke, but they do have an additional step of tagging that you will need to learn (takes 5 min). 
+Feel free to share with us possible actions you have taken or would like to take:
+* who you donated to
+* what postcards you wrote
+* who you phonebanked or texted for
+* which protest you attended
+* what signs you painted
+* who you reached out to
+* what social media you posted
+* which elected official you contacted
+* what information you want to know
 
-Also please review the OPT OUT rules as they are different for each organization.   
+We will also share DNC counterprogramming that will occur next week.  
 
-If you need training or a refresher on Resistance Labs' texting:
+To find more information on elections and actions you can take, visit our special elections website 
+[www.indivisibleacton-elections.org](www.indivisibleacton-elections.org){:target="_blank"}. 
 
-* You can find a terrific do-it-yourself training Together for 2020’s Texting Action Kit for Resistance Labs: [https://togetherfor2020.org/action-recipe/texting-with-resistance-labs/](https://togetherfor2020.org/action-recipe/texting-with-resistance-labs/){:target="_blank"}.  
+[Click HERE to join the Zoom Meeting](https://us02web.zoom.us/j/81534144925?pwd=TVJhWWNwd2c5WmdBSTBkQW
+YwZXVPZz09){:target="_blank"}!
 
-* You can find the schedule of virtual trainings on Together for 2020's texting calendar: [https://togetherfor2020.org/take-action/tactic/text/](https://togetherfor2020.org/take-action/tactic/text/){:target="_blank"}. 
+** Monday 3:00 - 5:00 PM Special event “just for us” phonebank for Senator Ed Markey hosted by Linda Vieira and Bob Ferrara**
 
-* Right before the Text-a-Thon begins, Resistance Labs will be offering a virtual training for those who prefer training then. Please RSVP for the 2pm ET training, and then you’ll be ready when the Text-a-Thon begins at 2:45pm ET:
-[https://www.mobilize.us/togetherfor2020/event/294918/](https://www.mobilize.us/togetherfor2020/event/294918/){:target="_blank"}. 
- 
-[RSVP HERE](https://www.mobilize.us/togetherfor2020/event/294363/){:target="_blank"} for the TEXT-A-THON! Hope you will join us!  
+Join in for checking in/greeting at 3PM, then a brief training to set up calling until 5PM. Contact [Linda](mailto:lindapiano4953@gmail.com) for more info.
 
+[Click HERE](https://mit.zoom.us/j/4835108330?pwd=emZCWW8ra011bHNYdnZyTEJXRUU2QT09){:target="_blank" to join this special phonebook! 
 
+*Please note - IndivisibleActon does not endorse candidates before the primary.*
 ---
 
 ### Weekly events!
@@ -68,14 +77,11 @@ Let’s get together to update/review/share news and actions people can take to 
 **Tuesday 6:30 – 8:00 PM: Carolina in My Mind: Phone banking to Super State, North Carolina**
 
 Indivisible Acton Area has joined Indivisible Western MA Take Back Our Democracy in their Tues night NC phonebanking to identify voters in the three key national races in North Carolina - presidential, governorship, and US Senate.
-
-What a great night last week! We had 21 callers and made a whopping 682 calls!
-
 These calls are really making a difference in NC. All 3 candidates, Biden, Cunningham and Cooper are up in the polls!
 
 Join [Shaw](mailto:shaw@indivisibleacton.org), [Denise](mailto:denise@indivisibleacton.org), and other IA members.  
 
-Please [Register HERE](https://us02web.zoom.us/meeting/register/tZEvfu-tqzwrE9EebmPU53lB1axn8YOEpZV_){:target="_blank"}.  *Note - This is a NEW link.*
+Please [Register HERE](https://us02web.zoom.us/meeting/register/tZEvfu-tqzwrE9EebmPU53lB1axn8YOEpZV_){:target="_blank"}. 
 
 **Wednesday 6:30 – 7:30 PM: Pandemic Post Carding and Check-In**
 
@@ -86,7 +92,7 @@ Join us for an hour of shared post carding and conversation over Zoom!
 
 2020 is a Must Win Year. Every vote counts. Texting is a simple and powerful way to reach out to many voters quickly. You can text from your home, at your pace, and on any time you choose.
 
-This is an Intro to Texting class for beginners and refreshers. Christine will demonstrate live cases texting with the simple to use MoveOn platform which provides a variety of interesting and important campaigns around the country.  We will help you set up your account so you can text by the end of the class.
+This is an Intro to Texting class for beginners and refreshers. Christine will demonstrate live cases texting with the simple to use MoveOn and ResistanceLab platforms which provides a variety of interesting and important campaigns around the country.  We will help you set up your account so you can text by the end of the class.
 
 [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/270069/){:target="_blank"} to get a zoom link and join us!
 
