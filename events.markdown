@@ -43,7 +43,7 @@ To find more information on elections and actions you can take, visit our specia
 [Click HERE to join the Zoom Meeting](https://us02web.zoom.us/j/81534144925?pwd=TVJhWWNwd2c5WmdBSTBkQW
 YwZXVPZz09){:target="_blank"}!
 
-** Monday 3:00 - 5:00 PM Special event “just for us” phonebank for Senator Ed Markey hosted by Linda Vieira and Bob Ferrara**
+**Monday 3:00 - 5:00 PM Special event “just for us” phonebank for Senator Ed Markey hosted by Linda Vieira and Bob Ferrara**
 
 Join in for checking in/greeting at 3PM, then a brief training to set up calling until 5PM. Contact [Linda](mailto:lindapiano4953@gmail.com) for more info.
 
