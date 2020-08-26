@@ -96,9 +96,9 @@ This is an Intro to Texting class for beginners and refreshers. Christine will d
 
 [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/270069/){:target="_blank"} to get a zoom link and join us!
 
-**Thursday 6:30 - 8:30 PM: Ridin’ with Biden - Phone Bank**
+**Thursday 6:30 - 8:00 PM: Ridin’ with Biden - Phone Bank**
  
-*No Biden phonebanking this Thursday.  Just join us for the fun-filled Convention watch party.*. 
+https://www.mobilize.us/2020victory/event/308519/
 
 **Friday 4:00 – 5:00PM: Happy Hour Fridays Texting Together**
 
