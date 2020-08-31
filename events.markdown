@@ -12,44 +12,10 @@ date: 2019-11-22 08:43:00 -05:00
 <span style="font-family:Papyrus; font-size:1.0em;">[John Lewis, July 2020](https://www.nytimes.com/2020/07/30/opinion/john-lewis-civil-rights-america.html){:target="_blank"}</span>
 
 ---
-### Special events for the week of Aug 24
+### Tuesday - MA Primary day   
 
-**Monday through Thursday - drop in anytime between 7:30 PM – 8:30 PM**  
-**Democrat Response Party - When They Go Low, We Go Fight**  
-
-Now that you heard from Michelle, Barack, Kamala, and Joe, let’s go and change history with our actions. While the Republicans hold their convention to lie, scare, distract, and divide, let’s take action (any amount is good) and show them that when they go low, we go fight. 
-
-Please drop in anytime to our Democrat Response zoom party to check in and
-share with us your actions, your thoughts and ideas on how we can win in
-November.  
-
-Feel free to share with us possible actions you have taken or would like to take:
-* who you donated to
-* what postcards you wrote
-* who you phonebanked or texted for
-* which protest you attended
-* what signs you painted
-* who you reached out to
-* what social media you posted
-* which elected official you contacted
-* what information you want to know
-
-We will also share DNC counterprogramming that will occur next week.  
-
-To find more information on elections and actions you can take, visit our special elections website 
-[www.indivisibleacton-elections.org](www.indivisibleacton-elections.org){:target="_blank"}. 
-
-[Click HERE to join the Zoom Meeting](https://us02web.zoom.us/j/81534144925?pwd=TVJhWWNwd2c5WmdBSTBkQW
-YwZXVPZz09){:target="_blank"}!
-
-**Monday 3:00 - 5:00 PM Special event “just for us” phonebank for Senator Ed Markey hosted by members Linda Vieira and Bob Ferrara**
-
-Join in for checking in/greeting at 3PM, then a brief training to set up calling until 5PM. Contact [Linda](mailto:lindapiano4953@gmail.com) for more info.
-
-[Click HERE](https://mit.zoom.us/j/4835108330?pwd=emZCWW8ra011bHNYdnZyTEJXRUU2QT09){:target="_blank"} to join this special phonebook!  
-
-*Please note - IndivisibleActon does not endorse candidates before the primary.*. 
-
+Please support your favorite DEM candidate.  Reach out and remind your friends to get out to vote!  
+ 
 ---
 
 ### Weekly events!
@@ -97,9 +63,11 @@ This is an Intro to Texting class for beginners and refreshers. Christine will d
 [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/270069/){:target="_blank"} to get a zoom link and join us!
 
 **Thursday 6:30 - 8:00 PM: Ridin’ with Biden - Phone Bank**
- 
+
+Make calls with the MetroWest Biden group: 
 [https://www.mobilize.us/2020victory/event/308519/](https://www.mobilize.us/2020victory/event/308519/){:target="_blank"}  
 
+Make calls with Concord Lincoln Biden group: [https://www.mobilize.us/2020victory/event/308519/](https://www.mobilize.us/2020victory/event/308519/){:target="_blank"}   
 
 **Friday 4:00 – 5:00PM: Happy Hour Fridays Texting Together**
 
@@ -114,6 +82,10 @@ Please bring your favorite cocktail (quarantinis or beverage of your choice) and
 Let's get together virtually and share what we're doing to take action! Bring your coffee and your project ideas!
 
 You can [register HERE](https://www.mobilize.us/indivisibleacton-area/event/270980/){:target="_blank"} in advance to put on your calendar and get reminders.  You can also register as you join us!
+
+**Sunday, Sep 6 4-5:30p**. 
+
+Phonebook with Concord Lincoln Biden Group: [https://www.mobilize.us/2020victory/event/308076/](https://www.mobilize.us/2020victory/event/308076/){:target="_blank"}  
 
 ---
 
