@@ -65,9 +65,9 @@ This is an Intro to Texting class for beginners and refreshers. Christine will d
 **Thursday 6:30 - 8:00 PM: Ridin’ with Biden - Phone Bank**
 
 Make calls with the MetroWest Biden group: 
-[https://www.mobilize.us/2020victory/event/308519/](https://www.mobilize.us/2020victory/event/308519/){:target="_blank"}  
+[https://www.mobilize.us/2020victory/event/310893/](https://www.mobilize.us/2020victory/event/310893/){:target="_blank"}  
 
-Make calls with Concord Lincoln Biden group: [https://www.mobilize.us/2020victory/event/308519/](https://www.mobilize.us/2020victory/event/308519/){:target="_blank"}   
+Make calls with Concord Lincoln Biden group:  [https://www.mobilize.us/2020victory/event/308519/](https://www.mobilize.us/2020victory/event/308519/){:target="_blank"}   
 
 **Friday 4:00 – 5:00PM: Happy Hour Fridays Texting Together**
 
