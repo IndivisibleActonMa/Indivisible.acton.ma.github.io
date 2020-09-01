@@ -15,6 +15,9 @@ Click [HERE](https://www.actonclimatecoalition.org/#webinar){:target="_blank"} f
 
 Click [HERE](https://www.youtube.com/watch?v=TXPwtmTKvjg){:target="_blank"} to see a recorded version of the webinar.  
 
+Click [HERE](https://youtu.be/JoptD3dL1XM){:target="_blank"} to get the basics!  
+
+
 ### Pledge Your Support
 
 If you want strong action on climate change, [pledge HERE](https://ActonClimateCoalition.org/#pledge){:target="_blank"} to support *[Declaring a Climate Emergency: A Better Future Starting Now](https://www.actonclimatecoalition.org/#declaration)*{:target="_blank"} and spread the word!
