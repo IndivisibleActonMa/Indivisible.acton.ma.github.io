@@ -30,3 +30,7 @@ Click [HERE](https://www.youtube.com/watch?v=_7HYvaQNz7o&feature=youtu.be){:targ
 ### 
 
 ---
+
+*“There is sufficient evidence to draw the most fundamental of conclusions: now is the time to declare a state of planetary emergency. The point is not to admit defeat, but to match the risk with the necessary action to protect the global commons for our own future.”*  
+
+Professor Johan Rockstrom, Director of the Potsdam Institute for Climate Impact Research
