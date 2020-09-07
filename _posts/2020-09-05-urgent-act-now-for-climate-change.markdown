@@ -27,8 +27,6 @@ If you want strong action on climate change, [pledge HERE](https://ActonClimateC
 
 Click [HERE](https://www.youtube.com/watch?v=_7HYvaQNz7o&feature=youtu.be){:target="_blank"} to see Wide Field Vivian Kobusingye Birchall talk with Jim Snyder-Grant and Sargam Nohria from the Acton Climate Coalition.
 
-### 
-
 ---
 
 *“There is sufficient evidence to draw the most fundamental of conclusions: now is the time to declare a state of planetary emergency. The point is not to admit defeat, but to match the risk with the necessary action to protect the global commons for our own future.”*  
