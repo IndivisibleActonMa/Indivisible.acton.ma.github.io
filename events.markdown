@@ -3,30 +3,28 @@ title: Events
 date: 2019-11-22 08:43:00 -05:00
 ---
 
-![117389754_3468490556517130_1936030534958581123_n.jpg](/uploads/117389754_3468490556517130_1936030534958581123_n.jpg)
----
-
+## ![117389754_3468490556517130_1936030534958581123_n.jpg](/uploads/117389754_3468490556517130_1936030534958581123_n.jpg)
 
 <span style="font-family:Papyrus; font-size:1.5em;">Ordinary people with extraordinary vision can redeem the soul of America by getting in what I call good trouble, necessary trouble. Voting and participating in the democratic process are key. The vote is the most powerful nonviolent change agent you have in a democratic society. You must use it because it is not guaranteed. You can lose it.</span>
 
 <span style="font-family:Papyrus; font-size:1.0em;">[John Lewis, July 2020](https://www.nytimes.com/2020/07/30/opinion/john-lewis-civil-rights-america.html){:target="_blank"}</span>
 
 ---
-### Specials this week! 
 
-**Wednesday, Sep 9, 9-10p**  
+### Specials this week!
+
+**Wednesday, Sep 9, 9-10p**
 
 National Volunteer Video Call with Senator Kamala Harris & Special Guests
 Join Senator Kamala Harris for our National Volunteer Video Call!
 Senator Harris will be joined by Doug Emhoff and other special guests.
 Upon signing up, you will receive an email with the link to watch the event.
 
-Register [HERE](https://www.mobilize.us/2020victory/event/317919/){:target="_blank"} to get your zoom link.  
+Register [HERE](https://www.mobilize.us/2020victory/event/317919/){:target="_blank"} to get your zoom link.
 
-**Sunday, Sep 13, 2-4p, Acton Boxborough DTC Virtual Picnic**  
- 
-Join the Acton Boxborough Democratic Town Committees for a virtual picnic to hear from elected officials, special guest speakers, and play a fun political trivia game! Please make a donation of any amount to the Democratic candidate of your choice. RSVP to [boxborough.dtc@gmail.com](mailto:boxborough.dtc@gmail.com) 
----
+**Sunday, Sep 13, 2-4p, Acton Boxborough DTC Virtual Picnic**
+
+Join the Acton Boxborough Democratic Town Committees for a virtual picnic to hear from elected officials, special guest speakers, and play a fun political trivia game! Please make a donation of any amount to the Democratic candidate of your choice. RSVP to [boxborough.dtc@gmail.com](mailto:boxborough.dtc@gmail.com)
 
 ### Weekly events!
 
@@ -55,9 +53,9 @@ Let’s get together to update/review/share news and actions people can take to 
 Indivisible Acton Area has joined Indivisible Western MA Take Back Our Democracy in their Tues night NC phonebanking to identify voters in the three key national races in North Carolina - presidential, governorship, and US Senate.
 These calls are really making a difference in NC. All 3 candidates, Biden, Cunningham and Cooper are up in the polls!
 
-Join [Shaw](mailto:shaw@indivisibleacton.org), [Denise](mailto:denise@indivisibleacton.org), and other IA members.  
+Join [Shaw](mailto:shaw@indivisibleacton.org), [Denise](mailto:denise@indivisibleacton.org), and other IA members.
 
-Please [Register HERE](https://us02web.zoom.us/meeting/register/tZEvfu-tqzwrE9EebmPU53lB1axn8YOEpZV_){:target="_blank"}. 
+Please [Register HERE](https://us02web.zoom.us/meeting/register/tZEvfu-tqzwrE9EebmPU53lB1axn8YOEpZV_){:target="_blank"}.
 
 **Wednesday 6:30 – 7:30 PM: Pandemic Post Carding and Check-In**
 
@@ -86,23 +84,22 @@ Let's get together virtually and share what we're doing to take action! Bring yo
 
 You can [register HERE](https://www.mobilize.us/indivisibleacton-area/event/270980/){:target="_blank"} in advance to put on your calendar and get reminders.  You can also register as you join us!
 
-### Make calls with Concord Lincoln Biden/Harris group! 
+### Make calls with Concord Lincoln Biden/Harris group!
 
-**Tuesday, Sep 8, 6:30-8p**  
-[https://www.mobilize.us/2020victory/event/314602/](https://www.mobilize.us/2020victory/event/314602/){:target="_blank"} 
+**Tuesday, Sep 8, 6:30-8p**\
+[https://www.mobilize.us/2020victory/event/314602/](https://www.mobilize.us/2020victory/event/314602/){:target="_blank"}
 
-**Thursday, Sep 10 6:30-8p**  
-[https://www.mobilize.us/2020victory/event/308519/](https://www.mobilize.us/2020victory/event/308519/){:target="_blank"}. 
+**Thursday, Sep 10 6:30-8p**\
+[https://www.mobilize.us/2020victory/event/308519/](https://www.mobilize.us/2020victory/event/308519/){:target="_blank"}.
 
-**Sunday Sep 13, 4-5p**  
-[https://www.mobilize.us/2020victory/event/308082/](https://www.mobilize.us/2020victory/event/308082/){:target="_blank"} 
-
+**Sunday Sep 13, 4-5p**\
+[https://www.mobilize.us/2020victory/event/308082/](https://www.mobilize.us/2020victory/event/308082/){:target="_blank"}
 
 ---
 
 ### Other resources
 
-* Click **[HERE](http://www.yeson2rcv.com/events/?fbclid=IwAR0cIxLXtCRPX539wK0wRINHn8104FcwDbzSqfMeIv16ylG0D4HRPJE2-Xs){:target="_blank"}** to phone bank for Ranked Choice Voting - YES on 2!  
+* Click **[HERE](http://www.yeson2rcv.com/events/?fbclid=IwAR0cIxLXtCRPX539wK0wRINHn8104FcwDbzSqfMeIv16ylG0D4HRPJE2-Xs){:target="_blank"}** to phone bank for Ranked Choice Voting - YES on 2!
 
 * Click **[HERE](https://www.facebook.com/pg/IndivisibleActon/events/?ref=page_internal){:target="_blank"}** to see events published on Indivisible Acton's Public Facebook page.
 
