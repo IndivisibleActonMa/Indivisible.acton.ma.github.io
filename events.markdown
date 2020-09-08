@@ -21,7 +21,7 @@ Join Senator Kamala Harris for our National Volunteer Video Call!
 Senator Harris will be joined by Doug Emhoff and other special guests.
 Upon signing up, you will receive an email with the link to watch the event.
 
-Register [HERE](https://www.mobilize.us/2020victory/event/317919/){:target="_blank"} to get your zoom link.
+Register [HERE](https://www.mobilize.us/2020victory/event/317919/){:target="_blank"} to get your zoom link.  
 
 **Sunday, Sep 13, 2-4p, Acton Boxborough DTC Virtual Picnic**  
  
