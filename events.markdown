@@ -88,13 +88,13 @@ You can [register HERE](https://www.mobilize.us/indivisibleacton-area/event/2709
 
 ### Make calls with Concord Lincoln Biden/Harris group! 
 
-**Tuesday, Sep 8, 6:30-8p** 
+**Tuesday, Sep 8, 6:30-8p**  
 [https://www.mobilize.us/2020victory/event/314602/](https://www.mobilize.us/2020victory/event/314602/){:target="_blank"} 
 
-**Thursday, Sep 10 6:30-8p**
+**Thursday, Sep 10 6:30-8p**  
 [https://www.mobilize.us/2020victory/event/308519/](https://www.mobilize.us/2020victory/event/308519/){:target="_blank"}. 
 
-**Sunday Sep 13, 4-5p** 
+**Sunday Sep 13, 4-5p**  
 [https://www.mobilize.us/2020victory/event/308082/](https://www.mobilize.us/2020victory/event/308082/){:target="_blank"} 
 
 
