@@ -23,7 +23,7 @@ Upon signing up, you will receive an email with the link to watch the event.
 
 Register [HERE](https://www.mobilize.us/2020victory/event/317919/){:target="_blank"} to get your zoom link.
 
-**Sunday, Sep 13, 2-4p, Acton Boxborough DTC Virtual Picnic**
+**Sunday, Sep 13, 2-4p, Acton Boxborough DTC Virtual Picnic**  
  
 Join the Acton Boxborough Democratic Town Committees for a virtual picnic to hear from elected officials, special guest speakers, and play a fun political trivia game! Please make a donation of any amount to the Democratic candidate of your choice. RSVP to [boxborough.dtc@gmail.com](mailto:boxborough.dtc@gmail.com) 
 ---
