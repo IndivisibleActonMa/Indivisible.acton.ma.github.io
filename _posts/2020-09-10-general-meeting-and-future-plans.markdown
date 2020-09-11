@@ -4,7 +4,7 @@ date: 2020-09-10 22:00:00 -04:00
 is featured: true
 event-start-date: 2020-09-14 18:30:00 -04:00
 event-end-date: 2020-09-14 20:00:00 -04:00
-RSVP-link: https://www.mobilize.us/indivisibleacton-area/event/293171/
+RSVP-link: https://www.mobilize.us/indivisibleacton-area/event/318645/
 ---
 
 
