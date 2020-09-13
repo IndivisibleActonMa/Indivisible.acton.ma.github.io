@@ -56,6 +56,8 @@ Join us and be part of the plan to make the change we need!
 
 Featured speaker is Janet Singer, activism coach extraordinare who will help us be the best and most effective activists we can be to save our democracy!
 
+Click [HERE](https://docs.google.com/document/d/1JeMr4d7P8I_zHN5zBteGuFQm_7KoAeViCK7kev2yHC0/edit?usp=sharing){:target="_blank"} to see the agenda.  
+
 [RSVP HERE](https://www.mobilize.us/indivisibleacton-area/event/318645/){:target="_blank"}.  
 
 Let's advocate for the solutions we need and want!
