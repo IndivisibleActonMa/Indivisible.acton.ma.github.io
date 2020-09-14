@@ -13,18 +13,23 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Specials this week!
 
-**Wednesday, Sep 9, 9-10p**
+**Monday, Sep 14, 6:30-7:45p: Indivisible Acton-Area General Meeting**
 
-National Volunteer Video Call with Senator Kamala Harris & Special Guests
-Join Senator Kamala Harris for our National Volunteer Video Call!
-Senator Harris will be joined by Doug Emhoff and other special guests.
-Upon signing up, you will receive an email with the link to watch the event.
+Please join us for the September General Meeting! There are 50 days from September 14 to Election Day ... The stakes for this election are high. Let's work together to create the plan to WIN 2020!
 
-Register [HERE](https://www.mobilize.us/2020victory/event/317919/){:target="_blank"} to get your zoom link.
+Sign up [HERE](https://www.mobilize.us/indivisibleacton-area/event/318645/){:target="_blank"}. Agenda [HERE](https://docs.google.com/document/d/1JeMr4d7P8I_zHN5zBteGuFQm_7KoAeViCK7kev2yHC0/edit?usp=sharing){:target="_blank"}.
 
-**Sunday, Sep 13, 2-4p, Acton Boxborough DTC Virtual Picnic**
+Featured speaker: Janet Singer, Activist Extraordinaire! Swing Left Greater Boston.  SuperStates Update and Relational Organizing in the SuperStates
 
-Join the Acton Boxborough Democratic Town Committees for a virtual picnic to hear from elected officials, special guest speakers, and play a fun political trivia game! Please make a donation of any amount to the Democratic candidate of your choice. RSVP to [boxborough.dtc@gmail.com](mailto:boxborough.dtc@gmail.com)
+**Paint Y’Art signs to put near Trump’s home in FL and flip a Congressional Seat**
+
+We have a new campaign. The candidate is [Jim Bonfiglio for FL House of Representative District 89](https://jimbonfigliofordistrict89.com){:target="_blank"}. Jim is not only a wonderful progressive, he literally will be flipping the state legislative seat where Donald and Melania live. What a poke in the eye these signs will be when they are placed!
+
+Training Wednesdays at 7p and Sundays at 4p.  Sign up [HERE](https://www.thecreativitygym.org/yart-signs-for-change/).
+
+Candidate Jim will be at this Wednesday’s (9/16) zoom meeting to talk to us!
+
+Contact [shawyang100@gmail.com](mailto:shawyang100@gmail.com) if you like Shaw (Concord) to pick up signs/paint kits from Newton for you.
 
 ### Weekly events!
 
@@ -84,16 +89,28 @@ Let's get together virtually and share what we're doing to take action! Bring yo
 
 You can [register HERE](https://www.mobilize.us/indivisibleacton-area/event/270980/){:target="_blank"} in advance to put on your calendar and get reminders.  You can also register as you join us!
 
-### Make calls with Concord Lincoln Biden/Harris group!
+### Biden/Harris Phonebanking this week
 
-**Tuesday, Sep 8, 6:30-8p**\
-[https://www.mobilize.us/2020victory/event/314602/](https://www.mobilize.us/2020victory/event/314602/){:target="_blank"}
+To find phonebankings near you, check:
+[https://www.mobilize.us/2020victory/](https://www.mobilize.us/2020victory/){:target="_blank"}
 
-**Thursday, Sep 10 6:30-8p**\
-[https://www.mobilize.us/2020victory/event/308519/](https://www.mobilize.us/2020victory/event/308519/){:target="_blank"}.
+* **Monday, Sep 14, 7p - Biden Briefing and Social**\
+  [RSVP HERE](https://www.mobilize.us/joebiden/event/282282/){:target="_blank"}\\
 
-**Sunday Sep 13, 4-5p**\
-[https://www.mobilize.us/2020victory/event/308082/](https://www.mobilize.us/2020victory/event/308082/){:target="_blank"}
+* **Tuesday, Sep 15, 6-8p - Phone banks with Ben** \\
+
+  Sign up [HERE](https://www.mobilize.us/joebiden/event/275357/){:target="_blank"}.\
+  6p - Overview; 6:15p - Start phoning!
+  7:50p - Debrief; 8p -  Done!
+
+* **Wednesday, Sep 16, 10a-12p - Phone bank with Kate Donaghue**
+  [RSVP HERE](https://us02web.zoom.us/meeting/register/tZArfu2orzkuGty9bWNUYdQGpjE9WvnbDTeT){:target="_blank"}.
+
+* **Thursday, Sep 17, 6-8p - Phone bank with Jason**\
+  [RSVP HERE](https://us02web.zoom.us/meeting/register/tZYsf-Cppj0qHdQ3Ani-4rFBsmjYygk8oVa2){:target="_blank"}.
+
+* **Friday, Sep 18, 10a-12p - Phone bank with Kate Donaghue**\
+  [RSVP HERE](https://us02web.zoom.us/meeting/register/tZcqceCgpjMuH9CzkLhTDNvuV1MK92yxIzlA){:target="_blank"}.
 
 ---
 
