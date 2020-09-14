@@ -105,7 +105,7 @@ To find phonebankings near you, check:
   6p - Overview; 6:15p - Start phoning!
   7:50p - Debrief; 8p -  Done!
 
-* **Wednesday, Sep 16, 10a-12p - Phone bank with Kate Donaghue**\
+* **Wednesday, Sep 16, 10a-12p - Phone bank with Kate Donaghue**
 
   [RSVP HERE](https://us02web.zoom.us/meeting/register/tZArfu2orzkuGty9bWNUYdQGpjE9WvnbDTeT){:target="_blank"}.
 
