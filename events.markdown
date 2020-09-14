@@ -91,6 +91,8 @@ You can [register HERE](https://www.mobilize.us/indivisibleacton-area/event/2709
 
 ### Biden/Harris Phonebanking this week
 
+**The election isn't happening on November 3rd. It ends on November 3rd!** With early vote and vote by mail happening, we are doing **Get Out The Vote now**!  
+
 To find phonebankings near you, check:
 [https://www.mobilize.us/2020victory/](https://www.mobilize.us/2020victory/){:target="_blank"}
 
