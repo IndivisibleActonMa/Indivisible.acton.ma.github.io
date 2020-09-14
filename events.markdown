@@ -99,7 +99,7 @@ To find phonebankings near you, check:
 * **Monday, Sep 14, 7p - Biden Briefing and Social**\
   [RSVP HERE](https://www.mobilize.us/joebiden/event/282282/){:target="_blank"}  
 
-* **Tuesday, Sep 15, 6-8p - Phone banks with Ben**\
+* **Tuesday, Sep 15, 6-8p - Phone banks with Ben**
 
   Sign up [HERE](https://www.mobilize.us/joebiden/event/275357/){:target="_blank"}.\
   6p - Overview; 6:15p - Start phoning!
