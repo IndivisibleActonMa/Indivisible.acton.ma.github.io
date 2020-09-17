@@ -4,7 +4,7 @@ date: 2020-09-17 11:00:00 -04:00
 is featured: true
 ---
 
-## Voting Is the First Duty of Democracy
+### Voting Is the First Duty of Democracy
 
 𝐀𝐦𝐞𝐫𝐢𝐜𝐚 𝐧𝐞𝐞𝐝𝐬 𝐩𝐨𝐥𝐥 𝐰𝐨𝐫𝐤𝐞𝐫𝐬. Five to ten poll workers can ensure an open polling location resulting in hundreds and perhaps thousands of votes on November 3rd.
 
