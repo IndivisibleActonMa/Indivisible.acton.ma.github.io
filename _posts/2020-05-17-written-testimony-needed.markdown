@@ -7,7 +7,7 @@ is featured: true
 <span style="font-family:Papyrus; font-size:1.5em; color:red;">**ANNOUNCEMENTS:**</span>
 
 ---
-###  Demand Action for ICE atrocities in Ocilla, GA  
+###  Demand Action for ICE Atrocities in Ocilla, GA  
 
 You may have seen reports of the unspeakable atrocities that have occurred at the Irwin County Detention Center — an Immigration and Customs Enforcement (ICE) facility in Ocilla, GA — including forced and coerced hysterectomies on detained people and gross mismanagement of COVID-19. This is abhorrent, friend, and we have to demand action TODAY!
 
