@@ -7,6 +7,31 @@ is featured: true
 <span style="font-family:Papyrus; font-size:1.5em; color:red;">**ANNOUNCEMENTS:**</span>
 
 ---
+###  Demand Action for ICE atrocities in Ocilla, GA  
+
+You may have seen reports of the unspeakable atrocities that have occurred at the Irwin County Detention Center — an Immigration and Customs Enforcement (ICE) facility in Ocilla, GA — including forced and coerced hysterectomies on detained people and gross mismanagement of COVID-19. This is abhorrent, friend, and we have to demand action TODAY!
+
+Detained people are human beings with autonomy and rights, not bodies to be controlled and abused. One’s immigration status does not change that.
+
+The United States has a long, dark, and disturbing history of forced sterilization. Preventing women, particularly Black and Brown women, from having full autonomy over their bodies and reproductive freedoms is white supremacy in action.  
+
+This sickening report has only come to light because nurse and whistleblower Dawn Wooten bravely spoke out against the inhumane treatment of detained people that she witnessed first hand inside the center. Now it’s our turn to stand with nurse Wooten and the people at Irwin County Detention Center.  
+
+Bodily autonomy and basic human rights do not end at the gates of ICE detention centers. Friend, will you join us in demanding that this never happens again?  
+
+We urge you to take a moment today to:  
+
+* Contact your local congressional representative and ask that they demand: A Congressional investigation into what occurred at the Irwin County Detention Center and that ICE allows people connected to the investigation to receive a stay of their deportation order so they may participate in the investigation.  
+
+* Email Atlanta ICE Field Director, Thomas Giles at [thomas.p.giles@ice.dhs.gov](mailto:thomas.p.giles@ice.dhs.gov) and demand that he investigates and grants a stay of deportation for the women involved.  
+
+* Call the Georgia Composite Medical Board - Enforcement Unit complaint line (404) 656-3913, select Option #3.   
+
+Follow the groups leading this effort: 
+
+**Twitter**: @ProjectSouth, @GADetWatch, @GLAHR_, @GovAcctProj, @ashahshahani  
+**Facebook**: Project South, Georgia Detention Watch, Georgia Latino Alliance for Human Rights, South Georgia Immigrant Support Network  
+**Instagram**: @projectsouthatl, @glahr.ga, @sogaisnetwork 
 
 ### No Cost Calls
 
