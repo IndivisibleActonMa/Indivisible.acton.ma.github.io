@@ -4,7 +4,7 @@ date: 2020-05-17 09:06:00 -04:00
 is featured: true
 ---
 
-<span style="font-family:Papyrus; font-size:1.5em; color:red;">**ANNOUNCEMENTS:**</span>
+<span style="font-family:Papyrus; font-size:1.5em; color:red;">**ANNOUNCEMENTS**</span>
 
 ---
 ###  Demand Action for ICE Atrocities in Ocilla, GA  
