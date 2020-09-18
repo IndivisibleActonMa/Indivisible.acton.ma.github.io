@@ -9,6 +9,8 @@ is featured: true
 ---
 ###  Demand Action for ICE Atrocities in Ocilla, GA  
 
+From Planned Parenthood Advocates, SE:  
+
 You may have seen reports of the unspeakable atrocities that have occurred at the Irwin County Detention Center — an Immigration and Customs Enforcement (ICE) facility in Ocilla, GA — including forced and coerced hysterectomies on detained people and gross mismanagement of COVID-19. This is abhorrent, friend, and we have to demand action TODAY!
 
 Detained people are human beings with autonomy and rights, not bodies to be controlled and abused. One’s immigration status does not change that.
