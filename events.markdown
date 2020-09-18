@@ -29,7 +29,16 @@ Training Wednesdays at 7p and Sundays at 4p.  Sign up [HERE](https://www.thecrea
 
 Candidate Jim will be at this Wednesday’s (9/16) zoom meeting to talk to us!
 
-Contact [shawyang100@gmail.com](mailto:shawyang100@gmail.com) if you like Shaw (Concord) to pick up signs/paint kits from Newton for you.
+Contact [shawyang100@gmail.com](mailto:shawyang100@gmail.com) if you like Shaw (Concord) to pick up signs/paint kits from Newton for you.  
+
+**Ease into Phonebanking!**
+
+***Starting Saturday, Sep 19!***  
+
+Denise and Shaw will hold regular gentle training sessions Saturdays 4-5:30p. You will learn and rehearse the scripts with us. We will set up your account using the very easy Hubdialer. Once you feel more comfortable, you can attend a number of phonebanking sessions throughout the week.  
+
+[Register HERE](https://www.mobilize.us/indivisibleacton-area/event/326667/){:target="_blank"}. 
+  
 
 ### Weekly events!
 
