@@ -57,12 +57,6 @@ Barack Obama, Feb 5, 2008
 — John Lewis, A 2012 speech in Charlotte, NC  
 
 ---
-### Important Dates
-
-* **Sep  1, 2020** - State Primaries
-* **Nov  3, 2020** - State and Presidential Election  
-
----
 
 ### Voting By Mail
 
@@ -71,6 +65,15 @@ Barack Obama, Feb 5, 2008
 *Voting by mail is available to all voters for all elections in 2020. You do not need an excuse to vote by mail this year.*
 
 ---
+
+### MA Elections 
+
+We have some important races in Massachusetts to elect progressive candidates to the State House.  Please check out [this document](https://docs.google.com/document/d/11EvHaU_DA7WfWa6xztSDVgNOXBktaa4z9aaU4rsV2jQ/edit){:target="_blank"} for more information, then find a candidate/candidates to adopt and go to their website to volunteer for phonebanking, texting or to make a donation!  Thank you to Linda for compiling all the information!  
+
+
+
+---
+
 Click [HERE](https://www.sec.state.ma.us/ele/covid-19/covid-19.htm){:target="_blank"} for the State of MA [COVID-19 Election Updates](https://www.sec.state.ma.us/ele/covid-19/covid-19.htm){:target="_blank"}.  
 
 Make sure you are not an [inactive voter](https://www.sec.state.ma.us/ele/eleinactivevoters/inactivevotersidx.htm){:target="_blank"}.  
