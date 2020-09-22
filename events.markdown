@@ -90,20 +90,20 @@ To find phonebankings near you, check:
 * **Monday, Sep 14, 7p - Biden Briefing and Social**\
   [RSVP HERE](https://www.mobilize.us/joebiden/event/282282/){:target="_blank"}  
 
-* **Tuesday, Sep 15, 6-8p - Phone banks with Ben**
+* **Tuesday, 6-8p - Phone banks with Ben**
 
   Sign up [HERE](https://www.mobilize.us/joebiden/event/275357/){:target="_blank"}.\
   6p - Overview; 6:15p - Start phoning!
   7:50p - Debrief; 8p -  Done!
 
-* **Wednesday, Sep 16, 10a-12p - Phone bank with Kate Donaghue**
+* **Wednesday, 10a-12p - Phone bank with Kate Donaghue**
 
   [RSVP HERE](https://us02web.zoom.us/meeting/register/tZArfu2orzkuGty9bWNUYdQGpjE9WvnbDTeT){:target="_blank"}.
 
-* **Thursday, Sep 17, 6-8p - Phone bank with Jason**\
+* **Thursday, 6-8p - Phone bank with Jason**\
   [RSVP HERE](https://us02web.zoom.us/meeting/register/tZYsf-Cppj0qHdQ3Ani-4rFBsmjYygk8oVa2){:target="_blank"}.
 
-* **Friday, Sep 18, 10a-12p - Phone bank with Kate Donaghue**\
+* **Friday, 10a-12p - Phone bank with Kate Donaghue**\
   [RSVP HERE](https://us02web.zoom.us/meeting/register/tZcqceCgpjMuH9CzkLhTDNvuV1MK92yxIzlA){:target="_blank"}.  
 
 * **Sunday, Sep 20, 4-5:30p - Phone bank with our Lincoln/Concord neighbors**  
