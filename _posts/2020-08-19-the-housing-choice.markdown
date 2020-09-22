@@ -1,7 +1,7 @@
 ---
 title: The Housing Choice
 date: 2020-08-19 07:50:00 -04:00
-is featured: true
+is featured: false
 ---
 
 Lawmakers are currently in committee reconciling an economic development bill that will result in increased gentrification, evictions, and therefore homelessness in MA. During a pandemic, this goes beyond morality and is also a Public Health Danger. Furthermore, the burden will fall disproportionately on Black, Indigenous, and Latinx people of color, who are already suffering disproportionately from both the Pandemic and systemic racism.

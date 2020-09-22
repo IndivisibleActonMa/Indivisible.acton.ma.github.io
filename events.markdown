@@ -13,27 +13,9 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Specials this week!
 
-**Monday, Sep 14, 6:30-7:45p: Indivisible Acton-Area General Meeting**
-
-Please join us for the September General Meeting! There are 50 days from September 14 to Election Day ... The stakes for this election are high. Let's work together to create the plan to WIN 2020!
-
-Sign up [HERE](https://www.mobilize.us/indivisibleacton-area/event/318645/){:target="_blank"}. Agenda [HERE](https://docs.google.com/document/d/1JeMr4d7P8I_zHN5zBteGuFQm_7KoAeViCK7kev2yHC0/edit?usp=sharing){:target="_blank"}.
-
-Featured speaker: Janet Singer, Activist Extraordinaire! Swing Left Greater Boston.  SuperStates Update and Relational Organizing in the SuperStates
-
-**Paint Y’Art signs to put near Trump’s home in FL and flip a Congressional Seat**
-
-We have a new campaign. The candidate is [Jim Bonfiglio for FL House of Representative District 89](https://jimbonfigliofordistrict89.com){:target="_blank"}. Jim is not only a wonderful progressive, he literally will be flipping the state legislative seat where Donald and Melania live. What a poke in the eye these signs will be when they are placed!
-
-Training Wednesdays at 7p and Sundays at 4p.  Sign up [HERE](https://www.thecreativitygym.org/yart-signs-for-change/).
-
-Candidate Jim will be at this Wednesday’s (9/16) zoom meeting to talk to us!
-
-Contact [shawyang100@gmail.com](mailto:shawyang100@gmail.com) if you like Shaw (Concord) to pick up signs/paint kits from Newton for you.  
-
 **Ease into Phonebanking!**
 
-***Starting Saturday, Sep 19!***  
+***Starting Saturday, Sep 26!***  
 
 Denise and Shaw will hold regular gentle training sessions Saturdays 4-5:30p. You will learn and rehearse the scripts with us. We will set up your account using the very easy Hubdialer. Once you feel more comfortable, you can attend a number of phonebanking sessions throughout the week.  
 
