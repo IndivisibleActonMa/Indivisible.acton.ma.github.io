@@ -87,7 +87,7 @@ You can [register HERE](https://www.mobilize.us/indivisibleacton-area/event/2709
 To find phonebankings near you, check:
 [https://www.mobilize.us/2020victory/](https://www.mobilize.us/2020victory/){:target="_blank"}
 
-* **Monday, Sep 14, 7p - Biden Briefing and Social**\
+* **Monday, 7p - Biden Briefing and Social**\
   [RSVP HERE](https://www.mobilize.us/joebiden/event/282282/){:target="_blank"}  
 
 * **Tuesday, 6-8p - Phone banks with Ben**
