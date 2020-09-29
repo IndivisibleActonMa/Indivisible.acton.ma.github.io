@@ -13,14 +13,15 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Specials this week!
 
-**Ease into Phonebanking!**
+**COMBAT VOTER SUPPRESSION and SUPPORT the DSCC LEGAL FUND**
 
-***Starting Saturday, Sep 26!***  
+***Thursday, Oct 1, 5:30-7:30p***
 
-Denise and Shaw will hold regular gentle training sessions Saturdays 4-5:30p. You will learn and rehearse the scripts with us. We will set up your account using the very easy Hubdialer. Once you feel more comfortable, you can attend a number of phonebanking sessions throughout the week.  
+Hosted by Greater Andover Indivisible, N. Reading Indivisible and Force Multiplier, this fundraiser will benefit the Democratic Senate Campaign Committee (DSCC) Legal Fund, which is actively challenging Republicans’ decades-long voter suppression efforts in these battleground states: AZ ,FL,GA, ME, MN, MT NC, SC, and TX.
 
-[Register HERE](https://www.mobilize.us/indivisibleacton-area/event/326667/){:target="_blank"}. 
-  
+DA Rachael Rollins is the chief law enforcement official for Suffolk County. A dynamic and compelling speaker, she is pursuing criminal justice reform by reducing incarceration, correcting racial and ethnic disparities, and adopting alternatives to traditional prosecution. **[Read more about DA Rollins](https://www.suffolkdistrictattorney.com/about-the-office/meet-district-attorney-rollins){:target="_blank"}**.  
+
+Donate and Register: **[https://secure.actblue.com/donate/force multiplier 20 rollins?refcode=INDA](https://secure.actblue.com/donate/forcemultiplier20rollins){:target="_blank"}**
 
 ### Weekly events!
 
@@ -82,13 +83,13 @@ You can [register HERE](https://www.mobilize.us/indivisibleacton-area/event/2709
 
 ### Biden/Harris Phonebanking this week
 
-**The election isn't happening on November 3rd. It ends on November 3rd!** With early vote and vote by mail happening, we are doing **Get Out The Vote now**!  
+**The election isn't happening on November 3rd. It ends on November 3rd!** With early vote and vote by mail happening, we are doing **Get Out The Vote now**!
 
 To find phonebankings near you, check:
 [https://www.mobilize.us/2020victory/](https://www.mobilize.us/2020victory/){:target="_blank"}
 
 * **Monday, 7p - Biden Briefing and Social**\
-  [RSVP HERE](https://www.mobilize.us/joebiden/event/282282/){:target="_blank"}  
+  [RSVP HERE](https://www.mobilize.us/joebiden/event/282282/){:target="_blank"}
 
 * **Tuesday, 6-8p - Phone banks with Ben**
 
@@ -104,11 +105,10 @@ To find phonebankings near you, check:
   [RSVP HERE](https://us02web.zoom.us/meeting/register/tZYsf-Cppj0qHdQ3Ani-4rFBsmjYygk8oVa2){:target="_blank"}.
 
 * **Friday, 10a-12p - Phone bank with Kate Donaghue**\
-  [RSVP HERE](https://us02web.zoom.us/meeting/register/tZcqceCgpjMuH9CzkLhTDNvuV1MK92yxIzlA){:target="_blank"}.  
+  [RSVP HERE](https://us02web.zoom.us/meeting/register/tZcqceCgpjMuH9CzkLhTDNvuV1MK92yxIzlA){:target="_blank"}.
 
-* **Sunday, 4-5:30p - Phone bank with our Lincoln/Concord neighbors**  
-[RSVP HERE](https://www.mobilize.us/2020victory/event/318795/){:target="_blank"}.
-
+* **Sunday, 4-5:30p - Phone bank with our Lincoln/Concord neighbors**\
+  [RSVP HERE](https://www.mobilize.us/2020victory/event/318795/){:target="_blank"}.
 
 ---
 
