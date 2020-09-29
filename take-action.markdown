@@ -66,12 +66,11 @@ Click [HERE to check out our new mini-website for the Win 2020 Personal Monthly 
 
 “*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation   
 
-***Action for all environmentally concerned:***    Please sign [this petition](https://actionnetwork.org/petitions/mastrong){:target="_blank"} requesting action on environmental legislation NOW from our MA legislators.  The petition is written by local folks, does not ask for money!
-You can [SIGN HERE](https://actionnetwork.org/petitions/mastrong){:target="_blank"}.  
+***Action for all environmentally concerned:***    Sign [THIS PETITION](https://masscleanenergyfuture.hubspotpagebuilder.com/greenmoneyma){:target="_blank"} to tell Governor Baker to act faster on climate change.  
 
-Please share the petition widely.  
- 
+Please share [the petition](https://masscleanenergyfuture.hubspotpagebuilder.com/greenmoneyma){:target="_blank"} widely.  
 
+You can also submit comments and ideas to the Baker administration about how to accelerate their current pace for CO2 reductions [HERE](https://www.mass.gov/forms/form-3-feedback-on-80x50?auHash=x9u7p0q10G_uGvM0t3cQ5RV46fdrOM9NB1AbWTZ8O8o){:target="_blank"}.  
 
 ***Indivisible Acton-Area is proud to endorse the [Acton Climate Coalition](https://www.actonclimatecoalition.org){:target="_blank"} in declaring a climate emergency in Acton.  Click [HERE](https://www.actonclimatecoalition.org){:target="_blank"} to learn more.***  
 
