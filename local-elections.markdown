@@ -82,9 +82,13 @@ Make sure you are not an [inactive voter](https://www.sec.state.ma.us/ele/eleina
 
 Click [HERE](https://www.sec.state.ma.us/ele/eleidx.htm){:target="_blank"} for more voter and election information in MA.
 
-[Make sure you are registered to vote](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}!!  *Deadline to register is Aug 12.* 
+[Make sure you are registered to vote](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}!!  
+
+*NOTE: For all 2020 elections, the deadline to register to vote will be 10 days before the date of the election.* 
 
 Get the 411 on Voting from the [League of Women Voters](https://www.vote411.org/massachusetts){:target="_blank"}.  
+
+*Ballots for the November election will start being mailed out in the first week of October.*
 
 ---
 
