@@ -13,15 +13,15 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Specials this week!
 
-**COMBAT VOTER SUPPRESSION and SUPPORT the DSCC LEGAL FUND**
+**Virtual Text-a-thon II**
 
-***Thursday, Oct 1, 5:30-7:30p***
+***Saturday, Oct 10, 3-6p***
 
-Hosted by Greater Andover Indivisible, N. Reading Indivisible and Force Multiplier, this fundraiser will benefit the Democratic Senate Campaign Committee (DSCC) Legal Fund, which is actively challenging Republicans’ decades-long voter suppression efforts in these battleground states: AZ ,FL,GA, ME, MN, MT NC, SC, and TX.
+Text with the Biden Victory 2020 Text team!
 
-DA Rachael Rollins is the chief law enforcement official for Suffolk County. A dynamic and compelling speaker, she is pursuing criminal justice reform by reducing incarceration, correcting racial and ethnic disparities, and adopting alternatives to traditional prosecution. **[Read more about DA Rollins](https://www.suffolkdistrictattorney.com/about-the-office/meet-district-attorney-rollins){:target="_blank"}**.  
+*Please note - you must attend a training session to join the Text-a-thon.*  Find a training session [HERE](https://togetherfor2020.org/textathon2events/){:target="_blank"}.
 
-Donate and Register: **[https://secure.actblue.com/donate/force multiplier 20 rollins?refcode=INDA](https://secure.actblue.com/donate/forcemultiplier20rollins){:target="_blank"}**
+[Register HERE](https://togetherfor2020.org/calendar/text-a-thon-ii-blast-off/){:target="_blank"} for Text-a-thon II.  
 
 ### Weekly events!
 
