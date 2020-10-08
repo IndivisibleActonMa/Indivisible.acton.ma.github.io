@@ -1,6 +1,6 @@
 ---
-title: September General Meeting
-date: 2020-09-10 22:00:00 -04:00
+title: October General Meeting
+date: 2020-10-08 10:00:00 -04:00
 published: false
 is featured: true
 event-start-date: 2020-09-14 18:30:00 -04:00
@@ -51,16 +51,15 @@ var x = setInterval(function() {
 
 ---
 
-### Time is short!!!  
+### Let's Fly to the Finish!!!  
 
-Join us and be part of the plan to make the change we need!
+Less than 4 weeks before voting ends ... this is it.  We can't lose our focus!  
 
-Featured speaker is Janet Singer, activism coach extraordinare who will help us be the best and most effective activists we can be to save our democracy!
+Come share your stories and plans for the next three weeks to make sure every vote counts, and let's talk about the future!! 
 
-Click [HERE](https://docs.google.com/document/d/1JeMr4d7P8I_zHN5zBteGuFQm_7KoAeViCK7kev2yHC0/edit?usp=sharing){:target="_blank"} to see the agenda.  
+Together - We can do this!! 
 
-[RSVP HERE](https://www.mobilize.us/indivisibleacton-area/event/318645/){:target="_blank"}.  
+[RSVP HERE](https://www.mobilize.us/indivisibleacton-area/event/344916/){:target="_blank"}.  
 
-Let's advocate for the solutions we need and want!
 
-### *We have a lot of work to do!*
+### *We need a LANDSLIDE!*
