@@ -54,7 +54,7 @@ var x = setInterval(function() {
 
 Less than 4 weeks before voting ends ... this is it.  We can't lose our focus!  
 
-Come share your stories and plans for the next three weeks to make sure every vote counts, and let's talk about the future!! 
+Come share your stories and plans for the next three weeks to make sure every vote counts, and let's talk about the future!! Click [HERE](https://docs.google.com/document/d/1-2SMERAGTGsZkIkD6cMxyPlE3I-UJ9mOybS1fi_o7qA/edit?usp=sharing){:target="_blank"} for the agenda.
 
 Together - We can do this!! 
 
