@@ -120,10 +120,10 @@ You can [register HERE](https://www.mobilize.us/indivisibleacton-area/event/2709
 To find phonebankings near you, check:
 [https://www.mobilize.us/2020victory/](https://www.mobilize.us/2020victory/){:target="_blank"}
 
-* **Monday, 7p - Biden Briefing and Social**\
-  [RSVP HERE](https://www.mobilize.us/joebiden/event/282282/){:target="_blank"}
+* **Monday, 7p - Marvelous Monday**\
+  [RSVP HERE](https://www.mobilize.us/2020victory/event/329777/){:target="_blank"}
 
-* **Tuesday, 6-8p - Phone banks with Ben**
+* **Tuesday, 6-8p - Phone banks with Ben Blumenthal**
 
   Sign up [HERE](https://www.mobilize.us/joebiden/event/275357/){:target="_blank"}.\
   6p - Overview; 6:15p - Start phoning!
