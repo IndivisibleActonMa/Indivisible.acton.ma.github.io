@@ -28,9 +28,9 @@ It is up to all of us now.
  
 **Maine GOTV Weekend Phone Banks 9am-9pm**
 
-* Oct 17, Oct 18
-* Oct 23, Oct 24
-* Oct 31, Nov 1, 2, 3
+* *Oct 17, Oct 18*
+* *Oct 23, Oct 24*
+* *Oct 31, Nov 1, 2, 3*
 
 [Register HERE](https://my.mainedems.org){:target="_blank"}.  
 
