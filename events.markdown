@@ -34,6 +34,26 @@ It is up to all of us now.
 
 [Register HERE](https://my.mainedems.org){:target="_blank"}.  
 
+***Join the 20x20 for 2020 Club***  
+
+**The idea is simple:** log into the DemDialer for at least 20 minutes, for 20 days! You can connect with the dialer anytime from 10am to 11:30pm ET Monday through Saturday, noon to 11:30 pm on Sunday. Twenty minutes! 
+
+**Do what works for you!** It's like exercise! Some people do best with a structured time where you gather with others. For some the twenty minutes a day is the best approach! You can do both!
+
+**How to connect to the DemDialer**
+
+Here's a simple link that will connect you to what you need: [https://joebiden.com/call/](https://joebiden.com/call/){:target="_blank"}
+
+1. At it's simplest just connect to the ThruTalk dialer: [http://2020victory.io/login](http://2020victory.io/login){:target="_blank"}
+
+2. Look at the preview script - this will match whatever state or program the dialer is reaching: 
+[http://2020victory.io/previewscript](http://2020victory.io/previewscript){:target="_blank"}  
+
+3. For an overview of the program, including how to join the CallCrew slack channel and general information use this link:  
+[https://joebiden.com/natcalls/](https://joebiden.com/natcalls/){:target="_blank"} 
+
+
+
 
 ### Weekly events!
 
