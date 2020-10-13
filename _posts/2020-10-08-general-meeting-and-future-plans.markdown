@@ -1,6 +1,7 @@
 ---
 title: October General Meeting
 date: 2020-10-08 10:00:00 -04:00
+published: false
 is featured: true
 event-start-date: 2020-10-12 18:30:00 -04:00
 event-end-date: 2020-10-12 20:00:00 -04:00
