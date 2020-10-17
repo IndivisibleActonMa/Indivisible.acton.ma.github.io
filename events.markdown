@@ -13,19 +13,8 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Specials this week!
 
-**October General Meeting**
+***It is up to all of us now.***  
 
-***Monday, Oct 12, 6:30-7:45p***  
-
-Sprint to the Finish Line!
-
-Come share your stories and plans for the next three weeks to make sure every vote counts, and let’s talk about the future.  
-Click [HERE](https://docs.google.com/document/d/1-2SMERAGTGsZkIkD6cMxyPlE3I-UJ9mOybS1fi_o7qA/edit){:target="_blank"} for the agenda.  
-
-It is up to all of us now.
-
-[RSVP HERE](https://www.mobilize.us/indivisibleacton-area/event/344916/){:target="_blank"}.
- 
 **Maine GOTV Weekend Phone Banks 9am-9pm**
 
 * *Oct 17, Oct 18*
