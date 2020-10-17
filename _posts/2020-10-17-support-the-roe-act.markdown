@@ -4,7 +4,7 @@ date: 2020-10-17 18:15:00 -04:00
 is featured: true
 ---
 
-## Sign the petition: Pass the ROE Act
+### Sign the petition: Pass the ROE Act
 
 With abortion access hanging on by a thread, ***Massachusetts must take action***. [Will **you** sign this petition today urging our state’s elected leaders to immediately pass the ROE Act](https://actionnetwork.org/petitions/we-need-the-roe-act-now?clear_id=true){:target="_blank"}? **The goal is 10,000 signatures!**  
 
