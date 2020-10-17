@@ -1,5 +1,5 @@
 ---
-title: 'Sign the petition: Pass the ROE Act'
+title: Support the ROE Act
 date: 2020-10-17 18:15:00 -04:00
 is featured: true
 ---
