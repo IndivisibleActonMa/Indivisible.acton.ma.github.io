@@ -259,3 +259,11 @@ Town website: [https://www.harvard.ma.us/town-clerk/pages/early-voting-mail-only
 ### E-signatures on Ballot Questions  
 
 Secretary of State William Galvin has agreed to a new court judgement allowing [ballot question campaigns to collect the 13,000-plus signatures electronically](https://www.lowellsun.com/2020/04/30/accord-clears-way-for-e-sigs-on-ballot-questions/){:target="_blank"}.  
+
+* [Everything you ever wanted to know about post carding from home and more!](https://docs.google.com/document/d/1756GTNx8WnkRc2m9HyiEtQ7v8uCmDqVRFngE8GMj-lA/edit?usp=sharing){:target="_blank"}  
+
+* [Local postcarding resources](https://docs.google.com/document/d/1Qc-LLDHV2egnDt8ge2LZo-DzgmBWK5YnRoPpl1lQ4d0/edit?usp=sharing){:target="_blank"} - Get postcards-to -go action packets from several local resources.  Find out more [HERE](https://docs.google.com/document/d/1Qc-LLDHV2egnDt8ge2LZo-DzgmBWK5YnRoPpl1lQ4d0/edit?usp=sharing){:target="_blank"}.  
+
+* If we're going to be avoiding public gatherings and/or self-quarantined we may as well stay busy. Please, sign up to write letters to low-propensity voters with [Vote Forward](https://votefwd.org){:target="_blank"}. This is a great way to resist: it's so easy and studies have shown these letters to be uniquely effective. All you need is a printer, a pen, and a stamp!  
+
+* Sign up for a postcard campaign with [Postcards to Voters](https://postcardstovoters.org){:target="_blank"}.  
