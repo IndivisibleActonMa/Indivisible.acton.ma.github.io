@@ -23,7 +23,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 [Register HERE](https://my.mainedems.org){:target="_blank"}.  
 
-***Critical need for safe no-contact Canvassing in Maine to help elect Sarah Gideon and Flip the Senate.***  Information sessions on Tuesdays and Thursdays.  Please email Linda [lindapiano4953@gmail.com](mailto:lindapiano4953@gmail.com) for more details.
+***Critical need for safe no-contact Canvassing in Maine to help elect Sarah Gideon and Flip the Senate.***  [Information sessions](https://www.mobilize.us/swingleftmaine/event/346813/){:target="_blank"} on Tuesdays and Thursdays.  Please email Linda [lindapiano4953@gmail.com](mailto:lindapiano4953@gmail.com) for more details.
 
 ***Join the 20x20 for 2020 Club***  
 
