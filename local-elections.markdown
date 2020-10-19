@@ -57,6 +57,16 @@ Barack Obama, Feb 5, 2008
 — John Lewis, A 2012 speech in Charlotte, NC  
 
 ---
+### In-Person EARLY voting has begun!
+
+You can now vote in person - Oct 17-Oct 30.  Check your town websites for times and locations.
+
+* [Acton](https://www.acton-ma.gov/598/Elections-Voting){:target="_blank"} 
+* [Boxborough](https://www.boxborough-ma.gov/CivicAlerts.aspx?AID=21){:target="_blank"} 
+* [Harvard](https://www.harvard.ma.us/town-clerk/pages/november-3-2020-presidential-election-voter-options-guide){:target="_blank"}    
+* [Littleton](https://www.littletonma.org/town-clerk/news/person-early-voting-absenteemail-voting-general-election){:target="_blank"}  
+* [Maynard](https://www.townofmaynard-ma.gov/gov/elections/voter-guide/){:target="_blank"}  
+* [Stow](https://www.stow-ma.gov/home/news/person-early-voting-oct-17-oct-30-0){:target="_blank"}  
 
 ### Voting By Mail
 
