@@ -23,6 +23,8 @@ date: 2019-11-22 08:43:00 -05:00
 
 [Register HERE](https://my.mainedems.org){:target="_blank"}.  
 
+***Critical need for safe no-contact Canvassing in Maine to help elect Sarah Gideon and Flip the Senate.***  Information sessions on Tuesdays and Thursdays.  Please email Linda [lindapiano4953@gmail.com](mailto:lindapiano4953@gmail.com) for more details.
+
 ***Join the 20x20 for 2020 Club***  
 
 **The idea is simple:** log into the DemDialer for at least 20 minutes, for 20 days! You can connect with the dialer anytime from 10am to 11:30pm ET Monday through Saturday, noon to 11:30 pm on Sunday. Twenty minutes! 
@@ -46,15 +48,13 @@ Here's a simple link that will connect you to what you need: [https://joebiden.c
 
 ### Weekly events!
 
-**Monday 4:00 – 6:00 PM: Maine Mondays – Phonebanking to oust Susan Collins**
+**Monday 4:00 – 6:00 PM: Flip the Senate NC - Phonebanking to elect Cal Cunningham**
 
-Let’s phonebank together to elect Sara Gideon and oust Susan Collins, Flip the Senate and defang Mitch. Feel free to join any time.
+This is a change from phonebanking to Maine to NC.  Phonebanking to Maine is now only on weekends.
+Let’s phonebank together to elect Cal Cunningham, Flip the Senate and defang Mitch. 
+We will start at 4 with refresher training and set up. Wrap up at 5:30PM. Support provided throughout.  
 
-We will start at 4 with training using the new Sara Gideon script, then we’ll move to training for the ThruTalk application. You’ll need a computer with either the Chrome or Firefox browser. Support provided throughout.
-
-For more formal training, we encourage you to attend one of the weekly sessions [HERE](https://docs.google.com/document/d/1gO8KTjylSolnqE0MYWZBor-lh0rp1Sv8-b_MJn8TD-c/edit?usp=sharing){:target="_blank"}
-
-[Register HERE](https://www.mobilize.us/indivisibleacton-area/event/281380/){:target="_blank"} to get a zoom link and join us!
+[Register HERE](https://www.mobilize.us/indivisibleacton-area/event/281380/){:target="_blank"} to get a zoom link and join us!  
 
 **Tuesday 1:00 – 2:00 PM: Touch Base Tuesdays – Election 2020 Update**
 
@@ -130,6 +130,12 @@ To find phonebankings near you, check:
 
 * **Sunday, 4-5:30p - Phone bank with our Lincoln/Concord neighbors**\
   [RSVP HERE](https://www.mobilize.us/2020victory/event/318795/){:target="_blank"}.
+
+### GOTV NC for Biden/Harris and Flip The Senate
+
+East coast GOTV phone banks to NC to elect Joe Biden for president, Cal Cunningham for Senate and Roy Copper for Governor.  Saturdays and Sundays **all day** long.  Click
+[HERE](https://www.mobilize.us/nc2020victory/event/345228/){:target="_blank"} to register. 
+
 
 ---
 
