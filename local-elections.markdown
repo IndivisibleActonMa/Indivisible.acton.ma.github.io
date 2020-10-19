@@ -78,7 +78,7 @@ You can now vote in person - Oct 17-Oct 30.  Check your town websites for times 
 
 ### MA Elections 
 
-We have some important races in Massachusetts to elect progressive candidates to the State House.  Please check out [this document](https://docs.google.com/document/d/11EvHaU_DA7WfWa6xztSDVgNOXBktaa4z9aaU4rsV2jQ/edit){:target="_blank"} for more information, then find a candidate/candidates to adopt and go to their website to volunteer for phonebanking, texting or to make a donation!  Thank you to Linda for compiling all the information!  
+We have some **important races** in Massachusetts to elect progressive candidates to the State House! Please check out [THIS DOCUMENT](https://docs.google.com/document/d/11EvHaU_DA7WfWa6xztSDVgNOXBktaa4z9aaU4rsV2jQ/edit){:target="_blank"} for more information, then find a candidate/candidates to adopt and go to their website to volunteer for phone banking, texting or to make a donation!  Thank you to Linda for compiling all the information!  
 
 
 
