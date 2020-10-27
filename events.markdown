@@ -13,21 +13,23 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Specials this week!
 
-***It is up to all of us now.***  
+***It is up to all of us now.***
 
 **Maine GOTV Weekend Phone Banks 9am-9pm**
 
 * *Oct 17, Oct 18*
+
 * *Oct 23, Oct 24*
+
 * *Oct 31, Nov 1, 2, 3*
 
-[Register HERE](https://my.mainedems.org){:target="_blank"}.  
+[Register HERE](https://my.mainedems.org){:target="_blank"}.
 
 ***Critical need for safe no-contact Canvassing in Maine to help elect Sarah Gideon and Flip the Senate.***  [Information sessions](https://www.mobilize.us/swingleftmaine/event/346813/){:target="_blank"} on Tuesdays and Thursdays.  Please email Linda [lindapiano4953@gmail.com](mailto:lindapiano4953@gmail.com) for more details.
 
-***Join the 20x20 for 2020 Club***  
+***Join the 20x20 for 2020 Club***
 
-**The idea is simple:** log into the DemDialer for at least 20 minutes, for 20 days! You can connect with the dialer anytime from 10am to 11:30pm ET Monday through Saturday, noon to 11:30 pm on Sunday. Twenty minutes! 
+**The idea is simple:** log into the DemDialer for at least 20 minutes, for 20 days! You can connect with the dialer anytime from 10am to 11:30pm ET Monday through Saturday, noon to 11:30 pm on Sunday. Twenty minutes!
 
 **Do what works for you!** It's like exercise! Some people do best with a structured time where you gather with others. For some the twenty minutes a day is the best approach! You can do both!
 
@@ -37,24 +39,33 @@ Here's a simple link that will connect you to what you need: [https://joebiden.c
 
 1. At it's simplest just connect to the ThruTalk dialer: [http://2020victory.io/login](http://2020victory.io/login){:target="_blank"}
 
-2. Look at the preview script - this will match whatever state or program the dialer is reaching: 
-[http://2020victory.io/previewscript](http://2020victory.io/previewscript){:target="_blank"}  
+2. Look at the preview script - this will match whatever state or program the dialer is reaching:
+   [http://2020victory.io/previewscript](http://2020victory.io/previewscript){:target="_blank"}
 
-3. For an overview of the program, including how to join the CallCrew slack channel and general information use this link:  
-[https://joebiden.com/natcalls/](https://joebiden.com/natcalls/){:target="_blank"} 
+3. For an overview of the program, including how to join the CallCrew slack channel and general information use this link:\
+   [https://joebiden.com/natcalls/](https://joebiden.com/natcalls/){:target="_blank"}
 
+**Please consider training to be a marshal for upcoming rallies and protests:**
 
+**Mon (10/26) 7:30pm:** Choose Democracy (George Lakey) [RSVP here](https://choosedemocracy.us/trainings/#.X42rFC05TOQ?link_id=9&can_id=0cd62fba6aef555c48f3500e144395f9&source=email-weve-got-to-maintain-focus-2&email_referrer=email_965110&email_subject=hang-in-there-your-country-needs-you){:no_target="_blank"}
 
+**Tue (10/27) 7:30:** A Guide to Defending Democracy (Hold the Line)[RSVP Here](https://holdthelineguide.com/?link_id=10&can_id=0cd62fba6aef555c48f3500e144395f9&source=email-weve-got-to-maintain-focus-2&email_referrer=email_965110&email_subject=hang-in-there-your-country-needs-you)**[RSVP here](https://holdthelineguide.com/?link_id=10&can_id=0cd62fba6aef555c48f3500e144395f9&source=email-weve-got-to-maintain-focus-2&email_referrer=email_965110&email_subject=hang-in-there-your-country-needs-you){:no_target="_blank"}  
+
+**Wed (10/28) 5-7:** Tailored Marshal Training by local experts (Rebecca Riccio) [RSVP here](https://forms.gle/iA9rJYZrtNWra4Pa7){:no_target="_blank"}. 
+
+**Wed (10/28) 7pm:** marshalling & de-escalation training (Indivisible)** [RSVP here](https://indivisible.zoom.us/webinar/register/WN_QCSiloeZT2e-i6Pr7TkOlA?link_id=7&can_id=0cd62fba6aef555c48f3500e144395f9&source=email-weve-got-to-maintain-focus-2&email_referrer=email_965110&email_subject=hang-in-there-your-country-needs-you){:no_target="_blank"}  
+
+**Thu (10/29) 5pm:** marshalling & de-escalation training (UU Mass Action) [RSVP here](https://www.facebook.com/events/950908182064696/?link_id=8&can_id=0cd62fba6aef555c48f3500e144395f9&source=email-weve-got-to-maintain-focus-2&email_referrer=email_965110&email_subject=hang-in-there-your-country-needs-you){:no_target="_blank"}  
 
 ### Weekly events!
 
 **Monday 4:00 – 6:00 PM: Flip the Senate NC - Phonebanking to elect Cal Cunningham**
 
 This is a change from phonebanking to Maine to NC.  Phonebanking to Maine is now only on weekends.
-Let’s phonebank together to elect Cal Cunningham, Flip the Senate and defang Mitch. 
-We will start at 4 with refresher training and set up. Wrap up at 5:30PM. Support provided throughout.  
+Let’s phonebank together to elect Cal Cunningham, Flip the Senate and defang Mitch.
+We will start at 4 with refresher training and set up. Wrap up at 5:30PM. Support provided throughout.
 
-[Register HERE](https://www.mobilize.us/indivisibleacton-area/event/281380/){:target="_blank"} to get a zoom link and join us!  
+[Register HERE](https://www.mobilize.us/indivisibleacton-area/event/281380/){:target="_blank"} to get a zoom link and join us!
 
 **Tuesday 1:00 – 2:00 PM: Touch Base Tuesdays – Election 2020 Update**
 
@@ -134,8 +145,7 @@ To find phonebankings near you, check:
 ### GOTV NC for Biden/Harris and Flip The Senate
 
 East coast GOTV phone banks to NC to elect Joe Biden for president, Cal Cunningham for Senate and Roy Copper for Governor.  Saturdays and Sundays **all day** long.  Click
-[HERE](https://www.mobilize.us/nc2020victory/event/345228/){:target="_blank"} to register. 
-
+[HERE](https://www.mobilize.us/nc2020victory/event/345228/){:target="_blank"} to register.
 
 ---
 
