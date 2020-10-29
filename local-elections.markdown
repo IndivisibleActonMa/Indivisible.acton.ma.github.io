@@ -70,6 +70,8 @@ You can now vote in person - Oct 17-Oct 30.  Check your town websites for times 
 
 ### Voting By Mail
 
+***NOTE - There is not enough time now to rely on the mail to deliver your ballot on time.  Please take your ballot to your drop box, or consider voting in person.***  
+
 [HERE](http://www.sec.state.ma.us/ele/eleev/early-voting-by-mail.htm){:target="_blank"} is everything you need to know about how to request your mail-in ballot:  [www.MailMyBallotMA.com](http://www.sec.state.ma.us/ele/eleev/early-voting-by-mail.htm){:target="_blank"}  
 
 *Voting by mail is available to all voters for all elections in 2020. You do not need an excuse to vote by mail this year.*
