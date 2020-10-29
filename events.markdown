@@ -139,8 +139,8 @@ To find phonebankings near you, check:
 * **Friday, 10a-12p - Phone bank with Kate Donaghue**\
   [RSVP HERE](https://us02web.zoom.us/meeting/register/tZcqceCgpjMuH9CzkLhTDNvuV1MK92yxIzlA){:target="_blank"}.
 
-* **Sunday, 4-5:30p - Phone bank with our Lincoln/Concord neighbors**\
-  [RSVP HERE](https://www.mobilize.us/2020victory/event/318795/){:target="_blank"}.
+* **Sunday, Various Times - Together2020 events**\
+  [RSVP HERE](https://www.mobilize.us/2020victory/){:target="_blank"}.
 
 ### GOTV NC for Biden/Harris and Flip The Senate
 
