@@ -79,27 +79,14 @@ Please [Register HERE](https://us02web.zoom.us/meeting/register/tZEvfu-tqzwrE9Ee
 Join us for an hour of shared post carding and conversation over Zoom!
 [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/268602/){:target="_blank"} to get a zoom link.
 
-**Thursday 1:00 – 2:00PM: Texting Thursdays – Demo and Training**
 
-2020 is a Must Win Year. Every vote counts. Texting is a simple and powerful way to reach out to many voters quickly. You can text from your home, at your pace, and on any time you choose.
+**Friday 4:00 – 5:00PM: Happy Hour Fridays Together**
 
-This is an Intro to Texting class for beginners and refreshers. Christine will demonstrate live cases texting with the simple to use MoveOn and ResistanceLab platforms which provides a variety of interesting and important campaigns around the country.  We will help you set up your account so you can text by the end of the class.
-
-[Register HERE](https://www.mobilize.us/indivisibleacton-area/event/270069/){:target="_blank"} to get a zoom link and join us!
-
-**Friday 4:00 – 5:00PM: Happy Hour Fridays Texting Together**
-
-Let's zoom together while we text! This is a happy hour social event on Fridays for everyone to relax and enjoy texting with fellow activists. We will have conversations and share interesting texting stories– just for laughs.
+Let's zoom together! This is a happy hour social event on Fridays for everyone to relax and converse with fellow activists. We will have conversations and share interesting stories– just for laughs.
 
 Please bring your favorite cocktail (quarantinis or beverage of your choice) and good spirits.
 
 [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/274611/){:target="_blank"}  to get a zoom link.
-
-**Saturdays 10:00 – 11:00 AM:  Winning Saturdays - Coffee, Conversations, Postcarding**
-
-Let's get together virtually and share what we're doing to take action! Bring your coffee and your project ideas!
-
-You can [register HERE](https://www.mobilize.us/indivisibleacton-area/event/270980/){:target="_blank"} in advance to put on your calendar and get reminders.  You can also register as you join us!
 
 ### Biden/Harris Phonebanking this week
 
@@ -107,28 +94,6 @@ You can [register HERE](https://www.mobilize.us/indivisibleacton-area/event/2709
 
 To find phonebankings near you, check:
 [https://www.mobilize.us/2020victory/](https://www.mobilize.us/2020victory/){:target="_blank"}
-
-* **Monday, 7p - Marvelous Monday**\
-  [RSVP HERE](https://www.mobilize.us/2020victory/event/329777/){:target="_blank"}
-
-* **Tuesday, 6-8p - Phone banks with Ben Blumenthal**
-
-  Sign up [HERE](https://www.mobilize.us/joebiden/event/275357/){:target="_blank"}.\
-  6p - Overview; 6:15p - Start phoning!
-  7:50p - Debrief; 8p -  Done!
-
-* **Wednesday, 10a-12p - Phone bank with Kate Donaghue**
-
-  [RSVP HERE](https://us02web.zoom.us/meeting/register/tZArfu2orzkuGty9bWNUYdQGpjE9WvnbDTeT){:target="_blank"}.
-
-* **Thursday, 6-8p - Phone bank with Jason**\
-  [RSVP HERE](https://us02web.zoom.us/meeting/register/tZYsf-Cppj0qHdQ3Ani-4rFBsmjYygk8oVa2){:target="_blank"}.
-
-* **Friday, 10a-12p - Phone bank with Kate Donaghue**\
-  [RSVP HERE](https://us02web.zoom.us/meeting/register/tZcqceCgpjMuH9CzkLhTDNvuV1MK92yxIzlA){:target="_blank"}.
-
-* **Sunday, Various Times - Together2020 events**\
-  [RSVP HERE](https://www.mobilize.us/2020victory/){:target="_blank"}.
 
 ### GOTV NC for Biden/Harris and Flip The Senate
 
