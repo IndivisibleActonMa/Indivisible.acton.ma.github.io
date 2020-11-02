@@ -88,7 +88,7 @@ Please bring your favorite cocktail (quarantinis or beverage of your choice) and
 
 [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/274611/){:target="_blank"}  to get a zoom link.
 
-### Biden/Harris Phonebanking this week
+### Biden/Harris Phonebanking 
 
 **The election isn't happening on November 3rd. It ends on November 3rd!** With early vote and vote by mail happening, we are doing **Get Out The Vote now**!
 
