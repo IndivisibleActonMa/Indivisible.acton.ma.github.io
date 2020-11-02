@@ -45,18 +45,6 @@ Here's a simple link that will connect you to what you need: [https://joebiden.c
 3. For an overview of the program, including how to join the CallCrew slack channel and general information use this link:\
    [https://joebiden.com/natcalls/](https://joebiden.com/natcalls/){:target="_blank"}
 
-**Please consider training to be a marshal for upcoming rallies and protests:**
-
-**Mon (10/26) 7:30pm:** Choose Democracy (George Lakey) [RSVP here](https://choosedemocracy.us/trainings/#.X42rFC05TOQ?link_id=9&can_id=0cd62fba6aef555c48f3500e144395f9&source=email-weve-got-to-maintain-focus-2&email_referrer=email_965110&email_subject=hang-in-there-your-country-needs-you){:no_target="_blank"}
-
-**Tue (10/27) 7:30:** A Guide to Defending Democracy (Hold the Line)[RSVP Here](https://holdthelineguide.com/?link_id=10&can_id=0cd62fba6aef555c48f3500e144395f9&source=email-weve-got-to-maintain-focus-2&email_referrer=email_965110&email_subject=hang-in-there-your-country-needs-you){:no_target="_blank"}  
-
-**Wed (10/28) 5-7:** Tailored Marshal Training by local experts (Rebecca Riccio) [RSVP here](https://forms.gle/iA9rJYZrtNWra4Pa7){:no_target="_blank"}. 
-
-**Wed (10/28) 7pm:** marshalling & de-escalation training (Indivisible)** [RSVP here](https://indivisible.zoom.us/webinar/register/WN_QCSiloeZT2e-i6Pr7TkOlA?link_id=7&can_id=0cd62fba6aef555c48f3500e144395f9&source=email-weve-got-to-maintain-focus-2&email_referrer=email_965110&email_subject=hang-in-there-your-country-needs-you){:no_target="_blank"}  
-
-**Thu (10/29) 5pm:** marshalling & de-escalation training (UU Mass Action) [RSVP here](https://www.facebook.com/events/950908182064696/?link_id=8&can_id=0cd62fba6aef555c48f3500e144395f9&source=email-weve-got-to-maintain-focus-2&email_referrer=email_965110&email_subject=hang-in-there-your-country-needs-you){:no_target="_blank"}  
-
 ### Weekly events!
 
 **Monday 4:00 – 6:00 PM: Flip the Senate NC - Phonebanking to elect Cal Cunningham**
