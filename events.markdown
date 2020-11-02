@@ -74,6 +74,10 @@ Join [Shaw](mailto:shaw@indivisibleacton.org), [Denise](mailto:denise@indivisibl
 
 Please [Register HERE](https://us02web.zoom.us/meeting/register/tZEvfu-tqzwrE9EebmPU53lB1axn8YOEpZV_){:target="_blank"}.
 
+**Tuesday - Watch the results open house, 9p-12a**  
+
+Drop in and converse with us between 9 and 12 - We know there won't be a final count, but some of us won't be sleeping anyway! This is just a space so no one has be alone. [RSVP here](https://www.mobilize.us/indivisibleacton-area/event/361053/){:target="_blank"}.  
+
 **Wednesday Protect The Results**
 
 Demand every vote be counted. If Trump tries to challenge the results, we’re ready. Join one of the more than 450 events planned for after the election to ensure every vote is counted and that there is a peaceful transfer of power here: [ProtectTheResults.com](https://protecttheresults.com/?utm_source=Indivisible){:target="_blank"}.  
