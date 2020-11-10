@@ -45,8 +45,6 @@ var x = setInterval(function() {
 
 ---
 
-### [Make a plan to WIN in 2020!](http://www.indivisibleacton-elections.org){:target="_blank"} 
-
 *"Change will not come if we wait for some other person or if we wait for some other time. We are the ones we've been waiting for."*  
 
 Barack Obama, Feb 5, 2008   
@@ -57,50 +55,21 @@ Barack Obama, Feb 5, 2008
 — John Lewis, A 2012 speech in Charlotte, NC  
 
 ---
-### In-Person EARLY voting has begun!
 
-You can now vote in person - Oct 17-Oct 30.  Check your town websites for times and locations.
+### How did your town vote?
 
-* [Acton](https://www.acton-ma.gov/598/Elections-Voting){:target="_blank"} 
-* [Boxborough](https://www.boxborough-ma.gov/CivicAlerts.aspx?AID=21){:target="_blank"} 
-* [Harvard](https://www.harvard.ma.us/town-clerk/pages/november-3-2020-presidential-election-voter-options-guide){:target="_blank"}    
-* [Littleton](https://www.littletonma.org/town-clerk/news/person-early-voting-absenteemail-voting-general-election){:target="_blank"}  
-* [Maynard](https://www.townofmaynard-ma.gov/gov/elections/voter-guide/){:target="_blank"}  
-* [Stow](https://www.stow-ma.gov/home/news/person-early-voting-oct-17-oct-30-0){:target="_blank"}  
-
-### Voting By Mail
-
-***NOTE - There is not enough time now to rely on the mail to deliver your ballot on time.  Please take your ballot to your drop box, or consider voting in person.***  
-
-[HERE](http://www.sec.state.ma.us/ele/eleev/early-voting-by-mail.htm){:target="_blank"} is everything you need to know about how to request your mail-in ballot:  [www.MailMyBallotMA.com](http://www.sec.state.ma.us/ele/eleev/early-voting-by-mail.htm){:target="_blank"}  
-
-*Voting by mail is available to all voters for all elections in 2020. You do not need an excuse to vote by mail this year.*
+Click [HERE](https://www.wbur.org/news/2020/11/03/2020-massachusetts-election-map){:target="_blank"} and find out how your town voted.
 
 ---
 
 ### MA Elections 
 
-We have some **important races** in Massachusetts to elect progressive candidates to the State House! Please check out [THIS DOCUMENT](https://docs.google.com/document/d/11EvHaU_DA7WfWa6xztSDVgNOXBktaa4z9aaU4rsV2jQ/edit){:target="_blank"} for more information, then find a candidate/candidates to adopt and go to their website to volunteer for phone banking, texting or to make a donation!  Thank you to Linda for compiling all the information!  
+Even though elections are over, the Legislature is still in session.  
 
+Join [Act On Mass](https://actonmass.org){:target="_blank"}  to [take action](https://docs.google.com/forms/d/e/1FAIpQLSey2_BeLA-OlvDknGmZ46i3sXJ2Qxu8m9yettQnK5lZ1oW-QA/viewform){:target="_blank"} for transparency in our State House!  
 
+Let's get the ROE Act passed! Read more [HERE](http://www.indivisibleacton.org/2020/11/10/support-the-roe-act.html). 
 
----
-
-Click [HERE](https://www.sec.state.ma.us/ele/covid-19/covid-19.htm){:target="_blank"} for the State of MA [COVID-19 Election Updates](https://www.sec.state.ma.us/ele/covid-19/covid-19.htm){:target="_blank"}.  
-
-Make sure you are not an [inactive voter](https://www.sec.state.ma.us/ele/eleinactivevoters/inactivevotersidx.htm){:target="_blank"}.  
-
-[Click HERE to check your registration status](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}.  
-
-Click [HERE](https://www.sec.state.ma.us/ele/eleidx.htm){:target="_blank"} for more voter and election information in MA.
-
-[Make sure you are registered to vote](https://www.sec.state.ma.us/voterregistrationsearch/myvoterregstatus.aspx){:target="_blank"}!!  
-
-*NOTE: For all 2020 elections, the deadline to register to vote will be 10 days before the date of the election.* 
-
-Get the 411 on Voting from the [League of Women Voters](https://www.vote411.org/massachusetts){:target="_blank"}.  
-
-*Ballots for the November election will start being mailed out in the first week of October.*
 
 ---
 
