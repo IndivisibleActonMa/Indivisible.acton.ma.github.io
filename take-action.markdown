@@ -95,12 +95,6 @@ Click [HERE](https://americansofconscience.com/){:target="_blank"} to find the l
 
 ---
 
-### [COVID-19 Info & Actions](http://www.indivisibleacton.org/2020/04/13/covid19.html)  
-
-Click [HERE](http://www.indivisibleacton.org/2020/04/13/covid19.html) for some ideas about actions relevant to COVID-19.
-
----
-
 ### Ways to Resist from Home
 
 * [Together For 2020](https://togetherfor2020.org){:target="_blank"} is a new collaboration of [activist leaders from across the Commonwealth](https://togetherfor2020.org/about-us/){:target="_blank"} ready to help you take effective action.  Find out how [Together For 2020](https://togetherfor2020.org){:target="_blank"} can help **YOU** defeat Trump and take back our democracy!  
