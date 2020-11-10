@@ -7,9 +7,9 @@ is featured: true
 ### Important Dates
 
 **Nov 18**    When state begins mailing out absentee ballots  
-**Dec 7**     Deadline for voter registration for runoff (Think people just turning 18)  
+**Dec  7**    Deadline for voter registration for runoff (Think people just turning 18)  
 **Dec 14**    Early Voting Begins for three week period  
-**Jan 5**     Election Day 
+**Jan  5**    Election Day 
 
 ---
 
