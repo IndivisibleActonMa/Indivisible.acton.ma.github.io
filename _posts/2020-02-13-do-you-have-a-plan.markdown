@@ -15,7 +15,7 @@ is featured: true
 
 **Saturday, Nov 12** 
 
-Sign up with Fair Fight Action - Runoff GOTV Weekend of Action Phone and Text Bank for Georgia! [Register HERE](https://www.mobilize.us/fairfightaction/event/362669/){:target="_blank"}. 
+Sign up with Fair Fight Action - Runoff GOTV Weekend of Action Phone and Text Bank for Georgia! [Register HERE](https://www.mobilize.us/fairfightaction/event/362958/){:target="_blank"}. 
 
 ---
 
