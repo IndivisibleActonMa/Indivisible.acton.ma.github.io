@@ -18,7 +18,7 @@ is featured: true
 Sign up with Fair Fight Action - Runoff GOTV Weekend of Action Phone and Text Bank for Georgia! [Register HERE](https://www.mobilize.us/fairfightaction/event/362958/){:target="_blank"}. 
 
 ---
-**Volunteer with Fair Fight Action for the Runoff**: 
+**Volunteer with Fair Fight Action for the Runoff**:  
 Stay tuned to [https://www.mobilize.us/fairfightaction/](https://www.mobilize.us/fairfightaction/){:target="_blank"} for upcoming opportunities. 
 
 **Volunteer Directly with the Ossoff and Warnock Campaigns**:  
