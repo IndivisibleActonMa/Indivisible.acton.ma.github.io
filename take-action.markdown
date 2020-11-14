@@ -5,7 +5,7 @@ layout: page
 ---
 
 ---
-<span style="font-family:Papyrus; font-size:2em; color:red;">Take Action and Help Flip The Senate </span><span style="font-family:Papyrus; font-size:2em; color:blue;">BLUE!</span>  
+<span style="font-family:Papyrus; font-size:2em; color:red;">Take Action and Help </span><span style="font-family:Papyrus; font-size:2em; color:blue;">[Flip The Senate BLUE](http://www.indivisibleacton.org/2020/02/13/do-you-have-a-plan.html)!</span>  
 
 ---
 
