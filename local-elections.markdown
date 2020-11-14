@@ -10,7 +10,7 @@ date: 2019-12-30 22:56:00 -05:00
 
 <script>
 // Set the date we're counting down to
-var countDownDate = new Date("Nov 3 2020 00:00");
+var countDownDate = new Date("Jan 5 2021 00:00");
 
 // Update the count down every 1 second
 var x = setInterval(function() {
@@ -32,7 +32,7 @@ var x = setInterval(function() {
   test1.style.font = "italic bold 30px arial,serif"; 
   //test1.style.textAlign = "center";
 //test1.innerHTML = days + " days left until Nov 3, 2020!";
-  test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s left until Nov 3, 2020!";
+  test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s left until Jan 5, 2021!";
   
   
   // If the count down is over, write some text 
@@ -61,6 +61,10 @@ Barack Obama, Feb 5, 2008
 Click [HERE](https://www.wbur.org/news/2020/11/03/2020-massachusetts-election-map){:target="_blank"} and find out how your town voted.
 
 ---
+
+### GA Runoff!
+
+Click [HERE](http://www.indivisibleacton.org/2020/02/13/do-you-have-a-plan.html) for more info on how you can help!
 
 ### MA Elections 
 
