@@ -36,7 +36,7 @@ The police reform bill has stalled.  Our legislatures promised for meaningful po
 
 ### Emergency Paid Sick Time
 
-Low-wage workers are our first line of defense against COVID-19, but they are feeling the greatest economic impact of the outbreak. Healthcare and long-term care workers, janitorial workers, food service workers, child care workers, municipal workers, adjunct faculty, gig workers, and others on the front lines are critical to supporting our communities during the OVID-19 outbreak. [Reference](https://www.progressivemass.com/nov-2020-house-budget-roll-call){:target="_blank"}. 
+Low-wage workers are our first line of defense against COVID-19, but they are feeling the greatest economic impact of the outbreak. Healthcare and long-term care workers, janitorial workers, food service workers, child care workers, municipal workers, adjunct faculty, gig workers, and others on the front lines are critical to supporting our communities during the OVID-19 outbreak. [h/t Progressive Mass](https://www.progressivemass.com/nov-2020-house-budget-roll-call){:target="_blank"}. 
 
 **Please send a thank you message to your State Senator or urge them to get on board with this absolutely essential legislation:** 
 [https://actionnetwork.org/letters/ma-senate-pass-epst](https://actionnetwork.org/letters/ma-senate-pass-epst){:target="_blank"} 
