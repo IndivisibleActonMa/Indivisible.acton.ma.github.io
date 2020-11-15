@@ -45,7 +45,7 @@ Low-wage workers are our first line of defense against COVID-19, but they are fe
 
 We must push our MA Legislature to advocate for strong and effective legislation during their committee discussions of the climate bill. 
 
-See a comparison of the two bills [HERE](http://climateactionnowma.org/wp-content/uploads/ClimateBillsComparisonAug2020.pdf){:target="_blank"} and write to your representatives to enact stronger climate legislation in Massachusetts!
+See a comparison of the two bills [HERE](http://climateactionnowma.org/wp-content/uploads/ClimateBillsComparisonAug2020.pdf){:target="_blank"} and write to your representatives and/or the Conference Committee to enact stronger climate legislation in Massachusetts!
 
 
 ### Driving Families Forward
