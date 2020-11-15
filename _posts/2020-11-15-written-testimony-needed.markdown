@@ -25,6 +25,8 @@ From the passage of this act until 45 days after the termination of the COVID-19
 * **360 Emergency Paid Sick time ((Section ECO) Sponsor: Jason Lewis**  
 There shall be established a fund to be known as the COVID Emergency Paid Sick Leave Fund to be administered by the executive office of labor and workforce development. The purpose of the Fund shall be for financial assistance to businesses not covered by the Family First Coronavirus Response Act for extended emergency paid sick leave.
 
+[Source](https://docs.google.com/document/d/1btC_GfOQf2oanVWyVSDR0NEfWoazN_WnFizcZ6agYTw/edit). 
+
 ### Police Reform
 
 The police reform bill has stalled.  Our legislatures promised for meaningful policing reform legislation.
