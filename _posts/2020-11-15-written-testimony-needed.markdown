@@ -40,3 +40,9 @@ Low-wage workers are our first line of defense against COVID-19, but they are fe
 
 **Please send a thank you message to your State Senator or urge them to get on board with this absolutely essential legislation:** 
 [https://actionnetwork.org/letters/ma-senate-pass-epst](https://actionnetwork.org/letters/ma-senate-pass-epst){:target="_blank"} 
+
+### Climate Action
+
+We must push our MA Legislature to advocate for strong and effective legislation during their committee discussions of the climate bill. 
+
+See a comparison of the two bills [HERE](http://climateactionnowma.org/wp-content/uploads/ClimateBillsComparisonAug2020.pdf){:target="_blank"} and write to your representatives to enact stronger climate legislation in Massachusetts!
