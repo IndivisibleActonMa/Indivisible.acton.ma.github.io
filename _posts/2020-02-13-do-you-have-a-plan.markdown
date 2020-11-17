@@ -42,4 +42,10 @@ Fair Fight:
 [https://secure.actblue.com/donate/georgiasenate](https://secure.actblue.com/donate/georgiasenate){:target="_blank"} 
 
 ---
-  
+ 
+A representative from Georgia Indivisible has asked that *if you are doing work in Georgia that is outside of a Georgia based group or organization and you do not talk with a local organizer* **you have great ability to do harm**.
+
+A postcard was sent into Georgia that discussed public disclosure of information and there were people who were unsure that they should even vote or not. The cultural nuance along with very deep voter suppression over the decades is difficult to explain.
+
+**Please, please** be sure that whoever you are working with is going through a Georgia-local based group.
+
