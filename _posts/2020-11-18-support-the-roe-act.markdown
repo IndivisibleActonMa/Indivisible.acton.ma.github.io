@@ -4,6 +4,8 @@ date: 2020-11-18 06:15:00 -05:00
 is featured: true
 ---
 
+###  Prochoice Amendment 180 passes the MA Senate
+
 The MA Senate just took a major step towards removing barriers to abortion care by overwhelmingly adopting Amendment #180 with a vote of 33 - 7 and rejecting 3 anti-choice amendments!
 
 Amendment #180 contains essential ROE Act provisions and will:
