@@ -17,5 +17,7 @@ Amendment #180 contains essential ROE Act provisions and will:
 
 [Thank your State Senator for voting in favor of this critically important amendment!](https://actionnetwork.org/letters/thank-your-senator-for-voting-to-improve-abortion-access?clear_id=true){:target="_blank"}.
 
-From here, this amendment goes to conference to reconcile any differences between the House and Senate version before being sent to Governor Baker's desk.  **Stay tuned for info on contacting Governor Baker.**  
+From here, this amendment goes to conference to reconcile any differences between the House and Senate version before being sent to Governor Baker's desk.  
+
+**Stay tuned for info on contacting Governor Baker.**  
 
