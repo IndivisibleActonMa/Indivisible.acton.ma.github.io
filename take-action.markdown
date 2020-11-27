@@ -137,7 +137,7 @@ Click [HERE](https://americansofconscience.com/){:target="_blank"} to find the l
 
 * Join [Raise Up Massachusetts](https://www.raiseupma.org), a coalition of community organizations, religious groups, and labor unions who are committed to building an economy that works for Massachusetts.
 
-* [Support the ROE Act](http://www.indivisibleacton.org/2019/10/09/support-the-roe-act.html)!
+* [Support the ROE Act](http://www.indivisibleacton.org/2020/11/18/support-the-roe-act.html)! 
 
 * [Support your local Indivisible Group](http://www.indivisibleacton.org/2019/09/17/support-your-local-indivisible-group.html)!
 
