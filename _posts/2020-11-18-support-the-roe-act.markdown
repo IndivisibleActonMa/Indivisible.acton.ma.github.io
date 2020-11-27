@@ -22,7 +22,7 @@ Amendment #180 contains essential ROE Act provisions and will:
 
 From here, this amendment goes to conference to reconcile any differences between the House and Senate version before being sent to Governor Baker's desk.
 
-**Stay tuned for info on contacting Governor Baker.**
+**What's Next**
 
 * [Tell Governor Baker to improve access to abortion](https://actionnetwork.org/petitions/we-need-the-roe-act-now){:target="_blank"}.
 
