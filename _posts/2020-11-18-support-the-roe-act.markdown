@@ -24,7 +24,7 @@ From here, this amendment goes to conference to reconcile any differences betwee
 
 **What's Next**
 
-* [Tell Governor Baker to improve access to abortion](https://actionnetwork.org/petitions/we-need-the-roe-act-now){:target="_blank"}.
+* [Tell Governor Baker to improve access to abortion](https://actionnetwork.org/letters/emailcharliebaker-roeact?clear_id=true){:target="_blank"}.  
 
 * Make calls asking other MA voters to contact Gov. Baker:   \
   **Tuesday, Dec 1, 3-5p** | [Register](https://aclu.zoom.us/meeting/register/tZYpdeyuqjktGdIeekuOnKQTPu2xlzDortRN?fbclid=IwAR2xUE-pInFyVdd3dcl_3zwnXq_PvDAr7JiQ7AacPQ_YjhfRlAlkbTLoVm0){:target="_blank"}  \
