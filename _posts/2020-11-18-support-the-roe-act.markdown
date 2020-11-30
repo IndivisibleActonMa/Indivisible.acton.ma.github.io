@@ -28,6 +28,7 @@ From here, this amendment goes to conference to reconcile any differences betwee
 
 * Make calls asking other MA voters to contact Gov. Baker:   \
   **Tuesday, Dec 1, 3-5p** | [Register](https://aclu.zoom.us/meeting/register/tZYpdeyuqjktGdIeekuOnKQTPu2xlzDortRN?fbclid=IwAR2xUE-pInFyVdd3dcl_3zwnXq_PvDAr7JiQ7AacPQ_YjhfRlAlkbTLoVm0){:target="_blank"}  \
-  **Wednesday, Dec 2, 3-5p** | [Register](https://www.weareplannedparenthoodaction.org/a/phone-bank-abortion-access){:target="_blank"}  
+  **Wednesday, Dec 2, 3-5p** | [Register](https://www.weareplannedparenthoodaction.org/a/phone-bank-abortion-access){:target="_blank"}  \
+  **Friday, Dec 4, 3-5p** | [Register](https://docs.google.com/forms/d/e/1FAIpQLScUqRv1hw-CyiPvd6IGrfstDBT6GWh3xAYdVgM7vvxkzkJZUw/viewform]{:target="_blank"}  
 
 * [Sign the ROE Act Petition](https://actionnetwork.org/petitions/we-need-the-roe-act-now){:target="_blank"} that will be delivered to the Governor once the budget is released from the conference committee. 
