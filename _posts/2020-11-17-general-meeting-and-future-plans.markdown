@@ -1,6 +1,7 @@
 ---
 title: November General Meeting
 date: 2020-11-17 07:00:00 -05:00
+published: false
 is featured: true
 event-start-date: 2020-11-30 18:30:00 -05:00
 event-end-date: 2020-11-30 20:00:00 -05:00
