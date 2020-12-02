@@ -39,7 +39,7 @@ Beacon Hill Just Passed a Final Police Reform Bill!!  ***Here's Where You Come I
 ### Emergency Paid Sick Time
 
 I'm sad to report that ***emergency paid sick time didn't even get a vote or a debate.***
-Read more about it [HERE](https://www.progressivemass.com/nov-2020-house-budget-roll-call){:target="_blank"}.
+Read more about it [HERE](https://www.progressivemass.com/nov-2020-house-budget-roll-call){:target="_blank"}.  
 
 ### Climate Action
 
