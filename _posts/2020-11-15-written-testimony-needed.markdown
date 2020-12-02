@@ -30,10 +30,11 @@ Please [contact your Senators](https://malegislature.gov/Search/FindMyLegislator
 
 ### Police Reform
 
-The police reform bill has stalled.  Our legislatures promised for meaningful policing reform legislation.
+Beacon Hill Just Passed a Final Police Reform Bill. Here's Where You Come In.
 
-**Please write to your legislators and Governor Baker to support the strongest bill possible:**\
-[https://actionnetwork.org/letters/fight-for-the-strongest-police-reform-bill/](https://actionnetwork.org/letters/fight-for-the-strongest-police-reform-bill/){:target="_blank"}
+[Here is what is in the reform bill](https://www.progressivemass.com/police-reform-bill-conference-report-2020){:target="_blank"}.  
+
+**Please call Charlie Baker at (617) 725-4005 and ask that he sign the bill.**
 
 ### Emergency Paid Sick Time
 
