@@ -30,7 +30,7 @@ Please [contact your Senators](https://malegislature.gov/Search/FindMyLegislator
 
 ### Police Reform
 
-Beacon Hill Just Passed a Final Police Reform Bill. Here's Where You Come In.
+Beacon Hill Just Passed a Final Police Reform Bill!!  ***Here's Where You Come In.***
 
 [Here is what is in the reform bill](https://www.progressivemass.com/police-reform-bill-conference-report-2020){:target="_blank"}.  
 
