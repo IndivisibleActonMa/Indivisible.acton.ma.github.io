@@ -24,15 +24,15 @@ Time is of the essence. We need Governor Baker to act!
 
 ### Police Reform
 
-Beacon Hill Just Passed a Final Police Reform Bill!!  ***Here's Where You Come In.***
+Beacon Hill Just Passed a Final Police Reform Bill!! ***Here's Where You Come In.***  
 
 [Here is what is in the reform bill](https://www.progressivemass.com/police-reform-bill-conference-report-2020){:target="_blank"}.
 
-**Please [email](mailto:charlie.baker@state.ma.us) and/or call Charlie Baker at (617) 725-4005 and ask that he sign the bill.**  [Suggested script](https://docs.google.com/document/d/1UdZ_fbAqzuEFJrXS-GZjB3kocIdCgInIdM6pyDndeOk/edit){:target="_blank"}.
+**Please [email](mailto:charlie.baker@state.ma.us) and/or call Charlie Baker at (617) 725-4005 and ask that he sign the bill.** [Suggested script](https://docs.google.com/document/d/1UdZ_fbAqzuEFJrXS-GZjB3kocIdCgInIdM6pyDndeOk/edit){:target="_blank"}.  
 
 ### Emergency Paid Sick Time
 
-I'm sad to report that ***emergency paid sick time didn't even get a vote or a debate.***
+We are sad to report that ***emergency paid sick time didn't even get a vote or a debate.***
 Read more about it [HERE](https://www.progressivemass.com/nov-2020-house-budget-roll-call){:target="_blank"}.
 
 ### Climate Action
@@ -57,7 +57,7 @@ There is still time to influence Beacon Hill and signal to our legislators that 
 
 The plan is to focus on State Representatives. A team of volunteers is setting up meetings for everyone who registers (groups of 2 or more people). We're trying for meetings between 1-3p, Dec 10. If no meeting can be set up there  will be an email template provided to help you communicate with your legislator and participate in this action. 
 
-Please [register HERE](https://docs.google.com/forms/d/e/1FAIpQLSfhgnAZsAyriaCbFx0UYn9E2mjA6phVdqei7jvamQLZNY62bw/viewform){:target="_blank"} **by today at 9p**. 
+Please [register HERE](https://docs.google.com/forms/d/e/1FAIpQLSfhgnAZsAyriaCbFx0UYn9E2mjA6phVdqei7jvamQLZNY62bw/viewform){:target="_blank"} **by Dec 6, 9p**. 
 
 ### Transparency is Power 
 
