@@ -61,7 +61,7 @@ document.getElementById("demo").innerHTML = "Let's Get Out and VOTE!!!";
 
 “*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation   
 
-Spark vital conversations with the [The New York Times Climate Hub](https://www.nytclimatehub.com/climatehub/nyt-climate-hub-2021){:target="_blank"}.  
+Spark vital conversations with help from the [The New York Times Climate Hub](https://www.nytclimatehub.com/climatehub/nyt-climate-hub-2021){:target="_blank"}.  
 
 ***Action for all environmentally concerned:***    Sign [THIS PETITION](https://masscleanenergyfuture.hubspotpagebuilder.com/greenmoneyma){:target="_blank"} to tell Governor Baker to act faster on climate change.  
 
