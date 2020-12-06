@@ -99,12 +99,10 @@ Click [HERE](https://americansofconscience.com/){:target="_blank"} to find the l
 
 * [Together For 2020](https://togetherfor2020.org){:target="_blank"} is a new collaboration of [activist leaders from across the Commonwealth](https://togetherfor2020.org/about-us/){:target="_blank"} ready to help you take effective action.  
 
-* [Sign up to save democracy with Indivisible](https://indivisible.org/payback-project-p2p){:target="_blank"}. 
+* [Join the Indivisible Truth Brigade](https://act.indivisible.org/signup/indivisible-truth-brigade){:target="_blank"}.  
 
 * Want to text green? Join [Sierra Club's new Texting Team](https://act.sierraclub.org/actions/National?actionId=AR0235958){:target="_blank"}! Primary season is in full swing, the Earth Day Climate Strike is fast approaching, and the Sierra Club has set a goal of texting millions of people to get out the vote and come strike! Join the Sierra Club’s Texting Team and fight climate change from home!  
- H/T Chop Wood Carry Water  
-
-* Sign up to text with [Open Progress](https://www.openprogress.com){:target="_blank"}. This weekend they are texting voters in PA and Indiana with the organization VoterProChoice.  
+ H/T Chop Wood Carry Water   
 
 * Join the [Environmental Voter Project](https://www.environmentalvoter.org){:target="_blank"} (EVP) for a [volunteer training webinar](https://www.environmentalvoter.org/events){:target="_blank}. During the webinar, volunteers will be trained in texting and calling environmental voters using EVP’s unique messaging. 
 
