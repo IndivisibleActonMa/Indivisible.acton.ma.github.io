@@ -61,10 +61,7 @@ document.getElementById("demo").innerHTML = "Let's Get Out and VOTE!!!";
 
 “*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation   
 
-Although many of us won't get to sit a round a big Thanksgiving table with our friends and family this year, it continues to be important that we discuss climate change with them.  
-
-Here's a guide with some good ideas for conversation  (even though it's from 2019, the topics are still relevant!):  
-[https://climate-xchange.org/2019/11/26/your-2019-guide-to-climate-conversations-at-the-thanksgiving-table/](https://climate-xchange.org/2019/11/26/your-2019-guide-to-climate-conversations-at-the-thanksgiving-table/){:target="_blank"}. 
+Spark vital conversations with the [The New York Times Climate Hub](https://www.nytclimatehub.com/climatehub/nyt-climate-hub-2021){:target="_blank"}.  
 
 ***Action for all environmentally concerned:***    Sign [THIS PETITION](https://masscleanenergyfuture.hubspotpagebuilder.com/greenmoneyma){:target="_blank"} to tell Governor Baker to act faster on climate change.  
 
