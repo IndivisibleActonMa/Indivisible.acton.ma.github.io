@@ -24,11 +24,10 @@ From here, this amendment goes to conference to reconcile any differences betwee
 
 **What's Next**
 
-* [Tell Governor Baker to improve access to abortion](https://actionnetwork.org/letters/emailcharliebaker-roeact?clear_id=true){:target="_blank"}.  
+* [Tell Governor Baker to improve access to abortion](https://actionnetwork.org/letters/emailcharliebaker-roeact?clear_id=true){:target="_blank"}.
 
-* Make calls asking other MA voters to contact Gov. Baker:   \
-  **Tuesday, Dec 1, 3-5p** | [Register](https://aclu.zoom.us/meeting/register/tZYpdeyuqjktGdIeekuOnKQTPu2xlzDortRN?fbclid=IwAR2xUE-pInFyVdd3dcl_3zwnXq_PvDAr7JiQ7AacPQ_YjhfRlAlkbTLoVm0){:target="_blank"}  \
-  **Wednesday, Dec 2, 3-5p** | [Register](https://www.weareplannedparenthoodaction.org/a/phone-bank-abortion-access){:target="_blank"}  \
-  **Friday, Dec 4, 3-5p** | [Register](https://docs.google.com/forms/d/e/1FAIpQLScUqRv1hw-CyiPvd6IGrfstDBT6GWh3xAYdVgM7vvxkzkJZUw/viewform){:target="_blank"}  
+* Please continue to share the [the ROE Act Petition](https://actionnetwork.org/petitions/we-need-the-roe-act-now){:target="_blank"}. 
 
-* [Sign the ROE Act Petition](https://actionnetwork.org/petitions/we-need-the-roe-act-now){:target="_blank"} that will be delivered to the Governor once the budget is released from the conference committee. 
+* [Sign the ROE Act Petition](https://actionnetwork.org/petitions/we-need-the-roe-act-now){:target="_blank"} that will be delivered to the Governor once the budget is released from the conference committee.
+
+* Phonebank Dec 9 5:30-7:30 PM to drive calls to Baker. [Sign up HERE](https://us02web.zoom.us/meeting/register/tZEqfuiqpjkjG9SiM8vl4mWS8YH-pDyDNKps){:target="_blank"}. 
