@@ -106,7 +106,7 @@ Click [HERE](https://americansofconscience.com/){:target="_blank"} to find the l
 
 * Join the [Environmental Voter Project](https://www.environmentalvoter.org){:target="_blank"} (EVP) for a [volunteer training webinar](https://www.environmentalvoter.org/events){:target="_blank}. During the webinar, volunteers will be trained in texting and calling environmental voters using EVP’s unique messaging. 
 
-* Join the volunteer movement to add the 28th amendment to the U.S. Constitution to END corruption and restore our representative democracy. Click [HERE](http://www.wethepeoplemass.org){:target="_blank"} to [Support the We the People Amendment](http://www.wethepeoplemass.org){:target="_blank"} locally.  Click [HERE](https://wolf-pac.com){:target="_blank"} to learn about the national movement.  
+* Now more than ever, we need the 28th amendment to the U.S. Constitution to END corruption and restore our representative democracy. [Join the volunteer movement to add](http://www.wethepeoplemass.org){:target="_blank"} to [Support the We the People Amendment](http://www.wethepeoplemass.org){:target="_blank"} locally.  Click [HERE](https://wolf-pac.com){:target="_blank"} to learn about the national movement. 
 
 * Wouldn't it be great if voting were more convenient? Click [HERE](https://www.voteathome.org){:target="_blank"} to learn about [Vote At Home](https://www.voteathome.org){:target="_blank"}.  
 
