@@ -24,10 +24,14 @@ From here, this amendment goes to conference to reconcile any differences betwee
 
 **What's Next**
 
+The state budget landed on Governor Baker's desk Friday, Dec. 4. Time is of the essence!  
+
 * [Tell Governor Baker to improve access to abortion](https://actionnetwork.org/letters/emailcharliebaker-roeact?clear_id=true){:target="_blank"}.
 
 * Please continue to share the [the ROE Act Petition](https://actionnetwork.org/petitions/we-need-the-roe-act-now){:target="_blank"}. 
 
 * [Sign the ROE Act Petition](https://actionnetwork.org/petitions/we-need-the-roe-act-now){:target="_blank"} that will be delivered to the Governor once the budget is released from the conference committee.
 
-* Phonebank Dec 9 5:30-7:30 PM to drive calls to Baker. [Sign up HERE](https://us02web.zoom.us/meeting/register/tZEqfuiqpjkjG9SiM8vl4mWS8YH-pDyDNKps){:target="_blank"}. 
+* Text bank Dec 7 5:30-7:30p to rally votes to call Baker [Sign up HERE](https://aclu.zoom.us/meeting/register/tZMlceqrqjkoG9z24R2Ud42c5A9QYX6pW8Nk){:target="_blank"}. 
+
+* Phone bank Dec 9 5:30-7:30p to drive calls to Baker. [Sign up HERE](https://us02web.zoom.us/meeting/register/tZEqfuiqpjkjG9SiM8vl4mWS8YH-pDyDNKps){:target="_blank"}. 
