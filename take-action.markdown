@@ -97,7 +97,7 @@ Click [HERE](https://americansofconscience.com/){:target="_blank"} to find the l
 
 ### Ways to Resist from Home
 
-* [Together For 2020](https://togetherfor2020.org){:target="_blank"} is a new collaboration of [activist leaders from across the Commonwealth](https://togetherfor2020.org/about-us/){:target="_blank"} ready to help you take effective action.  
+* Help out with the [GA Senate Runoff](http://www.indivisibleacton.org/2020/02/13/do-you-have-a-plan.html) 
 
 * [Join the Indivisible Truth Brigade](https://act.indivisible.org/signup/indivisible-truth-brigade){:target="_blank"}.  
 
