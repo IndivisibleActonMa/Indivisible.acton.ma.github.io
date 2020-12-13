@@ -4,6 +4,16 @@ date: 2020-11-18 06:15:00 -05:00
 is featured: true
 ---
 
+### Gov. Baker gutted the proposed state budget section improving abortion access for young people seeking care. 
+
+[Will you contact your state lawmakers and urge them to reject Gov. Baker’s amendment](https://www.weareplannedparenthoodaction.org/a/urge-gov-amdt){:target="_blank"}?  
+
+By ignoring the advice of medical experts and maintaining outdated abortion laws, Governor Baker has proven that he’s out of touch—and young people of color and young people with low incomes will be the ones to pay the price. **We must now turn back to the state legislature to once again stand up for patients and reject his proposed amendments.**
+
+The provisions of the ROE Act that moved forward in the state budget are a commonsense compromise of what we fought for in the bill. **Abortion is health care, and patients in Massachusetts, even young people, deserve access to that care.** [Please contact your state lawmakers to reject Governor Baker’s amendments](https://www.weareplannedparenthoodaction.org/a/urge-gov-amdt){:target="_blank"}.
+
+---
+
 ### Prochoice Amendment 180 passes the MA Senate
 
 The MA Senate just took a major step towards removing barriers to abortion care by overwhelmingly adopting Amendment #180 with a vote of 33 - 7 and rejecting 3 anti-choice amendments!
