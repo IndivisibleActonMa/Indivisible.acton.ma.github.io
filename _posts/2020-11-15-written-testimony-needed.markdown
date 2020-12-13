@@ -18,7 +18,7 @@ Time is of the essence.
 
 ### Police Reform
 
-[Baker threatens veto of Police Reform Bill without his amendments](https://www.wbur.org/news/2020/12/10/massachusetts-governor-proposed-amendments-policing-legislation).
+[Baker threatens veto of Police Reform Bill without his amendments](https://www.wbur.org/news/2020/12/10/massachusetts-governor-proposed-amendments-policing-legislation){:target="_blank"}.
 
 ***[Please contact your legislators and tell them you do not want a watered down police reform bill](https://actionnetwork.org/letters/dont-let-governor-baker-weaken-the-police-reform-bill/){:target="_blank"}***.
 
