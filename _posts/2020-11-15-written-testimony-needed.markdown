@@ -10,27 +10,19 @@ is featured: true
 
 ### Action in MA -  Contact Governor Baker
 
-Time is of the essence. Governor Baker received the budget Friday, Dec 4. We need him to act!  
+Time is of the essence. Governor Baker received the budget Friday, Dec 4. We need him to act!
 
 ### ROE Act
 
-* [Tell Governor Baker to improve access to abortion](https://actionnetwork.org/letters/emailcharliebaker-roeact?clear_id=true){:target="_blank"}.
-
-* Please continue to share the [the ROE Act Petition](https://actionnetwork.org/petitions/we-need-the-roe-act-now){:target="_blank"}.
-
-* [Sign the ROE Act Petition](https://actionnetwork.org/petitions/we-need-the-roe-act-now){:target="_blank"} that will be delivered to the Governor once the budget is released from the conference committee.
-
-* Text bank Dec 7 5:30-7:30p to rally votes to call Baker [Sign up HERE](https://aclu.zoom.us/meeting/register/tZMlceqrqjkoG9z24R2Ud42c5A9QYX6pW8Nk){:target="_blank"}. 
-
-* Phone bank Dec 9 5:30-7:30 PM to drive calls to Baker. [Sign up HERE](https://us02web.zoom.us/meeting/register/tZEqfuiqpjkjG9SiM8vl4mWS8YH-pDyDNKps){:target="_blank"}.
+* [Urge your lawmakers to reject Governor Baker's amendment undermining abortion access](https://www.weareplannedparenthoodaction.org/a/urge-gov-amdt){:target="_blank"}.
 
 ### Police Reform
 
-Beacon Hill Just Passed a Final Police Reform Bill!! ***Here's Where You Come In.***  
+[Baker threatens veto of Police Reform Bill without his amendments](https://www.wbur.org/news/2020/12/10/massachusetts-governor-proposed-amendments-policing-legislation).
+
+***[Please contact your legislators and tell them you do not want a watered down police reform bill](https://actionnetwork.org/letters/dont-let-governor-baker-weaken-the-police-reform-bill/){:target="_blank"}***.
 
 [Here is what is in the reform bill](https://www.progressivemass.com/police-reform-bill-conference-report-2020){:target="_blank"}.
-
-**Please [email](mailto:charlie.baker@state.ma.us) and/or call Charlie Baker at (617) 725-4005 and ask that he sign the bill.** [Suggested script](https://docs.google.com/document/d/1UdZ_fbAqzuEFJrXS-GZjB3kocIdCgInIdM6pyDndeOk/edit){:target="_blank"}.  
 
 ### Emergency Paid Sick Time
 
@@ -57,10 +49,10 @@ There is still time to influence Beacon Hill and signal to our legislators that 
 
 [Nine important bills](https://docs.google.com/document/d/11vKsvgbgPbBakiaxa4JMuvLFBflpM1P5ZRfb3eFY3_k/edit){:target="_blank"} need to pass before the legislative session ends on Dec 31st.  The Safe Communities Coalition is co-sponsoring this *virtual lobby day on Thursday, Dec 10.*
 
-The plan is to focus on State Representatives. A team of volunteers is setting up meetings for everyone who registers (groups of 2 or more people). We're trying for meetings between 1-3p, Dec 10. If no meeting can be set up there  will be an email template provided to help you communicate with your legislator and participate in this action. 
+The plan is to focus on State Representatives. A team of volunteers is setting up meetings for everyone who registers (groups of 2 or more people). We're trying for meetings between 1-3p, Dec 10. If no meeting can be set up there  will be an email template provided to help you communicate with your legislator and participate in this action.
 
-Please [register HERE](https://docs.google.com/forms/d/e/1FAIpQLSfhgnAZsAyriaCbFx0UYn9E2mjA6phVdqei7jvamQLZNY62bw/viewform){:target="_blank"} **by Dec 6, 9p**. 
+Please [register HERE](https://docs.google.com/forms/d/e/1FAIpQLSfhgnAZsAyriaCbFx0UYn9E2mjA6phVdqei7jvamQLZNY62bw/viewform){:target="_blank"} **by Dec 6, 9p**.
 
-### Transparency is Power 
+### Transparency is Power
 
-Legislative rules get set at the start of every 2-year legislative session. NOW is our chance to change the broken, anti-democratic rules in the State House. Learn more [HERE](https://actonmass.org/the-campaign/). 
+Legislative rules get set at the start of every 2-year legislative session. NOW is our chance to change the broken, anti-democratic rules in the State House. Learn more [HERE](https://actonmass.org/the-campaign/).
