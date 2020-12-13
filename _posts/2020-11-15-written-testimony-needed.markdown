@@ -8,9 +8,9 @@ is featured: true
 
 ---
 
-### Action in MA -  Contact Governor Baker
+### Action in MA -  Contact our legislators, Governor Baker
 
-Time is of the essence. Governor Baker received the budget Friday, Dec 4. We need him to act!
+Time is of the essence. 
 
 ### ROE Act
 
