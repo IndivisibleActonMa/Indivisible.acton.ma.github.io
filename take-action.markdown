@@ -146,7 +146,7 @@ Click [HERE](https://americansofconscience.com/){:target="_blank"} to find the l
 
 * [Support the ROE Act](http://www.indivisibleacton.org/2020/11/18/support-the-roe-act.html)! 
 
-* [Support your local Indivisible Group](http://www.indivisibleacton.org/2019/09/17/support-your-local-indivisible-group.html)!
+* [Support your local Indivisible Group]( https://secure.actblue.com/donate/indivisibleama411742968){:target="_blank"}!  
 
 * **Ask your legislator to take the State House Transparency Pledge** - [Act On Mass](https://www.actonmass.org/?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU){:target="_blank"} is working to increasing transparency in our State House.  Let's ask our elected legislators to take action to create transparency today so important progressive bills don’t die in darkness. Click [HERE](https://www.actonmass.org/pledge?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU){:target="_blank"} for more info!
 
