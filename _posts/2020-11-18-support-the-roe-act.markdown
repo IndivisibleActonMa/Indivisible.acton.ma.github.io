@@ -4,7 +4,7 @@ date: 2020-11-18 06:15:00 -05:00
 is featured: true
 ---
 
-### Gov. Baker gutted the proposed state budget section improving abortion access for young people seeking care. 
+### [Gov. Baker vetoed bill to protect and expand abortion access in MA](https://www.bostonglobe.com/2020/12/24/metro/governor-baker-vetoes-bill-protect-expand-abortion-access-mass/){:target="_blank"}. 
 
 [Will you contact your state lawmakers and urge them to reject Gov. Baker’s amendment](https://www.weareplannedparenthoodaction.org/a/urge-gov-amdt){:target="_blank"}?  
 
