@@ -43,16 +43,6 @@ Read more [HERE](https://www.miracoalition.org/get-involved/drivers-licenses/){:
 
 [Send an email](https://actionnetwork.org/letters/dff-letter?source=direct_link&){:target="_blank"} to Governor Baker, your Senator and State Rep in support of the passage of the Work and Family Mobility Act.
 
-### Advocacy Day! Justice Can't Wait!
-
-There is still time to influence Beacon Hill and signal to our legislators that we want them to continue to advance important legislation before this session ends.
-
-[Nine important bills](https://docs.google.com/document/d/11vKsvgbgPbBakiaxa4JMuvLFBflpM1P5ZRfb3eFY3_k/edit){:target="_blank"} need to pass before the legislative session ends on Dec 31st.  The Safe Communities Coalition is co-sponsoring this *virtual lobby day on Thursday, Dec 10.*
-
-The plan is to focus on State Representatives. A team of volunteers is setting up meetings for everyone who registers (groups of 2 or more people). We're trying for meetings between 1-3p, Dec 10. If no meeting can be set up there  will be an email template provided to help you communicate with your legislator and participate in this action.
-
-Please [register HERE](https://docs.google.com/forms/d/e/1FAIpQLSfhgnAZsAyriaCbFx0UYn9E2mjA6phVdqei7jvamQLZNY62bw/viewform){:target="_blank"} **by Dec 6, 9p**.
-
 ### Transparency is Power
 
 Legislative rules get set at the start of every 2-year legislative session. NOW is our chance to change the broken, anti-democratic rules in the State House. Learn more [HERE](https://actonmass.org/the-campaign/).
