@@ -4,44 +4,34 @@ date: 2020-11-18 06:15:00 -05:00
 is featured: true
 ---
 
-### [Gov. Baker vetoed bill to protect and expand abortion access in MA](https://www.bostonglobe.com/2020/12/24/metro/governor-baker-vetoes-bill-protect-expand-abortion-access-mass/){:target="_blank"}. 
+The Senate has joined the House in standing up for reproductive freedom by voting to override Governor Baker’s veto.
 
-[Will you contact your state lawmakers and urge them to reject Gov. Baker’s amendment](https://www.weareplannedparenthoodaction.org/a/urge-gov-amdt){:target="_blank"}?  
+**The ROE Act provisions are now the law of the land in MA.**
 
-By ignoring the advice of medical experts and maintaining outdated abortion laws, Governor Baker has proven that he’s out of touch—and young people of color and young people with low incomes will be the ones to pay the price. **We must now turn back to the state legislature to once again stand up for patients and reject his proposed amendments.**
+For the past two years, we’ve been working tirelessly to protect and expand abortion access in Massachusetts by passing the ROE Act.
 
-The provisions of the ROE Act that moved forward in the state budget are a commonsense compromise of what we fought for in the bill. **Abortion is health care, and patients in Massachusetts, even young people, deserve access to that care.** [Please contact your state lawmakers to reject Governor Baker’s amendments](https://www.weareplannedparenthoodaction.org/a/urge-gov-amdt){:target="_blank"}.
+There were many roadblocks along the way, including Governor Baker’s two vetos ([he vetoed the legislation for the 2nd time on Christmas Eve](https://www.bostonglobe.com/2020/12/24/metro/governor-baker-vetoes-bill-protect-expand-abortion-access-mass/){:target="_blank"}).  But we refused to give up.
 
----
+WE HAVE IMPROVED ACCESS TO ABORTION CARE AND THE RIGHT TO ABORTION CARE HAS BEEN CODIFIED INTO MASSACHUSETTS LAW!
 
-### Prochoice Amendment 180 passes the MA Senate
+While the legislation passed did not have everything the ROEAct Coalition championed, it contains essential provisions that will protect and improve access to reproductive health care for pregnant people in MA.
 
-The MA Senate just took a major step towards removing barriers to abortion care by overwhelmingly adopting Amendment #180 with a vote of 33 - 7 and rejecting 3 anti-choice amendments!
+* Codifying the right to abortion in state law;
 
-Amendment #180 contains essential ROE Act provisions and will:
+* Improving youth access by allowing 16 and 17 year olds to make their own decisions about abortion care and allowing remote hearings for those under 16 years old, eliminating the need for young people to travel to a courthouse;
 
-* codify the right to abortion care into state law
+* Enabling families to obtain care later in pregnancy in cases of lethal fetal diagnosis without having to travel across the country, including repealing criminal penalties for abortion care later in pregnancy; and
 
-* allow 16-17 year-olds to make decisions about their health care
+* Expanding the scope of practice of advanced practice clinicians, including nurse practitioners, nurse midwives, and physician assistants, to allow them to provide abortion care consistent with their training.
 
-* streamlines the judicial bypass process
+*Thank you to everyone who called your legislators, lobbied at the State House, wrote postcards, made phone calls, signed petitions and asked friends to do the same.*
 
-* allows families who have received a lethal fetal diagnosis to get the compassionate care they need right here in Massachusetts
+Please be sure to [thank your State Representative and Senator](https://malegislature.gov/search/findmylegislator){:target="_blank"} if they voted to pass this bill and rejected Governor Baker's anti-choice amendments!
 
-[Thank your State Senator for voting in favor of this critically important amendment!](https://actionnetwork.org/letters/thank-your-senator-for-voting-to-improve-abortion-access?clear_id=true){:target="_blank"}.
+See the Senate roll call [HERE](https://twitter.com/ProgressiveMass/status/1343985488508678144/photo/1){:target="_blank"}. See the House roll call [HERE](https://www.progressivemass.com/house-roe-baker-2020){:target="_blank"}.  
 
-From here, this amendment goes to conference to reconcile any differences between the House and Senate version before being sent to Governor Baker's desk.
+[ROE ACT Coalition Celebrates PASSAGE OF ABORTION ACCESS LEGISLATION](https://www.aclum.org/en/news/roe-act-coalition-celebrates-passage-abortion-access-legislation){:target="_blank"}
 
-**What's Next**
+[Massachusetts legislature passes a groundbreaking new law creating an affirmative right to abortion in the state](https://msmagazine.com/2020/12/29/massachusetts-abortion-law-roe-act/){:target="_blank"}
 
-The state budget landed on Governor Baker's desk Friday, Dec. 4. Time is of the essence!  
-
-* [Tell Governor Baker to improve access to abortion](https://actionnetwork.org/letters/emailcharliebaker-roeact?clear_id=true){:target="_blank"}.
-
-* Please continue to share the [the ROE Act Petition](https://actionnetwork.org/petitions/we-need-the-roe-act-now){:target="_blank"}. 
-
-* [Sign the ROE Act Petition](https://actionnetwork.org/petitions/we-need-the-roe-act-now){:target="_blank"} that will be delivered to the Governor once the budget is released from the conference committee.
-
-* Text bank Dec 7 5:30-7:30p to rally votes to call Baker [Sign up HERE](https://aclu.zoom.us/meeting/register/tZMlceqrqjkoG9z24R2Ud42c5A9QYX6pW8Nk){:target="_blank"}. 
-
-* Phone bank Dec 9 5:30-7:30p to drive calls to Baker. [Sign up HERE](https://us02web.zoom.us/meeting/register/tZEqfuiqpjkjG9SiM8vl4mWS8YH-pDyDNKps){:target="_blank"}. 
+*Thank you, Linda Vieira for your tireless and unwavering commitment and work in organizing postcards, phonebanks and more to voters and legislators to bring #reproductivefreedom to Massachusetts!*
