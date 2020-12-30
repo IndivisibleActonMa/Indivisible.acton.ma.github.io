@@ -12,9 +12,9 @@ is featured: true
 
 Time is of the essence.
 
-### ROE Act
+### Transparency is Power
 
-* [Thank your lawmakers if they voted to pass this bill and rejected Governor Baker’s anti-choice amendments](https://malegislature.gov/search/findmylegislator){:target="_blank"}.  
+Legislative rules get set at the start of every 2-year legislative session. NOW is our chance to change the broken, anti-democratic rules in the State House. Learn more [HERE](https://actonmass.org/the-campaign/).
 
 ### Police Reform
 
@@ -43,6 +43,6 @@ Read more [HERE](https://www.miracoalition.org/get-involved/drivers-licenses/){:
 
 [Send an email](https://actionnetwork.org/letters/dff-letter?source=direct_link&){:target="_blank"} to Governor Baker, your Senator and State Rep in support of the passage of the Work and Family Mobility Act.
 
-### Transparency is Power
+### ROE Act
 
-Legislative rules get set at the start of every 2-year legislative session. NOW is our chance to change the broken, anti-democratic rules in the State House. Learn more [HERE](https://actonmass.org/the-campaign/).
+* [Thank your lawmakers if they voted to pass this bill and rejected Governor Baker’s anti-choice amendments](https://malegislature.gov/search/findmylegislator){:target="_blank"}.  
