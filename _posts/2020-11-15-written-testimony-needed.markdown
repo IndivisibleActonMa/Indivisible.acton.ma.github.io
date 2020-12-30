@@ -10,15 +10,15 @@ is featured: true
 
 ### Action in MA -  Contact our legislators, Governor Baker
 
-Time is of the essence. 
+Time is of the essence.
 
 ### ROE Act
 
-* [Urge your lawmakers to reject Governor Baker's amendment undermining abortion access](https://www.weareplannedparenthoodaction.org/a/urge-gov-amdt){:target="_blank"}.
+* [Thank your lawmakers if they voted to pass this bill and rejected Governor Baker’s anti-choice amendments](https://malegislature.gov/search/findmylegislator){:target="_blank"}.  
 
 ### Police Reform
 
-[Police Reform Bill in Limbo](Baker’s suggested revisions are now in the hands of the Senate’s Third Reading Committee, chaired by state Sen. Sal DiDomenico, D-Everett.){:target="_blank"}.
+\[Police Reform Bill in Limbo\](Baker’s suggested revisions are now in the hands of the Senate’s Third Reading Committee, chaired by state Sen. Sal DiDomenico, D-Everett.){:target="_blank"}.
 
 [The Legislature Narrows Police Reform Bill](https://www.progressivemass.com/ma-police-senate-baker){:target="_blank"}.
 
