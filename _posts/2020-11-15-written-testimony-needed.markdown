@@ -24,11 +24,6 @@ Legislative rules get set at the start of every 2-year legislative session. NOW 
 
 [Here is what is in the reform bill](https://www.progressivemass.com/police-reform-bill-conference-report-2020){:target="_blank"}.
 
-### Emergency Paid Sick Time
-
-We are sad to report that ***emergency paid sick time didn't even get a vote or a debate.***
-Read more about it [HERE](https://www.progressivemass.com/nov-2020-house-budget-roll-call){:target="_blank"}.
-
 ### Climate Action
 
 We must push our MA Legislature to advocate for strong and effective legislation during their committee discussions of the climate bill.
@@ -46,3 +41,8 @@ Read more [HERE](https://www.miracoalition.org/get-involved/drivers-licenses/){:
 ### ROE Act
 
 * [Thank your lawmakers if they voted to pass this bill and rejected Governor Baker’s anti-choice amendments](https://malegislature.gov/search/findmylegislator){:target="_blank"}.  
+
+### Emergency Paid Sick Time
+
+We are sad to report that ***emergency paid sick time didn't even get a vote or a debate.***
+Read more about it [HERE](https://www.progressivemass.com/nov-2020-house-budget-roll-call){:target="_blank"}.
