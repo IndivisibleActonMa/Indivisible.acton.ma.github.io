@@ -1,6 +1,6 @@
 ---
 title: ROE Act Update
-date: 2020-11-18 06:15:00 -05:00
+date: 2020-12-30 06:15:00 -05:00
 is featured: true
 ---
 
