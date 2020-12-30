@@ -26,7 +26,7 @@ While the legislation passed did not have everything the ROEAct Coalition champi
 
 *Thank you to everyone who called your legislators, lobbied at the State House, wrote postcards, made phone calls, signed petitions and asked friends to do the same.*
 
-Please be sure to [thank your State Representative and Senator](https://malegislature.gov/search/findmylegislator){:target="_blank"} if they voted to pass this bill and rejected Governor Baker's anti-choice amendments!
+Please be sure to [thank your State Representative and Senator](https://actionnetwork.org/letters/thank-your-lawmakers-for-veto-override?clear_id=true){:target="_blank"} if they voted to pass this bill and rejected Governor Baker's anti-choice amendments!
 
 See the Senate roll call [HERE](https://twitter.com/ProgressiveMass/status/1343985488508678144/photo/1){:target="_blank"}. See the House roll call [HERE](https://www.progressivemass.com/house-roe-baker-2020){:target="_blank"}.  
 
