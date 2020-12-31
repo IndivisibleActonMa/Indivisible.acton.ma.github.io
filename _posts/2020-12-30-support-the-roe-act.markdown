@@ -1,7 +1,7 @@
 ---
 title: ROE Act Update
 date: 2020-12-30 06:15:00 -05:00
-is featured: true
+is featured: false
 ---
 
 The Senate has joined the House in standing up for reproductive freedom by voting to override Governor Baker’s veto.
