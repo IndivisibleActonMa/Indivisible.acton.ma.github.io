@@ -14,7 +14,7 @@ Pick one - pick three!
 
 Georgia urgently needs calls and texts to voters in these last days of the runoff election ending Jan. 5.  Activities range from GOTV to absentee ballot curing to post-election ballot curing and more.  *Flipping the Senate will demote Mitch McConnell, who is the principal reason that the Senate is currently a waste of taxpayer money.  Flipping the Senate will change that.  Also, Daniel Blackman will help drive voters to the polls to help flip the Senate.*
 
-Please pick one or more campaigns that you can help -  whatever time you can commit - even fifteen minutes of calls make a difference!
+***Please pick one or more campaigns that you can help -  whatever time you can commit - even fifteen minutes of calls make a difference!***
 
 [Mobilize Young Voters with Sunrise](https://www.mobilize.us/sunrise/event/363816){:target="_blank"}
 
