@@ -1,6 +1,6 @@
 ---
 title: GA Senate Runoff Races!
-date: 2020-02-13 07:33:00 -05:00
+date: 2020-12-31 07:33:00 -05:00
 is featured: true
 ---
 
