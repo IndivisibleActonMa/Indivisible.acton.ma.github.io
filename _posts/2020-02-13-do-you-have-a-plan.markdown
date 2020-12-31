@@ -4,48 +4,38 @@ date: 2020-02-13 07:33:00 -05:00
 is featured: true
 ---
 
-### Important Dates
+Let's ring in a <span style="color:blue;">BLUE</span> year!
 
-**Nov 18**    When state begins mailing out absentee ballots  
-**Dec  7**    Deadline for voter registration for runoff (Think people just turning 18)  
-**Dec 14**    Early Voting Begins for three week period  
-**Jan  5**    Election Day 
+**GEORGIA? Egg Nog? BOTH!**
 
----
+Here, in one place, is a list of several calling and text campaigns to Georgia voters - for GOTV, ballot cure canvasser recruitment, pre- and post-election ballot curing & data entry, too.
 
-**Saturday, Nov 12** 
+Pick one - pick three!
 
-Sign up with Fair Fight Action - Runoff GOTV Weekend of Action Phone and Text Bank for Georgia! [Register HERE](https://www.mobilize.us/fairfightaction/event/362958/){:target="_blank"}. 
+Georgia urgently needs calls and texts to voters in these last days of the runoff election ending Jan. 5.  Activities range from GOTV to absentee ballot curing to post-election ballot curing and more.  *Flipping the Senate will demote Mitch McConnell, who is the principal reason that the Senate is currently a waste of taxpayer money.  Flipping the Senate will change that.  Also, Daniel Blackman will help drive voters to the polls to help flip the Senate.*
 
----
-**Volunteer with Fair Fight Action for the Runoff**:  
-Stay tuned to [https://www.mobilize.us/fairfightaction/](https://www.mobilize.us/fairfightaction/){:target="_blank"} for upcoming opportunities. 
+Please pick one or more campaigns that you can help -  whatever time you can commit - even fifteen minutes of calls make a difference!
 
-**Volunteer Directly with the Ossoff and Warnock Campaigns**:  
+[Mobilize Young Voters with Sunrise](https://www.mobilize.us/sunrise/event/363816){:target="_blank"}
 
-**Warnock**: [https://www.mobilize.us/warnockforgeorgia/](https://www.mobilize.us/warnockforgeorgia/){:target="_blank"}   
-  
-**Ossoff**: [https://www.mobilize.us/electjon/](https://www.mobilize.us/electjon/){:target="_blank"}    
+[Experienced callers - jump into VAN right now and make calls to Dekalb County](https://www.openvpb.com/vpb_bycode/1D6AC4J-648024){:target="_blank"}
 
----
+[Phonebank for Daniel Blackman for Georgia Public Service Commission with Georgia Conservation Voters](https://www.mobilize.us/leadlocally/event/365112%C2%A0https://www.mobilize.us/mobilize/event/363557){:target="_blank"}
 
-Donate to local organizing groups in GA:
-[https://secure.actblue.com/donate/ga-fund](https://secure.actblue.com/donate/ga-fund){:target="_blank"}  
+[Phonebank with Grassroots Democrats for Daniel Blackman](https://www.mobilize.us/mobilize/event/363679){:target="_blank"}.
 
-Support Dekalb County Democrats:
-[https://secure.actblue.com/donate/dekalb-dems-1](https://secure.actblue.com/donate/dekalb-dems-1){:target="_blank"}  
+**Make calls and send texts with the New Georgia Project Action Fund:**
 
-Support Gwinnett County Democrats:
-[https://secure.actblue.com/donate/gwinnettdemocrats](https://secure.actblue.com/donate/gwinnettdemocrats){:target="_blank"}  
+* [https://www.mobilize.us/thenewgeorgiaproject/event/363868](https://www.mobilize.us/thenewgeorgiaproject/event/363868){:target="_blank"}
 
-Fair Fight:
-[https://secure.actblue.com/donate/georgiasenate](https://secure.actblue.com/donate/georgiasenate){:target="_blank"} 
+* [https://www.mobilize.us/thenewgeorgiaproject/event/363867](https://www.mobilize.us/thenewgeorgiaproject/event/363867){:target="_blank"}.
 
----
- 
-A representative from Georgia Indivisible has asked that *if you are doing work in Georgia that is outside of a Georgia based group or organization and you do not talk with a local organizer* **you have great ability to do harm**.
+[Vote Save America Phonebank](https://www.mobilize.us/crooked/event/366340){:target="_blank"}
 
-A postcard was sent into Georgia that discussed public disclosure of information and there were people who were unsure that they should even vote or not. The cultural nuance along with very deep voter suppression over the decades is difficult to explain.
+[Georgia Dems Phonebank for Warnock and Ossoff](https://www.mobilize.us/georgiademocrats/event/364626){:target="_blank"}
 
-**Please, please** be sure that whoever you are working with is going through a Georgia-local based group.
+[Help cure absentee ballots](https://www.mobilize.us/dpgvoterprotection/event/362889){:target="_blank"}
 
+[Help recruit ballot cure canvassers](https://www.mobilize.us/dpgvoterprotection/event/364644){:target="_blank"}
+
+[Enter data to cure ballots with New Georgia Project Action Fund](https://www.mobilize.us/thenewgeorgiaproject/event/367763){:target="_blank"}
