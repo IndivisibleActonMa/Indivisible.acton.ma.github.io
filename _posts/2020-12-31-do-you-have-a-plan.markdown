@@ -6,6 +6,10 @@ is featured: true
 
 Let's ring in a <span style="color:blue;">BLUE</span> year!
 
+**h/t Stacey Abrams:**  
+*“... we must remain calm and patient as we wait for election workers to do their job safely. After Georgians do our part by casting our ballots, it is time to trust the process and the people making our democracy work.”*  
+
+
 **GEORGIA? Egg Nog? BOTH!**
 
 Here, in one place, is a list of several calling and text campaigns to Georgia voters - for GOTV, ballot cure canvasser recruitment, pre- and post-election ballot curing & data entry, too.
