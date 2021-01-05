@@ -26,20 +26,20 @@ var now = new Date();
 var t = countDownDate - now;
 
 // Time calculations for days
-var days = Math.floor(t / (1000 \* 60 \* 60 \* 24));
-var hours = Math.floor((t%(1000 \* 60 \* 60 \* 24))/(1000 \* 60 \* 60));
-var minutes = Math.floor((t % (1000 \* 60 \* 60)) / (1000 \* 60));
-var seconds = Math.floor((t % (1000 \* 60)) / 1000);
+var days = Math.floor(t / (1000 * 60 * 60 * 24));
+var hours = Math.floor((t%(1000 * 60 * 60 * 24))/(1000 * 60 * 60));
+var minutes = Math.floor((t % (1000 * 60 * 60)) / (1000 * 60));
+var seconds = Math.floor((t % (1000 * 60)) / 1000);
 
 // Output the result in an element with id="demo"
 var test1 = document.getElementById("demo");
 test1.style.font = "italic bold 30px arial,serif";
-test1.innerHTML = days \+ "d " \+ hours \+ "h " \+ minutes \+ "m " \+ seconds \+ "s left until Jan 20, 2021!";
+test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s left until Inauguration Day, Jan 20, 2021!";
 
 // If the count down is over, write some text
 if (t < 0) {
 clearInterval(x);
-document.getElementById("demo").innerHTML = "Democracy is a Verb!";
+document.getElementById("demo").innerHTML = "Inauguration Day!!!";
 }
 },500);
 </script>
