@@ -61,3 +61,5 @@ Our featured speakers include:
 * Glen Cote -[Concerned Constituents for Ending the War in Yemen](https://www.facebook.com/groups/concernedconstituentsdistrict3){:target="_blank}.
 
 * [FRRACS](https://www.nocompressor.com/home){:target="_blank}  (Fore River Residents Against the Compressor Station)
+
+[Please join us](https://www.mobilize.us/indivisibleacton-area/event/368337/){:target="_blank}!
