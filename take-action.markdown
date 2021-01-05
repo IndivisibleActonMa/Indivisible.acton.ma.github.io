@@ -39,7 +39,7 @@ test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s lef
 // If the count down is over, write some text
 if (t < 0) {
 clearInterval(x);
-document.getElementById("demo").innerHTML = "Let's Get Out and VOTE!!!";
+document.getElementById("demo").innerHTML = "We are with you Georgia!!!";
 }
 },500);
 </script>
