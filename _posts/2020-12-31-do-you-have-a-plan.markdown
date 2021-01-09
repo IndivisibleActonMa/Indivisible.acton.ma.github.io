@@ -7,7 +7,7 @@ event-end-date: 2021-01-10 20:30:00 -05:00
 RSVP-link: https://us02web.zoom.us/meeting/register/tZYvcO-vrzwvEt1I5jp_x8k5kc1dy8R32RF6
 ---
 
-<span style="color:blue; font-size:1.5em;">We Won Because of YOU</span>!
+<span style="color:blue; font-size:1.5em;">We Won Because of YOU!</span>
 
 Your hard work and activism helped to:
 
