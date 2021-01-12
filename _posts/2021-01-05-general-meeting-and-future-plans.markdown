@@ -1,6 +1,7 @@
 ---
 title: January General Meeting
 date: 2021-01-05 07:00:00 -05:00
+published: false
 is featured: true
 event-start-date: 2021-01-11 18:30:00 -05:00
 event-end-date: 2021-01-11 20:00:00 -05:00
