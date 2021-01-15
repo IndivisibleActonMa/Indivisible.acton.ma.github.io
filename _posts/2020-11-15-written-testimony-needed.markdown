@@ -18,11 +18,7 @@ Legislative rules get set at the start of every 2-year legislative session. NOW 
 
 ### Police Reform
 
-\[Police Reform Bill in Limbo\](Baker’s suggested revisions are now in the hands of the Senate’s Third Reading Committee, chaired by state Sen. Sal DiDomenico, D-Everett.){:target="_blank"}.
-
-[The Legislature Narrows Police Reform Bill](https://www.progressivemass.com/ma-police-senate-baker){:target="_blank"}.
-
-[Here is what is in the reform bill](https://www.progressivemass.com/police-reform-bill-conference-report-2020){:target="_blank"}.
+[Governor Baker signs police reform bill!](https://www.mass.gov/news/governor-baker-signs-police-reform-legislation){:target="_blank"}.
 
 ### Climate Action
 
