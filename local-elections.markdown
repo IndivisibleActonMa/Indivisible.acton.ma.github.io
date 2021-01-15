@@ -10,7 +10,7 @@ date: 2019-12-30 22:56:00 -05:00
 
 <script>
 // Set the date we're counting down to
-var countDownDate = new Date("Jan 5 2021 00:00");
+var countDownDate = new Date("Jan 20 2021 00:00");
 
 // Update the count down every 1 second
 var x = setInterval(function() {
@@ -32,13 +32,13 @@ var x = setInterval(function() {
   test1.style.font = "italic bold 30px arial,serif"; 
   //test1.style.textAlign = "center";
 //test1.innerHTML = days + " days left until Nov 3, 2020!";
-  test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s left until Georgia Runoff - Jan 5, 2021!";
+  test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s left until Jan 20, 2021!";
   
   
   // If the count down is over, write some text 
   if (t < 0) {
     clearInterval(x);
-    document.getElementById("demo").innerHTML = "Let's Get Out and VOTE!!!";
+    document.getElementById("demo").innerHTML = "Bye, Don!!!";
   }
 },500);
 </script>
@@ -62,18 +62,11 @@ Click [HERE](https://www.wbur.org/news/2020/11/03/2020-massachusetts-election-ma
 
 ---
 
-### GA Runoff!
-
-Click [HERE](http://www.indivisibleacton.org/2020/02/13/do-you-have-a-plan.html) for more info on how you can help!
-
 ### MA Elections 
 
 Even though elections are over, the Legislature is still in session.  
 
 Join [Act On Mass](https://actonmass.org){:target="_blank"}  to [take action](https://docs.google.com/forms/d/e/1FAIpQLSey2_BeLA-OlvDknGmZ46i3sXJ2Qxu8m9yettQnK5lZ1oW-QA/viewform){:target="_blank"} for transparency in our State House!  
-
-Let's get the ROE Act passed! Read more [HERE](http://www.indivisibleacton.org/2020/11/10/support-the-roe-act.html). 
-
 
 ---
 
