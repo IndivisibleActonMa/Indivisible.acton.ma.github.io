@@ -14,7 +14,7 @@ layout: page
 
 <script>
 // Set the date we're counting down to
-var countDownDate = new Date("Jan 5 2021 00:00");
+var countDownDate = new Date("Jan 20 2021 00:00");
 
 // Update the count down every 1 second
 var x = setInterval(function() {
@@ -34,12 +34,12 @@ var seconds = Math.floor((t % (1000 * 60)) / 1000);
 // Output the result in an element with id="demo"
 var test1 = document.getElementById("demo");
 test1.style.font = "italic bold 30px arial,serif";
-test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s left until Georgia Runoff, Jan 5, 2021!";
+test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s left until Inauguration, Jan 20, 2021!";
 
 // If the count down is over, write some text
 if (t < 0) {
 clearInterval(x);
-document.getElementById("demo").innerHTML = "We are with you Georgia!!!";
+document.getElementById("demo").innerHTML = "Welcome, President Biden and Vice President Harris!!!";
 }
 },500);
 </script>
