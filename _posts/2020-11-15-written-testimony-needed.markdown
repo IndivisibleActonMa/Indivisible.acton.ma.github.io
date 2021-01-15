@@ -26,9 +26,10 @@ Legislative rules get set at the start of every 2-year legislative session. NOW 
 
 ### Climate Action
 
-We must push our MA Legislature to advocate for strong and effective legislation during their committee discussions of the climate bill.
+We are sad to report that ***Governor Baker vetoed the Climate Bill.***
 
-See a comparison of the two bills [HERE](http://climateactionnowma.org/wp-content/uploads/ClimateBillsComparisonAug2020.pdf){:target="_blank"} and write to your Representative, Senator and encourage them to write to the Conference Committee to enact stronger climate legislation in Massachusetts - or thank them if they have already done so!
+[Speaker Mariano and Senate Leader Spilka pledged to refile the bill](https://www.wbur.org/earthwhile/2021/01/13/house-speaker-mariano-refile-climate-bill-baker-veto){:target="_blank"}.  
+
 
 ### Driving Families Forward
 
