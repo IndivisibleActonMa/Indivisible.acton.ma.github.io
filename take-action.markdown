@@ -5,7 +5,7 @@ layout: page
 ---
 
 ---
-<span style="font-family:Papyrus; font-size:2em; color:red;">Take Action and Help </span><span style="font-family:Papyrus; font-size:2em; color:blue;">[Flip The Senate BLUE](http://www.indivisibleacton.org/2020/02/13/do-you-have-a-plan.html)!</span>  
+<span style="font-family:Papyrus; font-size:2em; color:blue;">The time is always right to do what is right. - Dr. Martin Luther King</span> 
 
 ---
 
