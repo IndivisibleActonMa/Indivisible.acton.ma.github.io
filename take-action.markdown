@@ -109,8 +109,6 @@ Click [HERE](https://americansofconscience.com/){:target="_blank"} to find the l
 
 ### Ways to Resist from Home
 
-* Help out with the [GA Senate Runoff](http://www.indivisibleacton.org/2020/02/13/do-you-have-a-plan.html) 
-
 * [Join the Indivisible Truth Brigade](https://act.indivisible.org/signup/indivisible-truth-brigade){:target="_blank"}.  
 
 * Want to text green? Join [Sierra Club's new Texting Team](https://act.sierraclub.org/actions/National?actionId=AR0235958){:target="_blank"}! Primary season is in full swing, the Earth Day Climate Strike is fast approaching, and the Sierra Club has set a goal of texting millions of people to get out the vote and come strike! Join the Sierra Club’s Texting Team and fight climate change from home!  
