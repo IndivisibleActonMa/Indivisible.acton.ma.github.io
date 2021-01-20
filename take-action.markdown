@@ -52,8 +52,13 @@ document.getElementById("demo").innerHTML = "Welcome, President Biden and Vice P
 
 ---
 
-["*Be a fanatical optimist. Make a plan. Take action.*"](https://www.wbur.org/cognoscenti/2020/02/05/trump-impeachment-acquittal-steve-almond){:target="_blank"}  Steve Almond  
-
+<span style="font-family:Papyrus; font-size:1em;">Somehow we weathered and witnessed  
+A nation that isn't broken  
+but simply unfinished  
+There is always light  
+if only we're brave enough to see it  
+if only we're brave enough to be it.  
+— Amanda Gorman</span>
 
 ---
 
