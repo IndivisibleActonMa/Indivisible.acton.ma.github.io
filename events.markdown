@@ -35,7 +35,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 Celebrate the Inauguration of President Joe Biden and Madam Vice President Kamala Harris by joining our fund raiser!
 
-All **[donations made the week of Jan 18-24 ](https://secure.actblue.com/donate/indivisibleama411742968){:target="_blank"}** will be applied to our **Fill the Fridge **fundraiser benefitting **[Canasta Solidaria](https://fundrazr.com/CanastaSolidaria?ref=sh_3800Wc_ab_2YCxFcikifN2YCxFcikifN){:target="_blank"}** in Framingham and **[Rice Sticks and Tea Asian Food Pantry](https://ricesticksandtea.org/donate){:target="_blank"}** in Boston.
+All **[donations made the week of Jan 18-24 ](https://secure.actblue.com/donate/indivisibleama411742968){:target="_blank"}** will be applied to our **Fill the Fridge** fundraiser benefitting [Canasta Solidaria](https://fundrazr.com/CanastaSolidaria?ref=sh_3800Wc_ab_2YCxFcikifN2YCxFcikifN){:target="_blank"} in Framingham and [Rice Sticks and Tea Asian Food Pantry](https://ricesticksandtea.org/donate){:target="_blank"} in Boston.
 
 As a special thank you, join us for yoga and Zumba Sunday, Jan 24, 2-4p. [Sign up HERE](https://www.mobilize.us/nationaldayofservice/event/370063/){:target="_blank"}. 
 
