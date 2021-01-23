@@ -15,9 +15,9 @@ date: 2019-11-22 08:43:00 -05:00
 
 **Tuesday 1-2p: Touch Base Tuesdays** Let’s get together to update/review/share/plan news and actions people can take to win in 2020 and beyond. Some of the brainstorming ideas discussed here turn into take action activities for the Indivisible Acton Area. [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/270060/){:target="_blank"}.
 
-**Thursday, 1-2p: Indivisible Truth Brigade** Help combat misinformation - join the Indivisible Truth Brigade.  [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/369343/){:target="_blank"}. 
+**Thursday, 1-2p: Indivisible Truth Brigade** Help combat misinformation - join the Indivisible Truth Brigade.  [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/369343/){:target="_blank"}.
 
-**Friday, 4-5p: Friday 411** Join us for a BYOB Happy Hour Info Session!  [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/365408/){:target="_blank"}.  
+**Friday, 4-5p: Friday 411** Join us for a BYOB Happy Hour Info Session!  [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/365408/){:target="_blank"}.
 
 **Saturday 10-11a: Saturdays Coffee and Conversations** The Indivisible Philosophy: Democracy is a lifelong effort and demands full engagement from grassroot efforts like ours. After elected officials are sworn in, it's up to us to keep them accountable. Elections only have consequences when voters (Activists) demand action from and support our elected officials. [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/362056/){:target="_blank"}
 
@@ -30,6 +30,14 @@ date: 2019-11-22 08:43:00 -05:00
 ---
 
 ## Events
+
+### Fill the Fridge Day of Service
+
+Celebrate the Inauguration of President Joe Biden and Madam Vice President Kamala Harris by joining our fund raiser!
+
+All **[donations made the week of Jan 18-24 ](https://secure.actblue.com/donate/indivisibleama411742968){:target="_blank"}** will be applied to our **Fill the Fridge **fundraiser benefitting **[Canasta Solidaria](https://fundrazr.com/CanastaSolidaria?ref=sh_3800Wc_ab_2YCxFcikifN2YCxFcikifN){:target="_blank"}** in Framingham and **[Rice Sticks and Tea Asian Food Pantry](https://ricesticksandtea.org/donate){:target="_blank"}** in Boston.
+
+As a special thank you, join us for yoga and Zumba Sunday, Jan 24, 2-4p. [Sign up HERE](https://www.mobilize.us/nationaldayofservice/event/370063/){:target="_blank"}. 
 
 ### Check out more events below!
 
