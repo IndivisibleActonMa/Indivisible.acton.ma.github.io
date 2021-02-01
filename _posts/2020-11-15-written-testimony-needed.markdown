@@ -20,7 +20,7 @@ Legislative rules get set at the start of every 2-year legislative session. NOW 
 
 This critical bill has once again passed the MA Legislature. Thank you to Speaker Mariano and Senate Leader Spilka for refiling the bill and to the Senators and Representatives who helped pass it (again).
 
-PLEASE [email Governor Baker and urge him to sign the bill this week](https://www.mass.gov/forms/email-the-governors-office){:target="_blank"}. <span style="color=red;">The deadline is February 7.</span>
+PLEASE [email Governor Baker and urge him to sign the bill this week](https://www.mass.gov/forms/email-the-governors-office){:target="_blank"}. <span style="color:red;">The deadline is February 7.</span>
 
 Click [HERE](https://drive.google.com/file/d/1A9Svn5fwnix_pFe1JC6UmjZH-5bEDG19/view?usp=sharing){:target="_blank"} for more info.  
 
