@@ -73,11 +73,7 @@ PLEASE [email Governor Baker]( https://www.mass.gov/forms/email-the-governors-of
 
 ***Indivisible Acton-Area is proud to endorse the [Acton Climate Coalition](https://www.actonclimatecoalition.org){:target="_blank"} in declaring a climate emergency in Acton.  Click [HERE](https://www.actonclimatecoalition.org){:target="_blank"} to learn more.***  
 
-Click [HERE](https://www.actonclimatecoalition.org/#webinars){:target="_blank"} to sign up for a webinar to learn about learn about recent climate change news and why we must [declare a Climate Emergency](https://www.actonclimatecoalition.org/#declaration){:target="_blank"}.  
- 
-
-It’s super important that we get as many people on informed as  possible! *Let’s make climate change the number one issue for voters across Massachusetts.* 
- 
+Acton now has a [Sustainability Office](https://www.acton-ma.gov/723/Sustainability){:target="_blank"}!  
 
 Find out more about the impact of climate change:  [Climate Change: The Facts](https://www.pbs.org/video/climate-change-the-facts-ua6lmf/){:target="_blank"}  
 
