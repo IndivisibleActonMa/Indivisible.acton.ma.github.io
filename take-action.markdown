@@ -62,18 +62,6 @@ if only we're brave enough to be it.
 
 ---
 
-**Advocate for Peace in Yemen**
-
-According to the UN, the conflict in Yemen has become the worst humanitarian crisis in the world these past 6 years. This is due to Saudi-led coalition airstrikes conducted with American support, which was greatly expanded under the Trump administration.  
-
-We are asking Representative Trahan (MA-CD3) who is a member of the Armed Services Committee to strongly and publicly advocate for ending the violence and ending US participation in the Saudi-led coalition’s war on Yemen via a new Yemen War Powers Resolution and work to make sure Biden signs it.
-
-The time to act is now.  
-
-[Please sign the Letter to Rep. Trahan on Yemen](https://docs.google.com/forms/d/e/1FAIpQLScjeUS0h9AKq5521C5bkuWcVyndMg0GFUmIbdn8dt18i1sCvQ/viewform){:target="_blank"}.  
-
----
-
 **Start a Climate Conversation**
 
 “*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation   
