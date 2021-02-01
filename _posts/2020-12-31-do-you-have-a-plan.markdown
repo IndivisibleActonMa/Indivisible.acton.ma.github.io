@@ -1,5 +1,5 @@
 ---
-title: Thank you
+title: Pubic Letter from RJ Grey Jr High Students
 date: 2020-12-31 22:33:00 -05:00
 published: false
 is featured: true
