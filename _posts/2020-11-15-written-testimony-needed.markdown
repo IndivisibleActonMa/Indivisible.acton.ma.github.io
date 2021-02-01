@@ -16,16 +16,13 @@ Time is of the essence.
 
 Legislative rules get set at the start of every 2-year legislative session. NOW is our chance to change the broken, anti-democratic rules in the State House. Learn more [HERE](https://actonmass.org/the-campaign/).
 
-### Police Reform
-
-[Governor Baker signs police reform bill!](https://www.mass.gov/news/governor-baker-signs-police-reform-legislation){:target="_blank"}.
-
 ### Climate Action
 
-We are sad to report that ***Governor Baker vetoed the Climate Bill.***
+This critical bill has once again passed the MA Legislature. Thank you to Speaker Mariano and Senate Leader Spilka for refiling the bill and to the Senators and Representatives who helped pass it (again).
 
-[Speaker Mariano and Senate Leader Spilka pledged to refile the bill](https://www.wbur.org/earthwhile/2021/01/13/house-speaker-mariano-refile-climate-bill-baker-veto){:target="_blank"}.  
+PLEASE [email Governor Baker and urge him to sign the bill this week](https://www.mass.gov/forms/email-the-governors-office){:target="_blank"}. The deadline is February 7. 
 
+Click [HERE](https://drive.google.com/file/d/1A9Svn5fwnix_pFe1JC6UmjZH-5bEDG19/view?usp=sharing){:target="_blank"} for more info.  
 
 ### Driving Families Forward
 
@@ -38,6 +35,10 @@ Read more [HERE](https://www.miracoalition.org/get-involved/drivers-licenses/){:
 ### ROE Act
 
 * [Thank your lawmakers if they voted to pass this bill and rejected Governor Baker’s anti-choice amendments](https://malegislature.gov/search/findmylegislator){:target="_blank"}.  
+
+### Police Reform
+
+[Governor Baker signs police reform bill!](https://www.mass.gov/news/governor-baker-signs-police-reform-legislation){:target="_blank"}.
 
 ### Emergency Paid Sick Time
 
