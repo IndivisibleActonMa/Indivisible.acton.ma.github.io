@@ -68,11 +68,8 @@ if only we're brave enough to be it.
 
 Spark vital conversations with help from the [The New York Times Climate Hub](https://www.nytclimatehub.com/climatehub/nyt-climate-hub-2021){:target="_blank"}.  
 
-***Action for all environmentally concerned:***    Sign [THIS PETITION](https://masscleanenergyfuture.hubspotpagebuilder.com/greenmoneyma){:target="_blank"} to tell Governor Baker to act faster on climate change.  
+PLEASE [email Governor Baker]( https://www.mass.gov/forms/email-the-governors-office){:target="_blank"} and urge him to sign the Climate bill this week. The deadline is Feb 7!  
 
-Please share [the petition](https://masscleanenergyfuture.hubspotpagebuilder.com/greenmoneyma){:target="_blank"} widely.  
-
-You can also submit comments and ideas to the Baker administration about how to accelerate their current pace for CO2 reductions [HERE](https://www.mass.gov/forms/form-3-feedback-on-80x50?auHash=x9u7p0q10G_uGvM0t3cQ5RV46fdrOM9NB1AbWTZ8O8o){:target="_blank"}.  
 
 ***Indivisible Acton-Area is proud to endorse the [Acton Climate Coalition](https://www.actonclimatecoalition.org){:target="_blank"} in declaring a climate emergency in Acton.  Click [HERE](https://www.actonclimatecoalition.org){:target="_blank"} to learn more.***  
 
