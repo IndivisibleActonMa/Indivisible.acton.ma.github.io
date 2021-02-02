@@ -24,6 +24,8 @@ PLEASE [email Governor Baker and urge him to sign the bill this week](https://ww
 
 Click [HERE](https://drive.google.com/file/d/1A9Svn5fwnix_pFe1JC6UmjZH-5bEDG19/view?usp=sharing){:target="_blank"} for more info.  
 
+Why is climate change legislation so difficult to accomplish in MA? Read all about it [HERE](https://www.cssn.org/wp-content/uploads/2021/01/MA-CSSN-Report-1.20.2021-Corrected-text.pdf){:target="_blank"}. 
+
 ### Driving Families Forward
 
 Doesn't it make sense to enable all qualified state residents to apply for a standard state driver’s license, regardless of immigrant status, while keeping our Commonwealth in full compliance with REAL ID requirements?  It has been endorsed by over 230 organizations, including the Mass. Major City Chiefs of Police, as well as dozens of businesses.
