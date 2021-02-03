@@ -5,83 +5,59 @@ layout: page
 ---
 
 ---
-<span style="font-family:Papyrus; font-size:2em; color:blue;">The time is always right to do what is right. - Dr. Martin Luther King</span> 
+
+<span style="font-family:Papyrus; font-size:2em; color:blue;">The time is always right to do what is right. - Dr. Martin Luther King</span>
 
 ---
 
-<p id="demo">
-</p>
-
-<script>
-// Set the date we're counting down to
-var countDownDate = new Date("Jan 20 2021 12:00");
-
-// Update the count down every 1 second
-var x = setInterval(function() {
-
-// Get today's date
-var now = new Date();
-
-// Find the distance between now and the count down date
-var t = countDownDate - now;
-
-// Time calculations for days
-var days = Math.floor(t / (1000 * 60 * 60 * 24));
-var hours = Math.floor((t%(1000 * 60 * 60 * 24))/(1000 * 60 * 60));
-var minutes = Math.floor((t % (1000 * 60 * 60)) / (1000 * 60));
-var seconds = Math.floor((t % (1000 * 60)) / 1000);
-
-// Output the result in an element with id="demo"
-var test1 = document.getElementById("demo");
-test1.style.font = "italic bold 30px arial,serif";
-test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s left until Inauguration, Jan 20, 2021!";
-
-// If the count down is over, write some text
-if (t < 0) {
-clearInterval(x);
-document.getElementById("demo").innerHTML = "Welcome, President Biden and Vice President Harris!!!";
-}
-},500);
-</script>
-
----
-  
 *"Do not get lost in a sea of despair. Be hopeful, be optimistic. Our struggle is not the struggle of a day, a week, a month, or a year, it is the struggle of a lifetime. Never, ever be afraid to make some noise and get in good trouble, necessary trouble."*
 
-[Rep John Lewis, June 2018](https://twitter.com/repjohnlewis/status/1011991303599607808?s=20){:target="_blank"}. 
+[Rep John Lewis, June 2018](https://twitter.com/repjohnlewis/status/1011991303599607808?s=20){:target="_blank"}.
 
 ---
 
-<span style="font-family:Papyrus; font-size:1em;">Somehow we weathered and witnessed  
-A nation that isn't broken  
-but simply unfinished  
-There is always light  
-if only we're brave enough to see it  
-if only we're brave enough to be it.  
+<span style="font-family:Papyrus; font-size:1em;">Somehow we weathered and witnessed\
+A nation that isn't broken\
+but simply unfinished\
+There is always light\
+if only we're brave enough to see it\
+if only we're brave enough to be it.\
 — Amanda Gorman</span>
 
 ---
 
 **Start a Climate Conversation**
 
-“*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation   
+“*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation
 
-Spark vital conversations with help from the [The New York Times Climate Hub](https://www.nytclimatehub.com/climatehub/nyt-climate-hub-2021){:target="_blank"}.  
+Spark vital conversations with help from the [The New York Times Climate Hub](https://www.nytclimatehub.com/climatehub/nyt-climate-hub-2021){:target="_blank"}.
 
-PLEASE [email Governor Baker]( https://www.mass.gov/forms/email-the-governors-office){:target="_blank"} and urge him to sign the Climate bill this week. The deadline is Feb 7!  
+PLEASE [email Governor Baker](https://www.mass.gov/forms/email-the-governors-office){:target="_blank"} and urge him to sign the Climate bill this week. The deadline is Feb 7!
 
+---
 
-***Indivisible Acton-Area is proud to endorse the [Acton Climate Coalition](https://www.actonclimatecoalition.org){:target="_blank"} in declaring a climate emergency in Acton.  Click [HERE](https://www.actonclimatecoalition.org){:target="_blank"} to learn more.***  
+### Plastic: Recycle, Reuse, Refuse
 
-Acton now has a [Sustainability Office](https://www.acton-ma.gov/723/Sustainability){:target="_blank"}!  
+**When:** Feb 25, 2021, 7–8:15 pm
+**Register:**  http://bit.ly/3oSZ0y6
 
-Find out more about the impact of climate change:  [Climate Change: The Facts](https://www.pbs.org/video/climate-change-the-facts-ua6lmf/){:target="_blank"}  
+Looking to clear up confusions and make decisions about personal habits and wider actions around plastics? Join us to learn from these experts:
 
- 
-[We’re running out of time to flatten the curve — for climate change](https://grist.org/climate/flatten-the-curve-coronavirus-climate-emissions/?fbclid=IwAR3fzAbVOimlF07xx5BjqRFFDgS28hfU6HqFBEnyqD-DjnR788521nF61qE){:target="_blank"}  
+**Recycle:** Ben Harvey, President of E.L. Harvey Waste and Recycling Services, will present what happens to recycling when it leaves the Acton Transfer Station, along with tips for better recycling.\
+**Reuse:** Eric Hudson, Founder & CEO of Preserve, will talk about innovative ways to reuse plastic, and state and national trends in designing for recyclability.\
+**Refuse:** Janet S. Domenitz, Executive Director of MASSPIRG, will explain about zero waste and how to move beyond plastic.
 
-[Pollution made COVID-19 worse. Now, lockdowns are clearing the air.  Will today's cleaner air inspire us to do better?](https://www.nationalgeographic.com/science/2020/04/pollution-made-the-pandemic-worse-but-lockdowns-clean-the-sky/#close){:target="_blank"}  What do you think??  
+---
 
+***Indivisible Acton-Area is proud to endorse the [Acton Climate Coalition](https://www.actonclimatecoalition.org){:target="_blank"} in declaring a climate emergency in Acton.  Click [HERE](https://www.actonclimatecoalition.org){:target="_blank"} to learn more.***
+
+Acton now has a [Sustainability Office](https://www.acton-ma.gov/723/Sustainability){:target="_blank"}!
+
+Find out more about the impact of climate change:  [Climate Change: The Facts](https://www.pbs.org/video/climate-change-the-facts-ua6lmf/){:target="_blank"}
+
+[We’re running out of time to flatten the curve — for climate change](https://grist.org/climate/flatten-the-curve-coronavirus-climate-emissions/?fbclid=IwAR3fzAbVOimlF07xx5BjqRFFDgS28hfU6HqFBEnyqD-DjnR788521nF61qE){:target="_blank"}
+
+[Pollution made COVID-19 worse. Now, lockdowns are clearing the air.  Will today's cleaner air inspire us to do better?](https://www.nationalgeographic.com/science/2020/04/pollution-made-the-pandemic-worse-but-lockdowns-clean-the-sky/#close){:target="_blank"}  What do you think??
 
 ---
 
@@ -89,22 +65,22 @@ Click [HERE for the Activist Alliance Newsletter](https://docs.google.com/docume
 
 Click [HERE for Indivisible MA newsletters](https://us17.campaign-archive.com/home/?u=3129bf2656ae4f5f1dcba96ad&id=70e7531ca3){:target="_blank"}
 
-Click [HERE](https://americansofconscience.com/){:target="_blank"} to find the latest [American's of Conscience](https://americansofconscience.com){:target="_blank"} checklist.  
+Click [HERE](https://americansofconscience.com/){:target="_blank"} to find the latest [American's of Conscience](https://americansofconscience.com){:target="_blank"} checklist.
 
 ---
 
 ### Ways to Resist from Home
 
-* [Join the Indivisible Truth Brigade](https://act.indivisible.org/signup/indivisible-truth-brigade){:target="_blank"}.  
+* [Join the Indivisible Truth Brigade](https://act.indivisible.org/signup/indivisible-truth-brigade){:target="_blank"}.
 
-* Want to text green? Join [Sierra Club's new Texting Team](https://act.sierraclub.org/actions/National?actionId=AR0235958){:target="_blank"}! Primary season is in full swing, the Earth Day Climate Strike is fast approaching, and the Sierra Club has set a goal of texting millions of people to get out the vote and come strike! Join the Sierra Club’s Texting Team and fight climate change from home!  
- H/T Chop Wood Carry Water   
+* Want to text green? Join [Sierra Club's new Texting Team](https://act.sierraclub.org/actions/National?actionId=AR0235958){:target="_blank"}! Primary season is in full swing, the Earth Day Climate Strike is fast approaching, and the Sierra Club has set a goal of texting millions of people to get out the vote and come strike! Join the Sierra Club’s Texting Team and fight climate change from home!\
+  H/T Chop Wood Carry Water
 
-* Join the [Environmental Voter Project](https://www.environmentalvoter.org){:target="_blank"} (EVP) for a [volunteer training webinar](https://www.environmentalvoter.org/events){:target="_blank}. During the webinar, volunteers will be trained in texting and calling environmental voters using EVP’s unique messaging. 
+* Join the [Environmental Voter Project](https://www.environmentalvoter.org){:target="_blank"} (EVP) for a [volunteer training webinar](https://www.environmentalvoter.org/events){:target="_blank}. During the webinar, volunteers will be trained in texting and calling environmental voters using EVP’s unique messaging.
 
-* Now more than ever, **we need the 28th amendment to the U.S. Constitution to END corruption and restore our representative democracy.** Join the volunteer movement to support the [We the People Amendment](http://www.wethepeoplemass.org){:target="_blank"} locally.  Click [HERE](https://wolf-pac.com){:target="_blank"} to learn about the national movement. 
+* Now more than ever, **we need the 28th amendment to the U.S. Constitution to END corruption and restore our representative democracy.** Join the volunteer movement to support the [We the People Amendment](http://www.wethepeoplemass.org){:target="_blank"} locally.  Click [HERE](https://wolf-pac.com){:target="_blank"} to learn about the national movement.
 
-* Wouldn't it be great if voting were more convenient? Click [HERE](https://www.voteathome.org){:target="_blank"} to learn about [Vote At Home](https://www.voteathome.org){:target="_blank"}.  
+* Wouldn't it be great if voting were more convenient? Click [HERE](https://www.voteathome.org){:target="_blank"} to learn about [Vote At Home](https://www.voteathome.org){:target="_blank"}.
 
 ---
 
@@ -114,7 +90,7 @@ Click [HERE](https://americansofconscience.com/){:target="_blank"} to find the l
 
 ### Environment/Climate Crisis
 
-* Learn more about the effects of [climate change in Massachusetts](https://www.massaudubon.org/our-conservation-work/climate-change){:target="_blank"} from [Mass Audobon](https://www.massaudubon.org){:target="_blank"}.  
+* Learn more about the effects of [climate change in Massachusetts](https://www.massaudubon.org/our-conservation-work/climate-change){:target="_blank"} from [Mass Audobon](https://www.massaudubon.org){:target="_blank"}.
 
 * Find out how you can protect and enhance Acton's natural environment and help resolve the urgent environmental issues that transcend Acton's boundaries [HERE](https://greenacton.org){:target="_blank"}.
 
@@ -128,9 +104,9 @@ Click [HERE](https://americansofconscience.com/){:target="_blank"} to find the l
 
 * Join [Raise Up Massachusetts](https://www.raiseupma.org), a coalition of community organizations, religious groups, and labor unions who are committed to building an economy that works for Massachusetts.
 
-* [Support the ROE Act](http://www.indivisibleacton.org/2020/12/30/support-the-roe-act.html)! 
+* [Support the ROE Act](http://www.indivisibleacton.org/2020/12/30/support-the-roe-act.html)!
 
-* [Support your local Indivisible Group]( https://secure.actblue.com/donate/indivisibleama411742968){:target="_blank"}!  
+* [Support your local Indivisible Group](https://secure.actblue.com/donate/indivisibleama411742968){:target="_blank"}!
 
 * **Ask your legislator to take the State House Transparency Pledge** - [Act On Mass](https://www.actonmass.org/?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU){:target="_blank"} is working to increasing transparency in our State House.  Let's ask our elected legislators to take action to create transparency today so important progressive bills don’t die in darkness. Click [HERE](https://www.actonmass.org/pledge?fbclid=IwAR2cSOj7LMK6jSofTR_6L1eEY2hRU1RsRm9lEmXC2r6jMfsPUy8jjzELYrU){:target="_blank"} for more info!
 
@@ -138,18 +114,16 @@ Click [HERE](https://americansofconscience.com/){:target="_blank"} to find the l
 
 * Email your MA state legislators and **demand that they lead on immigrant rights and equity**. MIRA (MA Immigrant and Refugee Advocacy Coalition) has put together a [comprehensive list](https://mailchi.mp/miracoalition/action-alert-lets-build-momentum-for-our-2019-priority-bills?e=baa65bb0e1&link_id=16&can_id=9a7cc198611ac2a74f284fdda8e14f7e) of all of the bills that support immigration and refugee rights and has made it super easy to [email your legislators to support these bills](https://p2a.co/96apnIc?link_id=17&can_id=9a7cc198611ac2a74f284fdda8e14f7e){:target="_blank"}.
 
-
 ### National
 
-* [Join Stacy Abrams in Fair Fight 2020](https://fairfight.com/fair-fight-2020/){:target="_blank"}. 
+* [Join Stacy Abrams in Fair Fight 2020](https://fairfight.com/fair-fight-2020/){:target="_blank"}.
 
-* Want to know the list of *proposed federal rule and regulation changes currently accepting public comments*?  Two good sources are [Rogan's List](https://roganslist.blogspot.com){:target="_blank"} and [News You May Have Missed](http://www.newsyoumayhavemissed.com){:target="_blank"}.  Or click [HERE]( https://tinyurl.com/vfeyasb){:target="_blank"} if you want to know the deadlines of the week.  You can also join the Facebook Group [Comments for America](https://www.facebook.com/groups/comments4america/){:target="_blank"}  which is devoted exclusively to publicizing proposed federal rules changes and to helping folks gets the information they need to make effective comments.  
+* Want to know the list of *proposed federal rule and regulation changes currently accepting public comments*?  Two good sources are [Rogan's List](https://roganslist.blogspot.com){:target="_blank"} and [News You May Have Missed](http://www.newsyoumayhavemissed.com){:target="_blank"}.  Or click [HERE](https://tinyurl.com/vfeyasb){:target="_blank"} if you want to know the deadlines of the week.  You can also join the Facebook Group [Comments for America](https://www.facebook.com/groups/comments4america/){:target="_blank"}  which is devoted exclusively to publicizing proposed federal rules changes and to helping folks gets the information they need to make effective comments.
 
 * Take the [Indivisible Unity Pledge](http://pledge.indivisible.org){:target="_blank"}: The pledge is that no matter our differences in the primary, once Democrats have a nominee, we’ll do everything in our power to get the nominee elected.  Click [HERE](https://www.youtube.com/watch?v=HojK7c7X3WE&link_id=18&can_id=9a7cc198611ac2a74f284fdda8e14f7e&source=email-2019-5-7-indivisible-acton-weekly-newsletter&email_referrer=email_540613&email_subject=2019-5-7-indivisible-acton-weekly-newsletter){:target="_blank"} to watch a clip about the Pledge on Rachel Maddow.
 
 
 * Call your Members of Congress and explain that you object to imposing asylum application fees on people fleeing persecution and danger. Not only is this amoral and inhumane, the American Immigration Lawyers Association says the president’s plan “contradicts international law” and still “fails to ensure orderly processing.” Ask your MOCs are doing to stop the president’s asylum fee and instead heal the root causes of life-threatening conditions in Guatemala, Honduras, and El Salvador? (H/T Americans of Conscience Checklist).
-
 
 ---
 
