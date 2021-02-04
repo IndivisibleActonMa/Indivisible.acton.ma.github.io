@@ -20,11 +20,11 @@ Legislative rules get set at the start of every 2-year legislative session. NOW 
 
 This critical bill has once again passed the MA Legislature. Thank you to Speaker Mariano and Senate Leader Spilka for refiling the bill and to the Senators and Representatives who helped pass it (again).
 
-PLEASE [email Governor Baker and urge him to sign the bill this week](https://www.mass.gov/forms/email-the-governors-office){:target="_blank"}. <span style="color:red;">The deadline is February 7.</span>
+* **PLEASE** [email Governor Baker and urge him to sign the bill this week](https://www.mass.gov/forms/email-the-governors-office){:target="_blank"}. <span style="color:red;">The deadline is February 7.</span>  Click [HERE](https://drive.google.com/file/d/1A9Svn5fwnix_pFe1JC6UmjZH-5bEDG19/view?usp=sharing){:target="_blank"} for more info.
 
-Click [HERE](https://drive.google.com/file/d/1A9Svn5fwnix_pFe1JC6UmjZH-5bEDG19/view?usp=sharing){:target="_blank"} for more info.  
+* Why is climate change legislation so difficult to accomplish in MA? Read all about it [HERE](https://www.cssn.org/wp-content/uploads/2021/01/MA-CSSN-Report-1.20.2021-Corrected-text.pdf){:target="_blank"}.
 
-Why is climate change legislation so difficult to accomplish in MA? Read all about it [HERE](https://www.cssn.org/wp-content/uploads/2021/01/MA-CSSN-Report-1.20.2021-Corrected-text.pdf){:target="_blank"}. 
+* The climate bill (S.9) is sitting on Gov Baker's desk. Well-funded development and realtor lobbyist groups have launched a misinformation campaign about the net zero stretch code blocking the production of urgently needed affordable housing. MA Climate Action Network has developed a [Net Zero Stretch Code Toolkit](https://www.massclimateaction.org/20){:target="_blank"} in response to this misinformation. **PLEASE** [help advocate for sustainable, healthy, and affordable homes in the Commonwealth](https://www.massclimateaction.org/20){:target="_blank"}!
 
 ### Driving Families Forward
 
@@ -36,7 +36,7 @@ Read more [HERE](https://www.miracoalition.org/get-involved/drivers-licenses/){:
 
 ### ROE Act
 
-* [Thank your lawmakers if they voted to pass this bill and rejected Governor Baker’s anti-choice amendments](https://malegislature.gov/search/findmylegislator){:target="_blank"}.  
+* [Thank your lawmakers if they voted to pass this bill and rejected Governor Baker’s anti-choice amendments](https://malegislature.gov/search/findmylegislator){:target="_blank"}.
 
 ### Police Reform
 
