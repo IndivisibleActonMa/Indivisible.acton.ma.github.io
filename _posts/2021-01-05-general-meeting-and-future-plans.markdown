@@ -1,6 +1,7 @@
 ---
 title: February General Meeting
 date: 2021-01-05 07:00:00 -05:00
+published: false
 is featured: true
 event-start-date: 2021-02-08 18:30:00 -05:00
 event-end-date: 2021-02-08 20:00:00 -05:00
