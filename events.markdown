@@ -31,9 +31,9 @@ date: 2019-11-22 08:43:00 -05:00
 
 ## Events
 
-### February General Meeting
+### March General Meeting
 
-**Join us Feb 8, 6:30-8p**. [RSVP HERE](https://www.mobilize.us/indivisibleacton-area/event/373816/){:target="_blank"}. 
+**Join us Mar 8, 6:30-8p**. [RSVP HERE](https://www.mobilize.us/indivisibleacton-area/event/376071/){:target="_blank"}. 
 
 ### Check out more events below!
 
