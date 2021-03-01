@@ -10,22 +10,6 @@ layout: page
 
 ---
 
-*"Do not get lost in a sea of despair. Be hopeful, be optimistic. Our struggle is not the struggle of a day, a week, a month, or a year, it is the struggle of a lifetime. Never, ever be afraid to make some noise and get in good trouble, necessary trouble."*
-
-[Rep John Lewis, June 2018](https://twitter.com/repjohnlewis/status/1011991303599607808?s=20){:target="_blank"}.
-
----
-
-<span style="font-family:Papyrus; font-size:1em;">Somehow we weathered and witnessed\
-A nation that isn't broken\
-but simply unfinished\
-There is always light\
-if only we're brave enough to see it\
-if only we're brave enough to be it.\
-— Amanda Gorman</span>
-
----
-
 **Start a Climate Conversation**
 
 “*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation
