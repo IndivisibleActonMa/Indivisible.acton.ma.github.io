@@ -12,7 +12,7 @@ RSVP-link: https://www.mobilize.us/indivisibleacton-area/event/376071/
 This month our focus is on climate change and energy sources.
 
 * Acton declared a Climate Emergency in September 2020. 
-A natural follow up to addressing the Climate Emergency is to find ways to have new construction no longer use on-site fossil fuels. Come hear about the new campaign *Building with Clean Energy* from Jim Snyder-Grant, [Acton Climate Coalition](https://www.actonclimatecoalition.org){:target="_blank"}.   
+A natural follow up to addressing the Climate Emergency is to find ways to have new construction no longer use on-site fossil fuels. Come hear about the new campaign *Building with Clean Energy: For a Better Future Starting Now* from Jim Snyder-Grant, [Acton Climate Coalition](https://www.actonclimatecoalition.org){:target="_blank"}.   
 
 * What's the story with biomass?  What's going on in Springfield? We will get the low down from Laura Haight, U.S. policy director at the [Partnership for Policy Integrity](https://www.pfpi.net/){:target="_blank"}.  
 
