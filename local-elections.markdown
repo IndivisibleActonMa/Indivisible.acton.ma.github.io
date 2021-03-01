@@ -52,7 +52,8 @@ Barack Obama, Feb 5, 2008
 
 *“My dear friends: Your vote is precious, almost sacred. It is the most powerful nonviolent tool we have to create a more perfect union."*  
 
-— John Lewis, A 2012 speech in Charlotte, NC  
+John Lewis, A 2012 speech in Charlotte, NC 
+ 
 ---
 
 ## Town Elections
