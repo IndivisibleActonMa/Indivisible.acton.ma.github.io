@@ -74,6 +74,11 @@ Boxborough's [2021 annual town election](https://www.boxborough-ma.gov/DocumentC
 
 Maynard's [2021 annual town election](https://www.townofmaynard-ma.gov/gov/elections/){:target="_blank"} is **Tuesday, May 4, 2021**.  
 
+### Stow
+
+Stow's [2021 annual town election](https://www.stow-ma.gov/town-meeting-election-information){:target="_blank"} is **Saturday, May 8, 2021**.  
+
+
 ### Sudbury
 
 Subury's [2021 annual town election](https://sudbury.ma.us/clerk/2021/01/21/2020-annual-town-election/){:target="_blank"} is **Monday, Mar 29**.  
