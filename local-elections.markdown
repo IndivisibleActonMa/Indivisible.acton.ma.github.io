@@ -38,7 +38,7 @@ var x = setInterval(function() {
   // If the count down is over, write some text 
   if (t < 0) {
     clearInterval(x);
-    document.getElementById("demo").innerHTML = "Bye, Don!!!";
+    document.getElementById("demo").innerHTML = "The biggest threat to our democracy is indifference.";
   }
 },500);
 </script>
@@ -53,13 +53,26 @@ Barack Obama, Feb 5, 2008
 *“My dear friends: Your vote is precious, almost sacred. It is the most powerful nonviolent tool we have to create a more perfect union."*  
 
 — John Lewis, A 2012 speech in Charlotte, NC  
-
 ---
 
-### How did your town vote?
+## Town Elections
 
-Click [HERE](https://www.wbur.org/news/2020/11/03/2020-massachusetts-election-map){:target="_blank"} and find out how your town voted.
+### Acton
 
+* [Information on how to vote](https://www.acton-ma.gov/598/Elections-Voting){:target="_blank"}
+
+You can download/print the application here: [https://www.sec.state.ma.us/ele/elepdf/2021-Vote-by-Mail-Application.pdf](https://www.sec.state.ma.us/ele/elepdf/2021-Vote-by-Mail-Application.pdf){:target="_blank"}
+
+Your completed application for a ballot can be returned in multiple ways:
+ 
+* Mail or hand deliver: Town Clerk, 472 Main Street, Acton, MA 01720
+* Fax (application only – no ballots): 978-929-6340 (your signature must be visible)
+* Email (application only – no ballots): clerk@acton-ma.gov (your signature must be visible)
+ 
+FYI - *Even if you received a mail-in ballot in 2020, you need to apply again for the new year*. The Town Clerk will receive the ballots about 30 days before the election and will start sending them out at that time.
+ 
+*Please note that early in-person voting is not available for the Acton Annual Town Election – early voting must be done by Absentee/Vote by Mail ballot. Completed ballots can be mailed or put in the drop box at Acton Town Hall (completed ballots cannot be faxed or emailed).*
+ 
 ---
 
 ### MA Elections 
