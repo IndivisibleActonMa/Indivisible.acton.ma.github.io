@@ -64,7 +64,11 @@ Your completed application for a ballot can be returned in multiple ways:
 FYI - *Even if you received a mail-in ballot in 2020, you need to apply again for the new year*. The Town Clerk will receive the ballots about 30 days before the election and will start sending them out at that time.
  
 *Please note that early in-person voting is not available for the Acton Annual Town Election – early voting must be done by Absentee/Vote by Mail ballot. Completed ballots can be mailed or put in the drop box at Acton Town Hall (completed ballots cannot be faxed or emailed).*
- 
+
+### Boxborough
+
+Boxborough's [2021 annual town election](https://www.boxborough-ma.gov/DocumentCenter/View/1169/ElectionCalendar2021?bidId=){:target="_blank"} is **Tuesday, May 22**.  [Here is more information about elections and voting.](https://www.boxborough-ma.gov/211/Elections-Voting){:target="_blank"}  
+  
 ---
 
 ### MA Elections 
