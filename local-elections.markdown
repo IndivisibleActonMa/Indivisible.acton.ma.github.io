@@ -49,7 +49,7 @@ var x = setInterval(function() {
 
 ### Acton
 
-[Here is information on how to vote](https://www.acton-ma.gov/598/Elections-Voting){:target="_blank"}.
+[Information on how to vote](https://www.acton-ma.gov/598/Elections-Voting){:target="_blank"} is available at the [town website](https://www.acton-ma.gov/598/Elections-Voting){:target="_blank"}.
 
 You can download/print the application here: [https://www.sec.state.ma.us/ele/elepdf/2021-Vote-by-Mail-Application.pdf](https://www.sec.state.ma.us/ele/elepdf/2021-Vote-by-Mail-Application.pdf){:target="_blank"}
 
