@@ -38,29 +38,18 @@ var x = setInterval(function() {
   // If the count down is over, write some text 
   if (t < 0) {
     clearInterval(x);
-    document.getElementById("demo").innerHTML = "The biggest threat to our democracy is indifference.";
+    document.getElementById("demo").innerHTML = "The biggest threat to our democracy is indifference. Barack Obama";
   }
 },500);
 </script>
 
 ---
 
-*"Change will not come if we wait for some other person or if we wait for some other time. We are the ones we've been waiting for."*  
-
-Barack Obama, Feb 5, 2008   
-
-
-*“My dear friends: Your vote is precious, almost sacred. It is the most powerful nonviolent tool we have to create a more perfect union."*  
-
-John Lewis, A 2012 speech in Charlotte, NC 
- 
----
-
 ## Town Elections
 
 ### Acton
 
-* [Information on how to vote](https://www.acton-ma.gov/598/Elections-Voting){:target="_blank"}
+[Here is information on how to vote](https://www.acton-ma.gov/598/Elections-Voting){:target="_blank"}.
 
 You can download/print the application here: [https://www.sec.state.ma.us/ele/elepdf/2021-Vote-by-Mail-Application.pdf](https://www.sec.state.ma.us/ele/elepdf/2021-Vote-by-Mail-Application.pdf){:target="_blank"}
 
