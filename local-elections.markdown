@@ -69,6 +69,11 @@ FYI - *Even if you received a mail-in ballot in 2020, you need to apply again fo
 
 Boxborough's [2021 annual town election](https://www.boxborough-ma.gov/DocumentCenter/View/1169/ElectionCalendar2021?bidId=){:target="_blank"} is **Tuesday, May 22**.  [Here is more information about elections and voting.](https://www.boxborough-ma.gov/211/Elections-Voting){:target="_blank"}  
   
+
+### Maynard
+
+Maynard's [2021 annual town election](https://www.townofmaynard-ma.gov/gov/elections/){:target="_blank"} is **Tuesday, May 4, 2021**.  
+
 ---
 
 ### MA Elections 
