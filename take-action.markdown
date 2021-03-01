@@ -32,20 +32,7 @@ if only we're brave enough to be it.\
 
 Spark vital conversations with help from the [The New York Times Climate Hub](https://www.nytclimatehub.com/climatehub/nyt-climate-hub-2021){:target="_blank"}.
 
-PLEASE [email Governor Baker](https://www.mass.gov/forms/email-the-governors-office){:target="_blank"} and urge him to sign the Climate bill this week. The deadline is Feb 7!
-
----
-
-### Plastic: Recycle, Reuse, Refuse
-
-**When:** Feb 25, 2021, 7–8:15 pm
-**Register:**  http://bit.ly/3oSZ0y6
-
-Looking to clear up confusions and make decisions about personal habits and wider actions around plastics? Join us to learn from these experts:
-
-**Recycle:** Ben Harvey, President of E.L. Harvey Waste and Recycling Services, will present what happens to recycling when it leaves the Acton Transfer Station, along with tips for better recycling.\
-**Reuse:** Eric Hudson, Founder & CEO of Preserve, will talk about innovative ways to reuse plastic, and state and national trends in designing for recyclability.\
-**Refuse:** Janet S. Domenitz, Executive Director of MASSPIRG, will explain about zero waste and how to move beyond plastic.
+PLEASE [contact your state legislators](https://malegislature.gov/search/findmylegislator){:target="_blank"} and urge them to reject Baker's amendments to the climate bill act quickly to pass this bill into law! Because the climate bill passed with a supermajority, the legislature likely has enough support to override another veto from the governor. Let's get this bill passed!
 
 ---
 
