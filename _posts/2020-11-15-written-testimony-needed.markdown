@@ -12,10 +12,6 @@ is featured: true
 
 Time is of the essence.
 
-### Transparency is Power
-
-Legislative rules get set at the start of every 2-year legislative session. NOW is our chance to change the broken, anti-democratic rules in the State House. Learn more [HERE](https://actonmass.org/the-campaign/).
-
 ### Climate Action
 
 The Climate Bill was returned to the Senate with added amendments by Governor Baker on Feb 8. It is being reviewed in Senate Committee.
