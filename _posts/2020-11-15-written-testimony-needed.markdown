@@ -40,15 +40,3 @@ Read more [HERE](https://www.miracoalition.org/get-involved/drivers-licenses/){:
 
 [Send an email](https://actionnetwork.org/letters/dff-letter?source=direct_link&){:target="_blank"} to Governor Baker, your Senator and State Rep in support of the passage of the Work and Family Mobility Act.
 
-### ROE Act
-
-* [Thank your lawmakers if they voted to pass this bill and rejected Governor Baker’s anti-choice amendments](https://malegislature.gov/search/findmylegislator){:target="_blank"}.
-
-### Police Reform
-
-[Governor Baker signs police reform bill!](https://www.mass.gov/news/governor-baker-signs-police-reform-legislation){:target="_blank"}.
-
-### Emergency Paid Sick Time
-
-We are sad to report that ***emergency paid sick time didn't even get a vote or a debate.***
-Read more about it [HERE](https://www.progressivemass.com/nov-2020-house-budget-roll-call){:target="_blank"}.
