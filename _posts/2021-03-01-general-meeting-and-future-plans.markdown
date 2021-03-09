@@ -1,6 +1,7 @@
 ---
 title: March General Meeting
 date: 2021-03-01 07:00:00 -05:00
+published: false
 is featured: true
 event-start-date: 2021-03-08 18:30:00 -05:00
 event-end-date: 2021-03-08 20:00:00 -05:00
