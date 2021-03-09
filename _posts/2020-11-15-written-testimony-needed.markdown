@@ -18,13 +18,19 @@ Legislative rules get set at the start of every 2-year legislative session. NOW 
 
 ### Climate Action
 
-This critical bill has once again passed the MA Legislature. Thank you to Speaker Mariano and Senate Leader Spilka for refiling the bill and to the Senators and Representatives who helped pass it (again).
+The Climate Bill was returned to the Senate with added amendments by Governor Baker on Feb 8. It is being reviewed in Senate Committee.
 
-* **PLEASE** [email Governor Baker and urge him to sign the bill this week](https://www.mass.gov/forms/email-the-governors-office){:target="_blank"}. <span style="color:red;">The deadline is February 7.</span>  Click [HERE](https://drive.google.com/file/d/1A9Svn5fwnix_pFe1JC6UmjZH-5bEDG19/view?usp=sharing){:target="_blank"} for more info.
+**PLEASE** ask your legislators to **NOT** water down the climate bill (**Do not accept any amendments that would weaken the bill**). If you have written already, you can write again to inquire about where the bill is and to reiterate the “**do not water down the climate bill**” message.  
+
+[Find your Legislator HERE](https://malegislature.gov/search/findmylegislator){:target="_blank"}. 
+
+And copy:
+* [Karen.Spilka@masenate.gov](mailto:Karen.Spilka@masenate.gov) - Presidate of the Senate  
+* [Mike.Barrett@masenate.gov](mailto:Mike.Barrett@masenate.gov) - Senate Telecommunications, Utilities and Energy (TUE) Chair  
+* [Jeffrey.Roy@mahouse.gov](mailto:Jeffrey.Roy@mahouse.gov) - House Telecommunications, Utilities and Energy (TUE) Chair  
+* [Ronald.Mariano@mahouse.gov](mailto:Ronald.Mariano@mahouse.gov) - Speaker of the House 
 
 * Why is climate change legislation so difficult to accomplish in MA? Read all about it [HERE](https://www.cssn.org/wp-content/uploads/2021/01/MA-CSSN-Report-1.20.2021-Corrected-text.pdf){:target="_blank"}.
-
-* The climate bill (S.9) is sitting on Gov Baker's desk. Well-funded development and realtor lobbyist groups have launched a misinformation campaign about the net zero stretch code blocking the production of urgently needed affordable housing. MA Climate Action Network has developed a [Net Zero Stretch Code Toolkit](https://www.massclimateaction.org/20){:target="_blank"} in response to this misinformation. **PLEASE** [help advocate for sustainable, healthy, and affordable homes in the Commonwealth](https://www.massclimateaction.org/20){:target="_blank"}!
 
 ### Driving Families Forward
 
