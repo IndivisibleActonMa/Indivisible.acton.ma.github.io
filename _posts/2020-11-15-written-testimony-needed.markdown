@@ -14,9 +14,7 @@ Time is of the essence.
 
 ### Climate Action
 
-The Climate Bill was returned to the Senate with added amendments by Governor Baker on Feb 8. It is being reviewed in Senate Committee.
-
-**Thank your legislators*** for not backing down  from the ambitious goals and unwavering commitment to make MA a leader in climate protection and clean energy! 
+**Thank your legislators** for not backing down  from the ambitious goals and unwavering commitment to make MA a leader in climate protection and clean energy! 
 
 [Find your Legislator HERE](https://malegislature.gov/search/findmylegislator){:target="_blank"}. 
 
