@@ -16,7 +16,7 @@ Time is of the essence.
 
 The Climate Bill was returned to the Senate with added amendments by Governor Baker on Feb 8. It is being reviewed in Senate Committee.
 
-**PLEASE** ask your legislators to **NOT** water down the climate bill (**Do not accept any amendments that would weaken the bill**). If you have written already, you can write again to inquire about where the bill is and to reiterate the “**do not water down the climate bill**” message.  
+**Thank your legislators*** for not backing down  from the ambitious goals and unwavering commitment to make MA a leader in climate protection and clean energy! 
 
 [Find your Legislator HERE](https://malegislature.gov/search/findmylegislator){:target="_blank"}. 
 
@@ -26,7 +26,8 @@ And copy:
 * [Jeffrey.Roy@mahouse.gov](mailto:Jeffrey.Roy@mahouse.gov) - House Telecommunications, Utilities and Energy (TUE) Chair  
 * [Ronald.Mariano@mahouse.gov](mailto:Ronald.Mariano@mahouse.gov) - Speaker of the House 
 
-* Why is climate change legislation so difficult to accomplish in MA? Read all about it [HERE](https://www.cssn.org/wp-content/uploads/2021/01/MA-CSSN-Report-1.20.2021-Corrected-text.pdf){:target="_blank"}.
+And ***encourage Governor Baker*** to sign the bill!  
+
 
 ### Driving Families Forward
 
