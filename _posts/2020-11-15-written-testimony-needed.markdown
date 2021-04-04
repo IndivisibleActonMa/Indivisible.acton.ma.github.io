@@ -12,7 +12,7 @@ is featured: true
 
 [What You Need To Know About The New Mass. Climate Law](https://www.wbur.org/earthwhile/2021/03/26/new-mass-climate-law-faq){:target="_blank"}.
 
-[Mass. Revokes Air Permit For Controversial Biomass Facility In Springfield](https://www.wbur.org/earthwhile/2021/04/02/springfield-biomass-permit-revoked){:target="_blank"}
+[Mass. Revokes Air Permit For Controversial Biomass Facility In Springfield](https://www.masslive.com/news/2021/04/massachusetts-department-of-environmental-protection-revokes-approval-for-east-springfield-biomass-plant.html){:target="_blank"}
 
 ### Driving Families Forward
 
