@@ -12,6 +12,8 @@ RSVP-link: " https://www.mobilize.us/indivisibleacton-area/event/380799/"
 
 This month our focus is on democracy.
 
+Please join us for our monthly ***Indivisible Action Forum***!
+
 * HR1/S1 For The People Act- We must pass this by May or republicans will gerrymander the districts for the next decade.
 
 * Special Guest Speakers Jon Hecht and Act On Mass - Introducing the People's House Campaign
