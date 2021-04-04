@@ -8,24 +8,11 @@ is featured: true
 
 ---
 
-### Action in MA -  Contact our legislators, Governor Baker
+### Climate
 
-Time is of the essence.
+[What You Need To Know About The New Mass. Climate Law](https://www.wbur.org/earthwhile/2021/03/26/new-mass-climate-law-faq){:target="_blank"}.
 
-### Climate Action
-
-**Thank your legislators** for not backing down  from the ambitious goals and unwavering commitment to make MA a leader in climate protection and clean energy! 
-
-[Find your Legislator HERE](https://malegislature.gov/search/findmylegislator){:target="_blank"}. 
-
-And copy:
-* [Karen.Spilka@masenate.gov](mailto:Karen.Spilka@masenate.gov) - Presidate of the Senate  
-* [Mike.Barrett@masenate.gov](mailto:Mike.Barrett@masenate.gov) - Senate Telecommunications, Utilities and Energy (TUE) Chair  
-* [Jeffrey.Roy@mahouse.gov](mailto:Jeffrey.Roy@mahouse.gov) - House Telecommunications, Utilities and Energy (TUE) Chair  
-* [Ronald.Mariano@mahouse.gov](mailto:Ronald.Mariano@mahouse.gov) - Speaker of the House 
-
-And ***encourage Governor Baker*** to sign the bill!  
-
+[Mass. Revokes Air Permit For Controversial Biomass Facility In Springfield](https://www.wbur.org/earthwhile/2021/04/02/springfield-biomass-permit-revoked){:target="_blank"}
 
 ### Driving Families Forward
 
@@ -34,4 +21,3 @@ Doesn't it make sense to enable all qualified state residents to apply for a sta
 Read more [HERE](https://www.miracoalition.org/get-involved/drivers-licenses/){:target="_blank"} about how you can take action.
 
 [Send an email](https://actionnetwork.org/letters/dff-letter?source=direct_link&){:target="_blank"} to Governor Baker, your Senator and State Rep in support of the passage of the Work and Family Mobility Act.
-
