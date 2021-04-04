@@ -3,9 +3,9 @@ title: April General Meeting
 date: 2021-03-01 07:00:00 -05:00
 is featured: true
 main-image: "/uploads/unnamed.png"
-event-start-date: 2021-03-08 18:30:00 -05:00
-event-end-date: 2021-03-08 20:00:00 -05:00
-RSVP-link: https://www.mobilize.us/indivisibleacton-area/event/376071/
+event-start-date: 2021-04-12 18:30:00 -04:00
+event-end-date: 2021-04-12 20:00:00 -04:00
+RSVP-link: " https://www.mobilize.us/indivisibleacton-area/event/380799/"
 ---
 
 ### Democracy!!!
