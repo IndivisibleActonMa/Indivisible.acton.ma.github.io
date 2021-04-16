@@ -1,6 +1,7 @@
 ---
 title: April General Meeting
 date: 2021-03-01 07:00:00 -05:00
+published: false
 is featured: true
 main-image: "/uploads/unnamed.png"
 event-start-date: 2021-04-12 18:30:00 -04:00
