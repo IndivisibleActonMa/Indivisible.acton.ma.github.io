@@ -31,23 +31,12 @@ date: 2019-11-22 08:43:00 -05:00
 
 ## Events
 
-### April General Meeting
-
-**Join us Apr 12, 6:30-8p**. [RSVP HERE](https://www.mobilize.us/indivisibleacton-area/event/380799/){:target="_blank"}. 
 
 ### Check out more events below!
 
-*Please note - If you want to opt out of Mobilize America texts and emails, you can unsubscribe at the bottom of any of the emails or stop receiving SMS confirmations by replying "NO" to the text messages.*
+*Please note - We are changing over our event sign up system.  Please note - even if you were registered under the old system for future meetings, you will need to register again in the new system.  IF your Zoom meeting link brings you to a registration page, please register again, then check your email for the meeting link.*
 
 ---
 
-<iframe src="https://www.mobilize.us/embed/indivisibleacton-area/feed/"
-style="border:none;"
-width="100%"
-id="mobilize-feed-iframe">
-</iframe>
+<iframe src="https://calendar.google.com/calendar/embed?height=600&amp;wkst=1&amp;bgcolor=%23ffffff&amp;ctz=America%2FNew_York&amp;src=aW5kaXZpc2libGUuYWN0b24ubWFAZ21haWwuY29t&amp;color=%23039BE5" style="border:solid 1px #777" width="800" height="600" frameborder="0" scrolling="no"></iframe>
 
-<script src="https://cdnjs.cloudflare.com/ajax/libs/iframe-resizer/3.6.1/iframeResizer.min.js">
-</script>
-
-<script>iFrameResize({}, '#mobilize-feed-iframe')</script>
