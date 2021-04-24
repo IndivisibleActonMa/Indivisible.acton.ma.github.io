@@ -2,7 +2,6 @@
 title: May  General Meeting - Take Action Forum
 date: 2021-03-01 07:00:00 -05:00
 is featured: true
-main-image: "/uploads/unnamed.png"
 event-start-date: 2021-05-12 18:15:00 -04:00
 event-end-date: 2021-05-12 20:00:00 -04:00
 RSVP-link: " https://www.mobilize.us/indivisibleacton-area/event/380799/"
