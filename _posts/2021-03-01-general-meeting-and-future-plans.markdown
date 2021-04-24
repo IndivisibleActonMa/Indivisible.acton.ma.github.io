@@ -1,5 +1,5 @@
 ---
-title: April General Meeting
+title: May  General Meeting - Take Action Forum
 date: 2021-03-01 07:00:00 -05:00
 published: false
 is featured: true
@@ -9,16 +9,14 @@ event-end-date: 2021-04-12 20:00:00 -04:00
 RSVP-link: " https://www.mobilize.us/indivisibleacton-area/event/380799/"
 ---
 
-### Democracy!!!
+### 
 
-This month our focus is on democracy.
+Our General Meeting has a *new name:* **Take Action Forum** and a *new day:* 2nd Wednesday of the month.
 
-Please join us for our monthly ***Indivisible Action Forum***!
+Please join us May 12, Wednesday at 6:15p!  
 
-* HR1/S1 For The People Act- We must pass this by May or republicans will gerrymander the districts for the next decade.
+Our special guest is Harvard, MA Chief of Police Ed Denmark.  He will talk to us about the future of policing.  
 
-* Special Guest Speakers Jon Hecht and Act On Mass - Introducing the People's House Campaign
+Learn out this month's highlighted bill from  Indivisible Acton Area's Priority Bill list, and more!  
 
-And of course, we will touch base on the latest issues calling for attention!
-
-[Please join us]( https://www.mobilize.us/indivisibleacton-area/event/380799/){:target="_blank}!
+Register for the May Take Action Forum [HERE](https://actionnetwork.org/events/may-general-meeting-take-action-forum?source=direct_link&){:target="_.
