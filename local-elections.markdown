@@ -51,7 +51,9 @@ Barack Obama, Sep 7, 2018
 
 ### Acton
 
-Acton's 2021 Annual Town Election was held March 30, 2021. Congratulations to Fran Arsenault on her election to the Acton Select Board!  
+Acton's 2021 Annual Town Election was held March 30, 2021. Congratulations to Fran Arsenault on her election to the Acton Select Board! Thank you, Jon Benson for your service.  
+
+There will be a [Special Town Election on Tuesday, June 29, 2021](https://www.acton-ma.gov/598/Elections-Voting){:target="_blank"} to fill one more Select Board seat being vacated by Joan Gardner has resigned effective June 22.  
 
 ### Boxborough
 
