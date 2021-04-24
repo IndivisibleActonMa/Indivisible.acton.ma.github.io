@@ -13,13 +13,13 @@ date: 2021-04-24 08:43:00 -04:00
 
 ### Weekly events!
 
-**Tuesday 1-2p: Touch Base Tuesdays** Let’s get together to update/review/share/plan news and actions people can take to win in 2020 and beyond. Some of the brainstorming ideas discussed here turn into take action activities for the Indivisible Acton Area. [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/270060/){:target="_blank"}.
+**Tuesday 1-2p: Touch Base Tuesdays** Let’s get together to update/review/share/plan news and actions people can take to win in 2020 and beyond. Some of the brainstorming ideas discussed here turn into take action activities for the Indivisible Acton Area. [Register HERE](https://us02web.zoom.us/meeting/register/tZEkde-gpzktG9bKshEM-UVH-RWvS5BagXH7){:target="_blank"}.
 
 **Thursday, 1-2p: Indivisible Truth Brigade** Help combat misinformation - join the Indivisible Truth Brigade.  [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/369343/){:target="_blank"}.
 
-**Friday, 4-5p: Friday 411** Join us for a BYOB Happy Hour Info Session!  [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/365408/){:target="_blank"}.
+**Friday, 4-5p: Friday 411** Join us for a BYOB Happy Hour Info Session!  [Register HERE](https://us02web.zoom.us/meeting/register/tZ0qdOyorDMpHdO4DRjEjUsfu23YxSvEdLlG){:target="_blank"}.
 
-**Saturday 10-11a: Saturdays Coffee and Conversations** The Indivisible Philosophy: Democracy is a lifelong effort and demands full engagement from grassroot efforts like ours. After elected officials are sworn in, it's up to us to keep them accountable. Elections only have consequences when voters (Activists) demand action from and support our elected officials. [Register HERE](https://www.mobilize.us/indivisibleacton-area/event/362056/){:target="_blank"}
+**Saturday 10-11a: Saturdays Coffee and Conversations** The Indivisible Philosophy: Democracy is a lifelong effort and demands full engagement from grassroot efforts like ours. After elected officials are sworn in, it's up to us to keep them accountable. Elections only have consequences when voters (Activists) demand action from and support our elected officials. [Register HERE](https://us02web.zoom.us/meeting/register/tZEkde-gpzktG9bKshEM-UVH-RWvS5BagXH7){:target="_blank"}
 
 * Check our **[CALENDAR](http://www.indivisibleacton.org/calendar.html){:target="_blank"}** for *regularly scheduled events* and other events of interest.
 
