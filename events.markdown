@@ -25,7 +25,7 @@ date: 2021-04-24 08:43:00 -04:00
 
 * [Sign up for our newsletter](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton){:target="_blank"} to find out more ways you can get involved!
 
-* Find us and many other opportunities on [Mobilize America](https://www.mobilize.us/indivisibleacton-area/){:target="_blank"}.
+* Find many other opportunities on [Mobilize America](https://www.mobilize.us/swingleftboston/){:target="_blank"}.
 
 ---
 
