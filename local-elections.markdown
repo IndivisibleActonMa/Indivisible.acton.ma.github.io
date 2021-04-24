@@ -51,24 +51,15 @@ Barack Obama, Sep 7, 2018
 
 ### Acton
 
-Acton's 2021 Annual Town Election is **Tuesday, March 30, 2021**. [Information on how to vote](https://www.acton-ma.gov/598/Elections-Voting){:target="_blank"} is available at the [town website](https://www.acton-ma.gov/598/Elections-Voting){:target="_blank"}.
-
-You can download/print the application here: [https://www.sec.state.ma.us/ele/elepdf/2021-Vote-by-Mail-Application.pdf](https://www.sec.state.ma.us/ele/elepdf/2021-Vote-by-Mail-Application.pdf){:target="_blank"}
-
-Your completed application for a ballot can be returned in multiple ways:
- 
-* Mail or hand deliver: Town Clerk, 472 Main Street, Acton, MA 01720
-* Fax (application only – no ballots): 978-929-6340 (your signature must be visible)
-* Email (application only – no ballots): clerk@acton-ma.gov (your signature must be visible)
- 
-FYI - *Even if you received a mail-in ballot in 2020, you need to apply again for the new year*. The Town Clerk will receive the ballots about 30 days before the election and will start sending them out at that time.
- 
-*Please note that early in-person voting is not available for the Acton Annual Town Election – early voting must be done by Absentee/Vote by Mail ballot. Completed ballots can be mailed or put in the drop box at Acton Town Hall (completed ballots cannot be faxed or emailed).*
+Acton's 2021 Annual Town Election was held March 30, 2021. Congratulations to Fran Arsenault on her election to the Acton Select Board!  
 
 ### Boxborough
 
 Boxborough's [2021 annual town election](https://www.boxborough-ma.gov/DocumentCenter/View/1169/ElectionCalendar2021?bidId=){:target="_blank"} is **Tuesday, May 22**.  [Here is more information about elections and voting.](https://www.boxborough-ma.gov/211/Elections-Voting){:target="_blank"}  
   
+### Littleton  
+
+Littleton's [Annual Town Election](https://www.littletonma.org/home/news/annual-town-election-new-location){:target="_blank"} is on Saturday, May 8, 2022, 8a-8p at the Littleton High School.  
 
 ### Maynard
 
