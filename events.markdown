@@ -34,7 +34,7 @@ date: 2019-11-22 08:43:00 -05:00
 
 ### Check out more events below!
 
-*Please note - We are changing over our event sign up system.  Please note - even if you were registered under the old system for future meetings, you will need to register again in the new system.  IF your Zoom meeting link brings you to a registration page, please register again, then check your email for the meeting link.*
+*Please note - We are changing over our event sign up system.  Please note - even if you were registered under the old system for future meetings, you will need to register again in the new system.  **IF** your Zoom meeting link brings you to a registration page, please register again, then check your email for the meeting link.*
 
 ---
 
