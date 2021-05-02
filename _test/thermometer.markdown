@@ -97,11 +97,7 @@ Members of our Indivisible Guide chapter come from all kinds of backgrounds and 
 **All are welcome.**
 
 -----------------
-
-
-----------
-
-<iframe src="https://www.mobilize.us/embed/indivisibleacton-area/feed/"
+<iframe src="https://www.mobilize.us/embed/swingleft/feed/"
 	style="border:none;"
 	width="100%"
 	id="mobilize-feed-iframe">
@@ -111,3 +107,6 @@ Members of our Indivisible Guide chapter come from all kinds of backgrounds and 
 </script>
 
 <script>iFrameResize({}, '#mobilize-feed-iframe')</script>
+
+----------
+
