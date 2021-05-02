@@ -36,4 +36,13 @@ date: 2021-04-24 08:43:00 -04:00
 
 ---
 
+<iframe src="https://www.mobilize.us/embed/swingleft/feed/"
+	style="border:none;"
+	width="100%"
+	id="mobilize-feed-iframe">
+</iframe>
 
+<script src="https://cdnjs.cloudflare.com/ajax/libs/iframe-resizer/3.6.1/iframeResizer.min.js">
+</script>
+
+<script>iFrameResize({}, '#mobilize-feed-iframe')</script>
