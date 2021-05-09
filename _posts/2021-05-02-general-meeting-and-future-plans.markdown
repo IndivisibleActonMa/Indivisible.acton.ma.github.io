@@ -4,7 +4,7 @@ date: 2021-05-02 07:00:00 -04:00
 is featured: true
 event-start-date: 2021-05-12 18:15:00 -04:00
 event-end-date: 2021-05-12 20:00:00 -04:00
-RSVP-link: " https://www.mobilize.us/indivisibleacton-area/event/380799/"
+RSVP-link: https://actionnetwork.org/events/may-general-meeting-take-action-forum
 ---
 
 ### May Take Action Forum
