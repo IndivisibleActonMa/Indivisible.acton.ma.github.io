@@ -10,15 +10,6 @@ date: 2021-04-24 08:43:00 -04:00
 <span style="font-family:Papyrus; font-size:1.0em;">[John Lewis, July 2020](https://www.nytimes.com/2020/07/30/opinion/john-lewis-civil-rights-america.html){:target="_blank"}</span>
 
 ---
-### May Take Action Forum!
-
-Our special guest is Harvard, MA Chief of Police Ed Denmark. He will talk to us about the future of policing.
-
-Learn out this month’s highlighted bill from Indivisible Acton Area’s Priority Bill list, and more!
-
-Register for the May Take Action Forum [HERE](https://actionnetwork.org/events/may-general-meeting-take-action-forum?source=direct_link&){:target="_blank"}.  
-
----
 
 ### Weekly events!
 
