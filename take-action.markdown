@@ -10,6 +10,12 @@ layout: page
 
 ---
 
+## Saving our Democracy
+
+Please check out our sister website [http://turnpurple2blue.org/](http://turnpurple2blue.org/){:target="_blank"} to find out what you can do to ***Save Our Democracy***!
+
+---
+
 **Start a Climate Conversation**
 
 “*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation
