@@ -1,7 +1,6 @@
 ---
 title: TurnPurple2Blue
 date: 2021-05-20 07:50:00 -04:00
-published: false
 is featured: true
 ---
 
