@@ -10,7 +10,7 @@ layout: page
 
 ---
 
-## Saving our Democracy
+### Saving our Democracy
 
 Please check out our sister website [http://turnpurple2blue.org/](http://turnpurple2blue.org/){:target="_blank"} to find out what you can do to ***Save Our Democracy***!
 
