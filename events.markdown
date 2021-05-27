@@ -23,7 +23,7 @@ date: 2021-04-24 08:43:00 -04:00
 
 **Friday, 5-6p: Friday 411** Join us for a BYOB Happy Hour Info Session!  [Register HERE](https://us02web.zoom.us/meeting/register/tZ0qdOyorDMpHdO4DRjEjUsfu23YxSvEdLlG){:target="_blank"}. ***Please note the new time!***
 
-**Saturday 10-11a: PLEASE NOTE - We are taking a break from Saturdays Coffee and Conversations from this holiday weekend (May 29) till after the July 4th holiday weekend.**  The Indivisible Philosophy: Democracy is a lifelong effort and demands full engagement from grassroot efforts like ours. After elected officials are sworn in, it's up to us to keep them accountable. Elections only have consequences when voters (Activists) demand action from and support our elected officials. [Register HERE](https://us02web.zoom.us/meeting/register/tZEtcuyprjIvH9MWcXv-SSJ8em4B3_whJVXC){:target="_blank"}
+**Saturday 10-11a: PLEASE NOTE - *We are taking a break from Saturdays Coffee and Conversations from this holiday weekend (May 29) till after the July 4th holiday weekend*.**  The Indivisible Philosophy: Democracy is a lifelong effort and demands full engagement from grassroot efforts like ours. After elected officials are sworn in, it's up to us to keep them accountable. Elections only have consequences when voters (Activists) demand action from and support our elected officials. [Register HERE](https://us02web.zoom.us/meeting/register/tZEtcuyprjIvH9MWcXv-SSJ8em4B3_whJVXC){:target="_blank"}
 
 ---
 
