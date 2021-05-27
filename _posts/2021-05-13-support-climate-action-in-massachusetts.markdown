@@ -14,6 +14,8 @@ On Monday, June 21, Acton will hold its annual Town Meeting. The [Acton Climate 
 
 The [Acton Climate Coalition](https://ActonClimateCoalition.org){:target="_blank"} is excited to support this concrete step in lowering Acton's carbon footprint, as one way to participate in the emergency mobilization needed to arrest and reverse climate change.
 
+Read more [HERE](https://drive.google.com/file/d/1xPb-ylXZWNspk5yO7k9JLMOzf-YnkSAh/view?usp=sharing){:target="_blank"}. 
+
 ---
 
 Indivisible Acton-Area is proud to support the work of the [Acton Climate Coalition](https://ActonClimateCoalition.org){:target="_blank"} to move Acton toward a clean energy future!
