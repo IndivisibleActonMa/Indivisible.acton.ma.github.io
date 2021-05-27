@@ -2,7 +2,6 @@
 title: Support Climate Action in Acton!
 date: 2021-05-13 19:20:00 -04:00
 is featured: true
-main-image: "/uploads/Screen%20Shot%202021-05-27%20at%208.06.55%20AM.png"
 ---
 
 To Acton Residents:
@@ -20,3 +19,5 @@ Read more [HERE](https://drive.google.com/file/d/1xPb-ylXZWNspk5yO7k9JLMOzf-YnkS
 ---
 
 Indivisible Acton-Area is proud to support the work of the [Acton Climate Coalition](https://ActonClimateCoalition.org){:target="_blank"} to move Acton toward a clean energy future!
+
+![Screen Shot 2021-05-27 at 8.06.55 AM.png](/uploads/Screen%20Shot%202021-05-27%20at%208.06.55%20AM.png)
