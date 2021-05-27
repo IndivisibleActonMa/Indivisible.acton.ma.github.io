@@ -2,6 +2,7 @@
 title: Support Climate Action in Acton!
 date: 2021-05-13 19:20:00 -04:00
 is featured: true
+main-image: "/uploads/Screen%20Shot%202021-05-27%20at%208.06.55%20AM.png"
 ---
 
 To Acton Residents:
