@@ -11,6 +11,14 @@ date: 2021-04-24 08:43:00 -04:00
 
 ---
 
+### Save the Dates!
+
+**Thursday, Jun 3, 7-8:30p:** [Strengthening Our Democracy -- Ensuring a Democratic Victory in the 2022 Massachusetts Gubernatorial Race](https://drive.google.com/file/d/1nxuHZhyyvSbib1utVvar_b3T0LJFW5LI/view?usp=sharing){:target="_blank"} - [Register HERE](http://tinyurl.com/StateForumsignup){:target="_blank"}. 
+
+**Wednesday, Jun 9, 6:45-8:30p:** [June Take Action Forum - Fighting AAPI Hate/Racism through Education](https://actionnetwork.org/events/june-take-action-forum/){:target="_blank"} 
+
+---
+
 ### Weekly events!
 
 *Please note - We are changing over our event sign up system.  Please note - even if you were registered under the old system for future meetings, you will need to register again in the new system.  **IF** your Zoom meeting link brings you to a registration page, please register again, then check your email for the meeting link.*
