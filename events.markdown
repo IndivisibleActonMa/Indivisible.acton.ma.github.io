@@ -27,7 +27,7 @@ date: 2021-04-24 08:43:00 -04:00
 
 **Tuesday 1-2p: Touch Base Tuesdays** Let’s get together to update/review/share/plan news and actions people can take to win in 2021 and beyond. Some of the brainstorming ideas discussed here turn into take action activities for the Indivisible Acton Area. [Register HERE](https://us02web.zoom.us/meeting/register/tZEkde-gpzktG9bKshEM-UVH-RWvS5BagXH7){:target="_blank"}.
 
-**Thursday, 4-5p: Indivisible Truth Brigade** Help combat misinformation - join the Indivisible Truth Brigade.  [Register HERE](https://us02web.zoom.us/meeting/register/tZErd-Cvpj8jGNWkFLbI8Ytv0KuCirJJV7pd){:target="_blank"}.
+**Thursday, 4-5p: Indivisible Truth Brigade** Help combat misinformation - join the Indivisible Truth Brigade.  [Register HERE](https://us02web.zoom.us/meeting/register/tZErd-Cvpj8jGNWkFLbI8Ytv0KuCirJJV7pd){:target="_blank"}. ***Please note the new time!***
 
 **Friday, 5-6p: Friday 411** Join us for a BYOB Happy Hour Info Session!  [Register HERE](https://us02web.zoom.us/meeting/register/tZ0qdOyorDMpHdO4DRjEjUsfu23YxSvEdLlG){:target="_blank"}. ***Please note the new time!***
 
