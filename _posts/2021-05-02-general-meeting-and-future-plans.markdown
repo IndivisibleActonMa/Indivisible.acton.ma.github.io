@@ -1,21 +1,18 @@
 ---
-title: May  General Meeting - Take Action Forum
+title: June Take Action Forum
 date: 2021-05-02 07:00:00 -04:00
-published: false
 is featured: true
-event-start-date: 2021-05-12 18:15:00 -04:00
-event-end-date: 2021-05-12 20:00:00 -04:00
-RSVP-link: https://actionnetwork.org/events/may-general-meeting-take-action-forum
+event-start-date: 2021-06-09 18:45:00 -04:00
+event-end-date: 2021-06-09 20:30:00 -04:00
+RSVP-link: https://actionnetwork.org/events/june-take-action-forum
 ---
 
-### May Take Action Forum
+### June Take Action Forum - Fighting AAPI Hate/Racism through Education
 
-Our General Meeting has a *new name:* **Take Action Forum** and a *new day:* 2nd Wednesday of the month.
+This month's forum is co-hosted by [COAR (Communities Organizing Against Racism)](https://www.coaraction.org/junejourneys){:target="_blank"}.  We will be having an interactive discussion about what we need to do to end Anti-Asian racism in our society.  
 
-Our special guest is Harvard, MA Chief of Police Ed Denmark. He will talk to us about the future of policing.
+State Representative Erika Uyterhoeven, 27th Middlesex District will talk to us about [House Bill H.584 - An Act relative to anti-racism, equity and justice in education](https://malegislature.gov/Bills/192/H584){:target="_blank"} which she co-authored.
 
-Learn out this month's highlighted bill from Indivisible Acton Area's Priority Bill list, and more!
+Register for the June Take Action Forum [HERE](https://actionnetwork.org/events/june-take-action-forum?source=direct_link&){:target="_blank"}.
 
-Register for the May Take Action Forum [HERE](https://actionnetwork.org/events/may-general-meeting-take-action-forum?source=direct_link&){:target="_blank"}.
-
-Join us at 6:15p to socialize. The meeting will start at 6:30p.
+*Please note* - the June meeting will be starting later than our usual time. Meet and greet will start at 6:45p, and the meeting will start at 7p.
