@@ -13,6 +13,6 @@ This month's forum is co-hosted by [COAR (Communities Organizing Against Racism)
 
 State Representative Erika Uyterhoeven, 27th Middlesex District will talk to us about [House Bill H.584 - An Act relative to anti-racism, equity and justice in education](https://malegislature.gov/Bills/192/H584){:target="_blank"} which she co-authored.
 
-Register for the June Take Action Forum [HERE](https://actionnetwork.org/events/june-take-action-forum){:target="_blank"}.
+Register for the June Take Action Forum [HERE](https://actionnetwork.org/events/june-take-action-forum?source=direct_link&){:target="_blank"}.
 
 *Please note* - the June meeting will be starting later than our usual time. Meet and greet will start at 6:45p, and the meeting will start at 7p.
