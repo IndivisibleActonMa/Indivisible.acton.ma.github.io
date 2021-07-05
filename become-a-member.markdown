@@ -5,7 +5,7 @@ position: 5
 layout: page
 ---
 
-## Get our newsletter!
+## Get involved!
 
 You can sign up to get our awesome bi-weekly newsletter! We welcome your input and involvement! Participate in the ways that feel right for you.  
 
