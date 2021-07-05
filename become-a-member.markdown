@@ -5,10 +5,13 @@ position: 5
 layout: page
 ---
 
-## Being a member
+## Get our newsletter!
 
-As a member, you get our awesome bi-weekly newsletter! We welcome your input and involvement! Participate in the ways that feel right for you.
-We will not share your contact info or send you too many messages. You can unsubscribe any time you want. 
+You can sign up to get our awesome bi-weekly newsletter! We welcome your input and involvement! Participate in the ways that feel right for you.  
+
+*We will not share your contact info or send you too many messages. You can unsubscribe any time you want.*  
+
+---  
 
 Members of our Indivisible Guide chapter are defined by our action. We find solidarity in our desire to protect our democracy and build a society that is more just and equitable for all of us. Each of us explicitly reserves our individual stances on specific issues for other forums as we believe. We adhere to a Code of Conduct that welcomes and respects everybody.  
 
