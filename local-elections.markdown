@@ -47,42 +47,11 @@ Barack Obama, Sep 7, 2018
 
 ---
 
-## Town Elections
-
-### Acton
-
-Acton's 2021 Annual Town Election was held March 30, 2021. Congratulations to Fran Arsenault on her election to the Acton Select Board! Thank you, Jon Benson for your service.  
-
-There will be a [Special Town Election on Tuesday, June 29, 2021](https://www.acton-ma.gov/598/Elections-Voting){:target="_blank"} to fill one more Select Board seat being vacated by Joan Gardner has resigned effective June 22.  
-
-### Boxborough
-
-Boxborough's [2021 annual town election](https://www.boxborough-ma.gov/DocumentCenter/View/1169/ElectionCalendar2021?bidId=){:target="_blank"} is **Tuesday, May 22**.  [Here is more information about elections and voting.](https://www.boxborough-ma.gov/211/Elections-Voting){:target="_blank"}  
-  
-### Littleton  
-
-Littleton's [Annual Town Election](https://www.littletonma.org/home/news/annual-town-election-new-location){:target="_blank"} is on Saturday, May 8, 2022, 8a-8p at the Littleton High School.  
-
-### Maynard
-
-Maynard's [2021 annual town election](https://www.townofmaynard-ma.gov/gov/elections/){:target="_blank"} is **Tuesday, May 4, 2021**.  
-
-### Stow
-
-Stow's [2021 annual town election](https://www.stow-ma.gov/town-meeting-election-information){:target="_blank"} is **Saturday, May 8, 2021**.  
-
-
-### Sudbury
-
-Subury's [2021 annual town election](https://sudbury.ma.us/clerk/2021/01/21/2020-annual-town-election/){:target="_blank"} is **Monday, Mar 29**.  
-
----
-
 ### MA Elections 
 
 Even though elections are over, the Legislature is still in session.  
 
-Join [Act On Mass](https://actonmass.org){:target="_blank"}  to [take action](https://docs.google.com/forms/d/e/1FAIpQLSey2_BeLA-OlvDknGmZ46i3sXJ2Qxu8m9yettQnK5lZ1oW-QA/viewform){:target="_blank"} for transparency in our State House!  
+Please check out our priority bills [HERE](https://docs.google.com/spreadsheets/d/1hVWycjVbyL6-bYayLP04o3N2-o3l9Yh0n9RtEIFKFK0/edit#gid=0).
 
 ---
 
