@@ -11,14 +11,6 @@ date: 2021-04-24 08:43:00 -04:00
 
 ---
 
-### Save the Dates!
-
-**Thursday, Jun 3, 7-8:30p:** Strengthening Our Democracy -- Ensuring a Democratic Victory in the 2022 Massachusetts Gubernatorial Race - Learn more  [HERE](https://drive.google.com/file/d/1nxuHZhyyvSbib1utVvar_b3T0LJFW5LI/view?usp=sharing){:target="_blank"}. [Register HERE](http://tinyurl.com/StateForumsignup){:target="_blank"}.  
-
-**Wednesday, Jun 9, 6:45-8:30p:** [June Take Action Forum - Fighting AAPI Hate/Racism through Education](https://actionnetwork.org/events/june-take-action-forum/){:target="_blank"} 
-
----
-
 ### Weekly events!
 
 *Please note - We are changing over our event sign up system.  Please note - even if you were registered under the old system for future meetings, you will need to register again in the new system.  **IF** your Zoom meeting link brings you to a registration page, please register again, then check your email for the meeting link.*
@@ -31,7 +23,7 @@ date: 2021-04-24 08:43:00 -04:00
 
 **Friday, 5-6p: Friday 411** Join us for a BYOB Happy Hour Info Session!  [Register HERE](https://us02web.zoom.us/meeting/register/tZ0qdOyorDMpHdO4DRjEjUsfu23YxSvEdLlG){:target="_blank"}. ***Please note the new time!***
 
-**Saturday 10-11a: PLEASE NOTE - *We are taking a break from Saturdays Coffee and Conversations from this holiday weekend (May 29) till after the July 4th holiday weekend*.**  The Indivisible Philosophy: Democracy is a lifelong effort and demands full engagement from grassroot efforts like ours. After elected officials are sworn in, it's up to us to keep them accountable. Elections only have consequences when voters (Activists) demand action from and support our elected officials. [Register HERE](https://us02web.zoom.us/meeting/register/tZEtcuyprjIvH9MWcXv-SSJ8em4B3_whJVXC){:target="_blank"}
+**Saturday 10-11a: PLEASE NOTE - *We are taking a break from Saturdays Coffee and Conversations from this holiday weekend (May 29) till end of July*.**  The Indivisible Philosophy: Democracy is a lifelong effort and demands full engagement from grassroot efforts like ours. After elected officials are sworn in, it's up to us to keep them accountable. Elections only have consequences when voters (Activists) demand action from and support our elected officials. [Register HERE](https://us02web.zoom.us/meeting/register/tZEtcuyprjIvH9MWcXv-SSJ8em4B3_whJVXC){:target="_blank"}
 
 ---
 
