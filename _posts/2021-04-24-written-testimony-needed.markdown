@@ -8,10 +8,6 @@ is featured: true
 
 ---
 
-### [The People's House](https://actonmass.org/the-campaign){:target="_blank"}  
-
-In July, the Massachusetts State House will be writing its own rulebook. We know that our State House is not working for us. We don't even know how they vote!  Join [Act on Mass](https://actonmass.org){:target="_blank"} to advocate for a transparent and functioning state house!  
-
 ### Adopt Your Three Bills for Baker to Sign! 
 
 Join our new campaign to advocate for your values by passing more progressive bills! Learn more about it [HERE](https://docs.google.com/document/d/1bpFeqiaX53toFW4IGz428g7Tb9bBQnf0tVZWU_QrvwI/){:target="_blank"}!  
