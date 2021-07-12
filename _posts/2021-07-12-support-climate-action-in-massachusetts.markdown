@@ -16,7 +16,7 @@ RSVP-link: tinyurl.com/actonrenters
 
 * Are you concerned about the environment?
 
-The Acton Climate Coalition and Acton Housing For All are hosting a gathering on Saturday, July 17 from 3-5pm at NARA Park Bath House Pavilion.
+The Acton Climate Coalition and Acton Housing For All are hosting a gathering on Saturday, July 17 from 3-5pm at the NARA Park Bath House Pavilion.
 
 Make your voice heard as we work together to find ways that renters can save energy, reduce utility bills and protect the environment.
 
