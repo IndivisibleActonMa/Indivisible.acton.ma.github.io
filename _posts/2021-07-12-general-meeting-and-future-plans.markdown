@@ -20,5 +20,3 @@ Indivisible Acton Area is providing entrées and beverages (non-alcoholic, beer 
 * Please wear a mask if you are not vaccinated.
 
 RSVP [HERE](https://actionnetwork.org/events/activist-appreciation-indivisible-acton-area-summer-social){:target="_blank"}. 
-
-*Please note* - the June meeting will be starting later than our usual time. Meet and greet will start at 6:45p, and the meeting will start at 7p.
