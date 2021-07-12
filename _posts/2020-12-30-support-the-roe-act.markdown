@@ -31,7 +31,7 @@ If we get enough people we will stand at the TD Bank Branch across from Roche Br
 
 Learn more about the national campaign at this link below  ⬇️ or read further down in this eBlast for the same information.
 
-The week before the three major loans to Enbridge expire, July 12th-18th, activists around the country will organize art actions & protests at the branches, offices and headquarters of the banks funding Line 3.
+[The week before the three major loans to Enbridge expire, July 12th-18th, activists around the country will organize art actions & protests at the branches, offices and headquarters of the banks funding Line 3.](https://actionnetwork.org/event_campaigns/defundline3-arts-visibility-actions){:target="_blank"}  
 
 **Why We Must Act Now**
 
