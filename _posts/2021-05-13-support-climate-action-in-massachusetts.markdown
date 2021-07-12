@@ -1,24 +1,31 @@
 ---
-title: Support Climate Action in Acton!
+title: Attention Acton Renters!
 date: 2021-05-13 19:20:00 -04:00
-published: false
 is featured: true
+event-start-date: 2021-07-17 15:00:00 -04:00
+event-end-date: 2021-07-17 17:00:00 -04:00
+Location: NARA Park - Bath House Pavilion
+RSVP-link: tinyurl.com/actonrenters
 ---
 
-To Acton Residents:
+* Are your utility bills too high?
 
-On Monday, June 21, Acton will hold its annual Town Meeting. The [Acton Climate Coalition](https://ActonClimateCoalition.org){:target="_blank"} whole-heartedly endorses two related warrant articles to help move Acton toward a clean energy future. 
+* Is your apartment too cold in the winter or too hot in the summer?
 
-*Please review the [BuildingWithCleanEnergy.org](http://buildingwithcleanenergy.org/){:target="_blank"} website, which answers many questions about these warrant articles.*   
+* Is your rent too high?
 
-**Strong support** will be needed to pass these articles, so please attend Town Meeting to vote for them. If you are able to attend and vote for the Building with Clean Energy articles, please fill out the pledge form on the [website](https://buildingwithcleanenergy.org/){:target="_blank"}.
+* Are you concerned about the environment?
 
-The [Acton Climate Coalition](https://ActonClimateCoalition.org){:target="_blank"} is excited to support this concrete step in lowering Acton's carbon footprint, as one way to participate in the emergency mobilization needed to arrest and reverse climate change.
+The Acton Climate Coalition and Acton Housing are hosting a gathering on Saturday July 17 from 3-5pm at NARA Park Bath House Pavilion.
 
-Read more [HERE](https://drive.google.com/file/d/1xPb-ylXZWNspk5yO7k9JLMOzf-YnkSAh/view?usp=sharing){:target="_blank"}. 
+Make your voice heard as we work together to find ways that renters can save energy, reduce utility bills and protect the environment.
+
+Don’t miss out! You’ll get free energy-saving light bulbs and the chance to win door prizes. Interpretation, children’s activities and accommodations for accessibility will be provided.
+
+Need a ride? Let us know on the registration form, and we’ll send a free accessible van to pick you up.
+
+Sign up today! To register, fill out the form at [tinyurl.com/actonrenters](tinyurl.com/actonrenters){:target="_blank"} or call or text 978-393-1090.
 
 ---
 
 Indivisible Acton-Area is proud to support the work of the [Acton Climate Coalition](https://ActonClimateCoalition.org){:target="_blank"} to move Acton toward a clean energy future!
-
-![Screen Shot 2021-05-27 at 8.06.55 AM.png](/uploads/Screen%20Shot%202021-05-27%20at%208.06.55%20AM.png)
