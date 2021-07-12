@@ -1,6 +1,6 @@
 ---
 title: Attention Acton Renters!
-date: 2021-05-13 19:20:00 -04:00
+date: 2021-07-12 16:20:00 -04:00
 is featured: true
 event-start-date: 2021-07-17 15:00:00 -04:00
 event-end-date: 2021-07-17 17:00:00 -04:00
@@ -16,7 +16,7 @@ RSVP-link: tinyurl.com/actonrenters
 
 * Are you concerned about the environment?
 
-The Acton Climate Coalition and Acton Housing are hosting a gathering on Saturday July 17 from 3-5pm at NARA Park Bath House Pavilion.
+The Acton Climate Coalition and Acton Housing are hosting a gathering on Saturday, July 17 from 3-5pm at NARA Park Bath House Pavilion.
 
 Make your voice heard as we work together to find ways that renters can save energy, reduce utility bills and protect the environment.
 
