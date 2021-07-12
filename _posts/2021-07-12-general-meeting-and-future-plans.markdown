@@ -4,6 +4,7 @@ date: 2021-07-12 07:00:00 -04:00
 is featured: true
 event-start-date: 2021-07-19 17:30:00 -04:00
 event-end-date: 2021-07-19 20:00:00 -04:00
+Location: NARA Park - Picnic Pavilion, 25 Ledge Rock Way, Acton, MA 01720
 RSVP-link: https://actionnetwork.org/events/activist-appreciation-indivisible-acton-area-summer-social
 ---
 
