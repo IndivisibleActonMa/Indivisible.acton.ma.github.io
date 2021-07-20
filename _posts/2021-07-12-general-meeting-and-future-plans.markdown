@@ -1,6 +1,7 @@
 ---
 title: We Appreciate YOU!
 date: 2021-07-12 07:00:00 -04:00
+published: false
 is featured: true
 event-start-date: 2021-07-19 17:30:00 -04:00
 event-end-date: 2021-07-19 20:00:00 -04:00
