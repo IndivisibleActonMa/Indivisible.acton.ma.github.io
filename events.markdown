@@ -10,10 +10,6 @@ date: 2021-04-24 08:43:00 -04:00
 <span style="font-family:Papyrus; font-size:1.0em;">[John Lewis, July 2020](https://www.nytimes.com/2020/07/30/opinion/john-lewis-civil-rights-america.html){:target="_blank"}</span>
 
 ---
-### We Appreciate YOU!
-
-Hope you can join us on **Monday, Jul 19, 5:30-8p at the Nara Park Picnic Pavilion** for our Activist Appreciation Summer Social! Find out more [HERE](http://www.indivisibleacton.org/2021/07/12/general-meeting-and-future-plans.html){:target="_blank"}.  
-
 
 ### Weekly events!
 
