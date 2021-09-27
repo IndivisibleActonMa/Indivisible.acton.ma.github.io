@@ -28,8 +28,8 @@ For information and special accommodations contact [October2march@gmail.com](mai
 
 CALL or EMAIL SENATOR WARREN and SENATOR MARKEY to pressure them to end the filibuster so the Senate can pass [THE WOMEN’S HEALTH PROTECTION ACT](https://www.congress.gov/bill/116th-congress/senate-bill/1645/text){:target="_blank"}: “To protect a person’s ability to determine whether to continue or end a pregnancy, and to protect a health care provider’s ability to provide abortion services.”
 
-Share your opinion with [Senator Warren](https://www.warren.senate.gov/contact/shareyouropinion){:target="_blank"} or call her at (202) 224-4543
+Share your opinion with Senator Warren [HERE](https://www.warren.senate.gov/contact/shareyouropinion){:target="_blank"} or call her at (202) 224-4543
 
-Share your opinion with [Senator Markey](https://www.markey.senate.gov/contact/share-your-opinion){:target="_blank"}  or call him at (202) 224-2742
+Share your opinion with Senator Markey [HERE](https://www.markey.senate.gov/contact/share-your-opinion){:target="_blank"}  or call him at (202) 224-2742
 
 *Note: This bill passed the House by a vote of 218 -211 last week.*
