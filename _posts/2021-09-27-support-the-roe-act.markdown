@@ -8,9 +8,7 @@ Location: Acton Town Hall, 472 Main St, Acton, MA 01720
 RSVP-link: https://act.womensmarch.com/event/oct-2-2021-march/2518
 ---
 
-[Abortion Rights Rally 2021.10.02.pdf](/uploads/Abortion%20Rights%20Rally%202021.10.02.pdf)
-
-### RALLY Together for Abortion Rights
+### [RALLY Together for Abortion Rights](/uploads/Abortion%20Rights%20Rally%202021.10.02.pdf)
 
 Everyone is welcome! All ages!
 
