@@ -2,6 +2,7 @@
 title: Together For Abortion Rights
 date: 2021-09-27 18:15:00 -04:00
 is featured: true
+main-image: "/uploads/Screen%20Shot%202021-09-29%20at%2012.08.09%20AM.png"
 event-start-date: 2021-10-02 09:30:00 -04:00
 event-end-date: 2021-10-02 11:00:00 -04:00
 Location: Acton Town Hall, 472 Main St, Acton, MA 01720
