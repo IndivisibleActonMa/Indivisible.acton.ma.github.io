@@ -16,7 +16,7 @@ Find out what's going on with climate, racial justice, elections and more!
 
 We are gathering in the Bathhouse Pavilion - rain or shine.
 
-**Paid for by a grant from Indivisible National. 
+*Paid for by a grant from Indivisible National.* 
  
 ---
 
