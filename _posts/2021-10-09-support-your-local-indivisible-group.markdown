@@ -5,7 +5,7 @@ is featured: true
 main-image: "/uploads/I-AA-logo.png"
 event-start-date: 2021-10-04 00:00:00 -04:00
 event-end-date: 2021-10-31 23:59:00 -04:00
-RSVP-link: https://secure.actblue.com/donate/indivisibleama411742968?
+Donation-link: https://secure.actblue.com/donate/indivisibleama411742968?
 ---
 
 ### It's Matching time!
