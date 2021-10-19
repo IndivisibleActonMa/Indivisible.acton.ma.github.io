@@ -1,8 +1,9 @@
 ---
-title: Meet-Ups!!
-date: 2017-06-02 23:08:00 -04:00
-main-image: "/uploads/76203990_2798297560203103_6776563339083382784_n.jpg"
+title: Take Action Forums!!
+date: 2021-10-17 10:00:00 -04:00
+is featured: true
+main-image: "/uploads/IMG_6623.jpg"
 ---
 
-Activism at the Reuben Hoar Library!
+Even in times of COVID, we are finding safe ways to connect with each other take action!
 
