@@ -1,6 +1,7 @@
 ---
 title: "#WomensMarch2021"
 date: 2021-10-02 10:00:00 -04:00
+is featured: true
 main-image: "/uploads/244049840_852551735410005_5123750368435477964_n.jpg"
 layout: media-item
 ---
