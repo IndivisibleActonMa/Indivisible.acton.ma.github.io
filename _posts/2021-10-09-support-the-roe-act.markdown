@@ -1,5 +1,6 @@
 ---
 title: October Take Action Forum
+date: 2021-10-09 15:15:00 -04:00
 is featured: true
 main-image: "/uploads/IMG_6643_jpg.jpg"
 Location: Nara Park, Bathhouse Pavilion, 25 Ledge Rock Way, Acton, MA 01720
