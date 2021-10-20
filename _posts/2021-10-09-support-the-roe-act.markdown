@@ -10,14 +10,8 @@ RSVP-link: https://actionnetwork.org/events/indivisible-acton-area-october-take-
 
 ###  October Take Action Forum - The Sum Of Us
 
-Join us for Brunch and fun activities!
+Thank you so much for joining us!  Hope that you had a chance to talk with lots of different activists and learn about new causes.  We are stronger together!
 
-Find out what's going on with climate, racial justice, elections and more!
-
-We are gathering in the Bathhouse Pavilion - rain or shine.
-
-*Paid for by a grant from Indivisible National.* 
- 
+![IMG_6643_jpg.jpg](/uploads/IMG_6643_jpg.jpg)
 ---
 
-*All attendees must have proof of vaccination.*
