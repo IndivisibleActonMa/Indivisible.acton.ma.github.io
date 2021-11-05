@@ -5,7 +5,6 @@ is featured: true
 main-image: "/uploads/IMG_6643_jpg.jpg"
 event-start-date: 2021-11-10 18:45:00 -05:00
 event-end-date: 2021-11-10 20:30:00 -05:00
-Location: Nara Park, Bathhouse Pavilion, 25 Ledge Rock Way, Acton, MA 01720
 RSVP-link: https://actionnetwork.org/events/indivisible-acton-area-take-action-forum-climate-change-and-economic-tools-for-intervention?source=direct_link&
 ---
 
