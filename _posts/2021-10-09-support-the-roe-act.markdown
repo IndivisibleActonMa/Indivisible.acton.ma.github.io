@@ -1,6 +1,7 @@
 ---
 title: November Take Action Forum
 date: 2021-10-09 15:15:00 -04:00
+published: false
 is featured: true
 main-image: "/uploads/IMG_6643_jpg.jpg"
 event-start-date: 2021-11-10 18:45:00 -05:00
