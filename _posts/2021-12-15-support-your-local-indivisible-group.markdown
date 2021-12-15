@@ -6,8 +6,8 @@ main-image: "/uploads/I-AA-logo.png"
 RSVP-link: https://secure.actblue.com/donate/indivisibleama411742968?
 ---
 
-### It's Matching time!
-Use [this link](https://secure.actblue.com/donate/indivisibleama411742968?){:target="_blank"} to donate to Indivisible Acton Area.
+### Donate to Democracy
+Use [THIS LINK](https://secure.actblue.com/donate/indivisibleama411742968?){:target="_blank"} to donate to Indivisible Acton Area.
 
 This past year we have co-sponsored:
 
