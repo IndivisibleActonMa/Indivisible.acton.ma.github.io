@@ -11,7 +11,7 @@ Use [THIS LINK](https://secure.actblue.com/donate/indivisibleama411742968?){:tar
 
 This past year we have co-sponsored:
 
-* Rallies for Voting Rights and Abortion Justice
+* Rallies for Voting Rights, Abortion Justice, Climate Action
 * Forums on MA legislation
 * Monthly Take Action Forums
 * twice a week gatherings both in person and on zoom.
