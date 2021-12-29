@@ -97,7 +97,10 @@ Members of our Indivisible Guide chapter come from all kinds of backgrounds and 
 **All are welcome.**
 
 ----------------
-<iframe src="https://calendar.google.com/calendar/?cid=webcal%3A%2F%2Fnews-magic.org%2F%3Fpost_type%3Dtribe_events%26tribe-bar-date%3D2021-12-29%26ical%3D1&pli=1" style="border: 0" width="800" height="600" frameborder="0" scrolling="no"></iframe>
+
+### HERE's the CALENDAR
+
+<iframe src="https://calendar.google.com/calendar/u/0/r/month?cid=webcal%3A%2F%2Fnews-magic.org%2F%3Fpost_type%3Dtribe_events%26tribe-bar-date%3D2021-12-29%26ical%3D1&pli=1" style="border: 0" width="800" height="600" frameborder="0" scrolling="no"></iframe>
 
 -----------------
 <iframe src="https://www.mobilize.us/embed/swingleft/feed/"
