@@ -14,7 +14,7 @@ Please join us on **Thursday, January 6, 2022**. You will find some of us in Con
 
 * [RSVP for Concord HERE,4-6p](https://actionnetwork.org/events/standout-for-democracy?source=ind_acton&link_id=5&can_id=e6d2acc4caefcf56370045422ce4bbb6&email_referrer=email_1395122&email_subject=indivisible-acton-area-dec-28-newsletter){:target="_blank"} 
 
-* [RSVP for Framingham HERE, 7-8p](https://www.mobilize.us/democracyvigils/event/430756/?link_id=6&can_id=e6d2acc4caefcf56370045422ce4bbb6&source=email-indivisible-acton-area-dec-28-newsletter&email_referrer=email_1395122&email_subject=indivisible-acton-area-dec-28-newsletter){:target="_blank"}
+* [RSVP for Framingham HERE, 6-7p](https://www.mobilize.us/democracyvigils/event/430756/?link_id=6&can_id=e6d2acc4caefcf56370045422ce4bbb6&source=email-indivisible-acton-area-dec-28-newsletter&email_referrer=email_1395122&email_subject=indivisible-acton-area-dec-28-newsletter){:target="_blank"}
 
 * You can find other events to attend [HERE](https://www.mobilize.us/dfadcoalition/?date=2022-01-06T05%3A00%3A00.000Z&org_ids=7229){:target="_blank"}. 
 
