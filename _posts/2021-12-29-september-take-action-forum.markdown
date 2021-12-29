@@ -2,6 +2,8 @@
 title: January 6 Vigil for Democracy
 date: 2021-12-29 14:49:00 -05:00
 is featured: true
+event-start-date: 2022-01-06 00:00:00 -05:00
+event-end-date: 2022-01-06 23:59:00 -05:00
 Location: Various locations and times
 ---
 
