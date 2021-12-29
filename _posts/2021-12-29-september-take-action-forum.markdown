@@ -12,8 +12,11 @@ Join with Reclaim Our Democracy at various locations to protest the insurrection
 
 Bring sturdy placards (lit by flashlights, clip-on lights, candles or cell phones), vigorous voices, and your friends and neighbors. **We cannot/dare not remain silent.**
 
-You will find some of us in Concord at Monument Square. [RSVP for Concord HERE](https://actionnetwork.org/events/standout-for-democracy?source=ind_acton&link_id=5&can_id=e6d2acc4caefcf56370045422ce4bbb6&email_referrer=email_1395122&email_subject=indivisible-acton-area-dec-28-newsletter){:target="_blank"} or in downtown Framingham [RSVP for Framingham HERE](https://www.mobilize.us/democracyvigils/event/430756/?link_id=6&can_id=e6d2acc4caefcf56370045422ce4bbb6&source=email-indivisible-acton-area-dec-28-newsletter&email_referrer=email_1395122&email_subject=indivisible-acton-area-dec-28-newsletter){:target="_blank"}
+You will find some of us in Concord at Monument Square or in downtown Framingham.
 
-You can find other events to attend [HERE](https://www.mobilize.us/dfadcoalition/?date=2022-01-06T05%3A00%3A00.000Z&org_ids=7229){:target="_blank"}:
+* [RSVP for Concord HERE](https://actionnetwork.org/events/standout-for-democracy?source=ind_acton&link_id=5&can_id=e6d2acc4caefcf56370045422ce4bbb6&email_referrer=email_1395122&email_subject=indivisible-acton-area-dec-28-newsletter){:target="_blank"} 
 
-[https://www.mobilize.us/dfadcoalition/?date=2022-01-06T05%3A00%3A00.000Z&org_ids=7229](https://www.mobilize.us/dfadcoalition/?date=2022-01-06T05%3A00%3A00.000Z&org_ids=7229){:target="_blank"}
+* [RSVP for Framingham HERE](https://www.mobilize.us/democracyvigils/event/430756/?link_id=6&can_id=e6d2acc4caefcf56370045422ce4bbb6&source=email-indivisible-acton-area-dec-28-newsletter&email_referrer=email_1395122&email_subject=indivisible-acton-area-dec-28-newsletter){:target="_blank"}
+
+* You can find other events to attend [HERE](https://www.mobilize.us/dfadcoalition/?date=2022-01-06T05%3A00%3A00.000Z&org_ids=7229){:target="_blank"}. 
+
