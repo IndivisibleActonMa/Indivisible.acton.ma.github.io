@@ -2,8 +2,8 @@
 title: January 6 Vigil for Democracy
 date: 2021-12-29 14:49:00 -05:00
 is featured: true
-event-start-date: 2022-01-06 16:00:00 -05:00
-event-end-date: 2022-01-06 18:00:00 -05:00
+event-start-date: 0006-01-01 00:03:58 -04:56
+event-end-date: 0006-01-01 00:03:58 -04:56
 ---
 
 One year ago militants attacked our Capitol and tried to overturn the results of the 2020 election. Since then we have been subjected to the *“Big Lie”* that the election was stolen, state legislators have passed one anti-voter bill after another, local election officials have faced death threats, and the potential for future election sabotage has only grown.
