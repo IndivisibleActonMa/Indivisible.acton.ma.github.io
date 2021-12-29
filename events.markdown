@@ -37,7 +37,7 @@ date: 2021-04-24 08:43:00 -04:00
 
 ---  
 
-<iframe src="https://www.mobilize.us/embed/swingbluealliance/?is_high_priority=true"
+<iframe src="https://www.mobilize.us/embed/swingbluealliance/"
 style="border:none;"
 width="100%"
 id="mobilize-feed-iframe">
