@@ -10,7 +10,7 @@ Join with Reclaim Our Democracy at various locations to protest the insurrection
 
 Bring sturdy placards (lit by flashlights, clip-on lights, candles or cell phones), vigorous voices, and your friends and neighbors. **We cannot/dare not remain silent.**
 
-Please join us on **Thursday, January 6, 2022**. You will find some of us in Concord at Monument Square or in downtown Framingham.
+Please join us on **Thursday, January 6, 2022**. You will find some of us in Worcester at Institute Park, Concord at Monument Square or in downtown Framingham.
 
 * [RSVP for Concord HERE, 4-6p](https://actionnetwork.org/events/standout-for-democracy?source=ind_acton&link_id=5&can_id=e6d2acc4caefcf56370045422ce4bbb6&email_referrer=email_1395122&email_subject=indivisible-acton-area-dec-28-newsletter){:target="_blank"} 
 
