@@ -1,7 +1,7 @@
 ---
 title: Attend an MLK Voting Rights Event
 date: 2022-01-15 17:18:00 -05:00
-is featured: false
+is featured: true
 ---
 
 Hello Activists!
