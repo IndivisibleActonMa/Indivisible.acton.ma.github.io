@@ -10,7 +10,7 @@ Catch up with recent Voting Rights happenings [HERE](https://docs.google.com/doc
 
 Some local events:
 
-**Sunday, January 16, 4 PM- 5 PM Boston.** Rep Katherine Clark has confirmed that she will speak at the MLK Event at Faneuil Hall on Sunday! [RSVP here](https://www.mobilize.us/dfadcoalition/event/436861/?link_id=6&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-indivisible-acton-area-jan-14-weekend-update-plus-listen-read-watch&email_referrer=email_1409827&email_subject=indivisible-acton-area-jan-14-weekend-update-plus-listen-read-watch){:target="_blank"}**
+**Sunday, January 16, 4 PM- 5 PM Boston. Rep Katherine Clark has confirmed that she will speak at the MLK Event at Faneuil Hall on Sunday! [RSVP here](https://www.mobilize.us/dfadcoalition/event/436861/?link_id=6&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-indivisible-acton-area-jan-14-weekend-update-plus-listen-read-watch&email_referrer=email_1409827&email_subject=indivisible-acton-area-jan-14-weekend-update-plus-listen-read-watch){:target="_blank"}**
 
 **Monday, January 17, 12 Noon to 4 PM, Framingham, in person [RSVP here](https://www.mobilize.us/dfadcoalition/event/436162/?link_id=7&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-indivisible-acton-area-jan-14-weekend-update-plus-listen-read-watch&email_referrer=email_1409827&email_subject=indivisible-acton-area-jan-14-weekend-update-plus-listen-read-watch){:target="_blank"}**. Drop in anytime. Bring your sign! The organizers will have Masks, and Rapid Test Kits. They will also register voters.
 
