@@ -43,8 +43,6 @@ var x = setInterval(function() {
 },500);
 </script>
 
-Barack Obama, Sep 7, 2018  
-
 ---
 
 ### MA Elections 
