@@ -62,8 +62,13 @@ Town and School board offices are the latest targets for radical republicans, ev
 Send your town's election information to: [Christine@IndivisibleActon.org](mailto:christine@indivisibleacton.org). 
 
 * [Concord Elections](https://docs.google.com/document/d/1tDNgiRe2K50jDKvr9kig-WE0JFc059DIOtr5c-c_QCc/){:target="_blank"} 
+ -- CONCORD Special Town Election - Thursday, February 3, 2022  
+ -- CONCORD Annual Town Election - Tuesday, April 12, 2022. 
+
 
 * [Acton Elections](https://docs.google.com/document/d/1sqsYjA1W5MGY7k-npWxIopuzs_ugVJq3DWNI1jLaAs0/){:target="_blank"}  
+ -- ACTON Annual Town Election - Tuesday, March 29, 2022
+
 
 ---  
 
