@@ -10,7 +10,7 @@ date: 2019-12-30 22:56:00 -05:00
 
 <script>
 // Set the date we're counting down to
-var countDownDate = new Date("Jan 20 2021 12:00");
+var countDownDate = new Date("Nov 8 2022 12:00");
 
 // Update the count down every 1 second
 var x = setInterval(function() {
@@ -31,8 +31,8 @@ var x = setInterval(function() {
   var test1 = document.getElementById("demo");
   test1.style.font = "italic bold 30px arial,serif"; 
   //test1.style.textAlign = "center";
-//test1.innerHTML = days + " days left until Nov 3, 2020!";
-  test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s left until 12p Jan 20, 2021!";
+//test1.innerHTML = days + " days left until Nov 8, 2022!";
+  test1.innerHTML = days + "d " + hours + "h " + minutes + "m " + seconds + "s left until 12p Nov 8, 2022!";
   
   
   // If the count down is over, write some text 
@@ -51,9 +51,21 @@ Barack Obama, Sep 7, 2018
 
 Even though elections are over, the Legislature is still in session.  
 
-Please check out our priority bills [HERE](https://docs.google.com/spreadsheets/d/1hVWycjVbyL6-bYayLP04o3N2-o3l9Yh0n9RtEIFKFK0/edit#gid=0).
+Please check out our priority bills [HERE](https://docs.google.com/spreadsheets/d/1hVWycjVbyL6-bYayLP04o3N2-o3l9Yh0n9RtEIFKFK0/edit#gid=0){:target="_blank"} 
 
 ---
+
+### Local Elections
+
+Town and School board offices are the latest targets for radical republicans, even here in Massachusetts. **We can't cede this ground** - please think about running for a local office!  
+
+Send your town's election information to: [Christine@IndivisibleActon.org](mailto:christine@indivisibleacton.org). 
+
+* [Concord Elections](https://docs.google.com/document/d/1tDNgiRe2K50jDKvr9kig-WE0JFc059DIOtr5c-c_QCc/){:target="_blank"} 
+
+* [Acton Elections](https://docs.google.com/document/d/1sqsYjA1W5MGY7k-npWxIopuzs_ugVJq3DWNI1jLaAs0/){:target="_blank"}  
+
+---  
 
 ### Candidate and Campaign Policy and Etiquette
 
