@@ -1,0 +1,23 @@
+---
+title: February Take Action Forum
+date: 2022-02-02 03:15:00 -05:00
+published: false
+is featured: true
+event-start-date: 2022-02-09 18:45:00 -05:00
+event-end-date: 2022-02-09 20:30:00 -05:00
+RSVP-link: https://actionnetwork.org/events/indivisible-acton-area-take-action-forum-turn-your-anger-into-action
+---
+
+### Let's get energized!!
+
+Is your email overflowing with donation pleas?
+
+Are you frustrated with the media’s repetitive horse-race coverage?
+
+Are you or your friends suffering from complacency or burnout?
+
+Are **YOU** ready to take action, but don’t know where to start?
+
+Join Indivisible Acton Area's Take Action Forum to get fired up and ready to go!
+
+**We have 38 weeks to WIN 2022!**
