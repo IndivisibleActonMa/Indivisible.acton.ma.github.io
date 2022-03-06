@@ -1,7 +1,6 @@
 ---
 title: March Take Action Forum
 date: 2022-02-02 03:15:00 -05:00
-published: false
 is featured: true
 event-start-date: 2022-03-09 18:45:00 -05:00
 event-end-date: 2022-02-09 20:00:00 -05:00
@@ -12,7 +11,7 @@ RSVP-link: https://actionnetwork.org/events/indivisible-acton-area-take-action-f
 
 Join this month's Take Action Forum to talk about Democracy and what we need to do to protect it at home!
 
-* Special Fundraiser for [Kids In Need of Defense KIND's Ukraine Aid](https://supportkind.org). *The Steering Committee will donate $5 for each TAF attendee.*  
+* Special Fundraiser for [Kids In Need of Defense KIND's Ukraine Aid](https://supportkind.org){:target="_blank"}. *The Steering Committee will donate $5 for each TAF attendee.*  
 
 * It's time to collect signatures for the candidate of your choice - learn how to help your candidate!  
 
