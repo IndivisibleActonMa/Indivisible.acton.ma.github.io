@@ -8,4 +8,4 @@ is featured: true
 
 <span style="font-family:Papyrus; font-size:1.5em; color:purple;">Check out our [sister website](http://turnpurple2blue.org){:target="_blank"} and find out how you can help remake our democracy into one that works for the people!!</span>  
 
-<span style="font-family:Papyrus; font-size:1.5em; color:blue;">[http://turnpurple2blue.org/](http://turnpurple2blue.org/){:target="_blank"}</span> 
+<span style="font-family:Papyrus; font-size:1.5em; color:blue;">[https://turnpurple2blue.org/](https://turnpurple2blue.org/){:target="_blank"}</span> 
