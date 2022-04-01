@@ -16,9 +16,9 @@ This past year we have co-sponsored:
 * Monthly Take Action Forums
 * twice a week gatherings both in person and on zoom.
 
-We have a new election website: [http://TurnPurple2Blue.org](http://TurnPurple2Blue.org){:target="_blank"}  
+We have a new election website: [https://TurnPurple2Blue.org](https://TurnPurple2Blue.org){:target="_blank"}  
 
-Help us be ready for the Midterm push!
+*Let's get ready for the Midterm push and save our democracy!*
 
 No amount is too small!!  We have work to do!!
 
