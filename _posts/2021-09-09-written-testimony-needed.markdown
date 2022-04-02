@@ -22,7 +22,7 @@ Join our new campaign to advocate for your values by passing more progressive bi
 
 ### Driving Families Forward
 
-*UPDATE* The House passed [H.4461, The Work & Family Mobility Act](https://malegislature.gov/Bills/192/H4461){:target="_blank"}, driving us one step closer to ensuring safe and secure roads for everyone in our Commonwealth. The bill is onto the Senate!
+*UPDATE:* The House passed [H.4461, The Work & Family Mobility Act](https://malegislature.gov/Bills/192/H4461){:target="_blank"}, driving us one step closer to ensuring safe and secure roads for everyone in our Commonwealth. The bill is onto the Senate!
 
 Doesn't it make sense to enable all qualified state residents to apply for a standard state driver’s license, regardless of immigrant status, while keeping our Commonwealth in full compliance with REAL ID requirements?  It has been endorsed by over 230 organizations, including the Mass. Major City Chiefs of Police, as well as dozens of businesses.
 
