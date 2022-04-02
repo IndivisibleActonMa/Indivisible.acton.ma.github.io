@@ -14,7 +14,7 @@ We are so happy to endorse [Coalition for Anti-Racism, Equity, and Justice in Ed
 
 ### Our democracy is on the line
 
-Checkout this great [toolkit for democracy](https://docs.google.com/document/d/1ze_Vt3yGslRqDf-TAWsn80SoytDPgNn1aVRuF4jZvI4/edit){:target="_blank"} put together by our friends at [Indivisible Mass Coalition](https://indivisible-ma.org){:target="_blank"}!
+Check out this great [toolkit for democracy](https://docs.google.com/document/d/1ze_Vt3yGslRqDf-TAWsn80SoytDPgNn1aVRuF4jZvI4/edit){:target="_blank"} put together by our friends at [Indivisible Mass Coalition](https://indivisible-ma.org){:target="_blank"}!
 
 ### Adopt Your Three Bills for Baker to Sign!
 
