@@ -2,7 +2,6 @@
 title: April Take Action Forum
 date: 2022-04-02 15:15:00 -04:00
 is featured: true
-main-image: "/uploads/Screen%20Shot%202022-04-02%20at%205.59.05%20PM.png"
 event-start-date: 2022-04-13 18:45:00 -04:00
 event-end-date: 2022-04-13 20:00:00 -04:00
 RSVP-link: https://bit.ly/IAATAF422
