@@ -16,6 +16,8 @@ We are so happy to endorse [Coalition for Anti-Racism, Equity, and Justice in Ed
 
 [READ](https://turnpurple2blue.org/2022/03/31/autocracy-in-massachusetts/){:target="_blank"} this great write-up about [autocracy in Massachusetts](https://turnpurple2blue.org/2022/03/31/autocracy-in-massachusetts/){:target="_blank"}.  
 
+[WATCH](https://youtu.be/85cTbsE2LuU?t=519) this presentation by Author David Pepper.  
+
 Check out this great [toolkit for democracy](https://docs.google.com/document/d/1ze_Vt3yGslRqDf-TAWsn80SoytDPgNn1aVRuF4jZvI4/edit){:target="_blank"} put together by our friends at [Indivisible Mass Coalition](https://indivisible-ma.org){:target="_blank"}!
 
 ### Adopt Your Three Bills for Baker to Sign!
