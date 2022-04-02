@@ -12,7 +12,7 @@ is featured: true
 
 We are so happy to endorse [Coalition for Anti-Racism, Equity, and Justice in Education](https://www.care4eduequity.org/){:target="_blank}. Although the bill was favorably reported out of the Joint Committee on Education as an attachment to the Educator Diversity bill, the attachment was made without any accompanying language. Stay tuned for future action!  
 
-### Democracy is on the line
+### Our democracy is on the line
 
 Checkout this great [toolkit for democracy[(https://docs.google.com/document/d/1ze_Vt3yGslRqDf-TAWsn80SoytDPgNn1aVRuF4jZvI4/edit){:target="_blank"} put together by our friends at [Indivisible Mass Coalition](https://indivisible-ma.org){:target="_blank"}!
 
