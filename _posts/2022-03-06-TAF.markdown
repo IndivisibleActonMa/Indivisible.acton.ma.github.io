@@ -1,5 +1,5 @@
 ---
-title: March Take Action Forum
+title: April Take Action Forum
 date: 2022-03-06 03:15:00 -05:00
 published: false
 is featured: true
@@ -8,7 +8,7 @@ event-end-date: 2022-02-09 20:00:00 -05:00
 RSVP-link: https://actionnetwork.org/events/indivisible-acton-area-take-action-forum?source=direct_link&
 ---
 
-### Marching to the Ukrainian Beat: *Let's all stand up for Democracy*
+### *Let's Talk Elections!*
 
 Join this month's Take Action Forum to talk about Democracy and what we need to do to protect it at home!
 
