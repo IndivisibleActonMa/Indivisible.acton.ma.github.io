@@ -1,6 +1,6 @@
 ---
 title: Support Your Local Indivisible Group!!
-date: 2021-12-15 07:33:00 -05:00
+date: 2021-04-02 07:33:00 -04:00
 is featured: true
 main-image: "/uploads/I-AA-logo.png"
 RSVP-link: https://secure.actblue.com/donate/indivisibleama411742968?
