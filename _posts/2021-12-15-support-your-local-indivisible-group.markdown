@@ -7,6 +7,9 @@ RSVP-link: https://secure.actblue.com/donate/indivisibleama411742968?
 ---
 
 ### Donate to Democracy
+
+From April 1 through May 31, all of the funds our group raises will be matched by [Indivisible National](https://indivisible.org){:target="_blank"} dollar for dollar, up to a maximum of $500 per group! 
+
 Use [THIS LINK](https://secure.actblue.com/donate/indivisibleama411742968?){:target="_blank"} to donate to Indivisible Acton Area.
 
 This past year we have co-sponsored:
