@@ -1,13 +1,24 @@
 ---
 title: April Take Action Forum
 date: 2022-04-02 15:15:00 -04:00
+published: false
 is featured: true
 event-start-date: 2022-04-13 18:45:00 -04:00
 event-end-date: 2022-04-13 20:00:00 -04:00
 RSVP-link: https://bit.ly/IAATAF422
 ---
 
-### Don't miss this month's Take Action Forum!
+### Let's Talk Elections!
+
+Zoom in to hear from our friends at Progressive Mass.
+
+* What are the responsibilities of the Secretary of State?
+
+* What does it mean to be the legal officer of the state?
+
+* What does it mean to the Chief Accountability Officer of the state?
+
+Find out why these elected officials are so important!
 
 
-![April Take Action Forum Let's Talk Elections!.png](/uploads/April%20Take%20Action%20Forum%20Let's%20Talk%20Elections!.png)
+
