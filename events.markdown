@@ -21,7 +21,7 @@ date: 2021-04-24 08:43:00 -04:00
 
 **Thursday, 4-5p: Indivisible Truth Brigade** Help combat misinformation - join the Indivisible Truth Brigade.  [Register HERE](https://us02web.zoom.us/meeting/register/tZErd-Cvpj8jGNWkFLbI8Ytv0KuCirJJV7pd){:target="_blank"}. ***Please note the new time!***
 
-**Friday, 5-6p: Friday 411** Join us for a BYOB Happy Hour Info Session!  [Register HERE](https://us02web.zoom.us/meeting/register/tZ0qdOyorDMpHdO4DRjEjUsfu23YxSvEdLlG){:target="_blank"}. ***Please note the new time!***
+**Friday, 4-6p: Friday 411** Spring has Sprung!  We're moving off zoom to in person! First in person event will be May 6th, 4-6 PM-Kimball’s ice cream and restaurant, 400 Littleton RD, Westford, MA. There is outside covered picnic tables. Get dinner or just ice cream. 
 
 **Saturday 10-11a: PLEASE NOTE - *We are taking a break from Saturdays Coffee and Conversations*.**  The Indivisible Philosophy: Democracy is a lifelong effort and demands full engagement from grassroot efforts like ours. After elected officials are sworn in, it's up to us to keep them accountable. Elections only have consequences when voters (Activists) demand action from and support our elected officials. [Register HERE](https://us02web.zoom.us/meeting/register/tZEtcuyprjIvH9MWcXv-SSJ8em4B3_whJVXC){:target="_blank"}
 
