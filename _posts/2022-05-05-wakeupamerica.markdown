@@ -2,9 +2,6 @@
 title: "#WakeUpAmerica"
 date: 2022-05-05 05:18:00 -04:00
 is featured: true
-event-start-date: 2022-03-29 19:00:00 -04:00
-event-end-date: 2022-03-29 20:00:00 -04:00
-RSVP-link: https://us02web.zoom.us/meeting/register/tZAkcOCgrDIjE9S46pn8nzWLtySCAHOpjdiY
 ---
 
 ## WE ARE THE SLEEPING GIANT. 
