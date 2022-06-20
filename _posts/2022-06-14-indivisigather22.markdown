@@ -11,4 +11,5 @@ RSVP-link: bit.ly/IMC6-26
 
 📣 Re-charge, re-energize, and build momentum for November! 
 
-👋 Join Indivisible Mass Coalition and Indivisible co-founder Ezra Levin for the inaugural Indivisi-Gather! 
+👋 Join Indivisible Mass Coalition and Indivisible co-founder and co-executive director [Ezra Levin](https://fb.watch/dMLMH1L8W2/){:target="_blank"} for the inaugural IndivisiGather! 
+
