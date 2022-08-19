@@ -1,5 +1,6 @@
 ---
 title: Take Action!
+date: 2022-08-19 11:04:00 -04:00
 is featured: true
 main-image: "/uploads/IMG_9264.jpg"
 event-start-date: 2022-08-19 00:00:00 -04:00
