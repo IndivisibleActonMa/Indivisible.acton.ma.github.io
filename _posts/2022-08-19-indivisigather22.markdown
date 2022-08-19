@@ -14,3 +14,4 @@ RSVP-link: https://t.co/4IeH2x61ab
 
 🙏🏼 Any amount appreciated!
 
+[Contributions accepted until Aug 31](https://t.co/4IeH2x61ab){:target="_blank"}. 
