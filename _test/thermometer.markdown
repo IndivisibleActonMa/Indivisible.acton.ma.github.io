@@ -6,6 +6,10 @@ layout: page
 
 This is a test!
 
+<a class="twitter-timeline" data-width="400" data-height="400" href="https://twitter.com/IndActonMa?ref_src=twsrc%5Etfw">Tweets by IndActonMa</a> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+-----
+
 ---
 <p id="demo">
 </p>
@@ -46,12 +50,6 @@ test1.innerHTML = days + "d " + hours + "h left until Nov 8, 2022!";
 </script>
 
 ---
-
-<a class="twitter-timeline" data-width="400" data-height="400" href="https://twitter.com/IndActonMa?ref_src=twsrc%5Etfw">Tweets by IndActonMa</a> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
-
------
-
-
 
 [<img src="https://secure.actblue.com/goals/70268.png?size=large&style=dark"/>](https://secure.actblue.com/donate/indivisibleama411742968?refcode=thermometer){:target="_blank"} to donate.
 
