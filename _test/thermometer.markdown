@@ -47,7 +47,7 @@ test1.innerHTML = days + "d " + hours + "h left until Nov 8, 2022!";
 
 ---
 
-<a class="twitter-timeline" href="https://twitter.com/IndActonMa?ref_src=twsrc%5Etfw">Tweets by IndActonMa</a> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+<a class="twitter-timeline" data-width="400" data-height="400" href="https://twitter.com/IndActonMa?ref_src=twsrc%5Etfw">Tweets by IndActonMa</a> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
 -----
 
