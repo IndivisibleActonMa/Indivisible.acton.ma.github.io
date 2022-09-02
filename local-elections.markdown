@@ -60,7 +60,7 @@ Election day is TUESDAY, Sep 6.
 
 Read Progressive Mass endorsements [here](https://www.progressivemass.com/endorsements-april2022/){:target="_blank"}
 
-Indivisible Mass Coalition has [endorsed](https://mailchi.mp/indivisible-ma/aug-27-mass-action-newsletter-12124172){:target="_blank"} [Tanisha Sullivan](https://tanishasullivan.com){:target="_blank"} for Secretary of State! 
+[Indivisible Mass Coalition](https://mailchi.mp/indivisible-ma/aug-27-mass-action-newsletter-12124172){:target="_blank"} has endorsed [Tanisha Sullivan  for Secretary of State](https://tanishasullivan.com){:target="_blank"}! 
 
 Make sure you vote in the Primary!!  
 
