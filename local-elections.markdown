@@ -45,14 +45,6 @@ var x = setInterval(function() {
 
 ---
 
-### MA Elections 
-
-Even though elections are over, the Legislature is still in session.  
-
-Please check out our priority bills [HERE](https://docs.google.com/spreadsheets/d/1hVWycjVbyL6-bYayLP04o3N2-o3l9Yh0n9RtEIFKFK0/edit#gid=0){:target="_blank"} 
-
----
-
 ### MA Primary
 
 Early Voting ends FRIDAY, Sep 2.  
