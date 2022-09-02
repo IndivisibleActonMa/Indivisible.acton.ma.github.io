@@ -53,22 +53,17 @@ Please check out our priority bills [HERE](https://docs.google.com/spreadsheets/
 
 ---
 
-### Local Elections
+### MA Primary
 
-Town and School board offices are the latest targets for radical republicans, even here in Massachusetts. **We can't cede this ground** - please think about running for a local office!  
+Early Voting ends FRIDAY, Sep 2.  
+Election day is TUESDAY, Sep 6.
 
-Send your town's election information to: [Christine@IndivisibleActon.org](mailto:christine@indivisibleacton.org). 
+Read Progressive Mass endorsements [here](https://www.progressivemass.com/endorsements-april2022/){:target="_blank"}
 
-* [Concord Elections](https://docs.google.com/document/d/1tDNgiRe2K50jDKvr9kig-WE0JFc059DIOtr5c-c_QCc/){:target="_blank"} \
- -- CONCORD Special Town Election : Thursday, February 3, 2022  
- -- CONCORD Annual Town Election  : Tuesday, April 12, 2022
+Indivisible Mass Coalition has [endorsed](https://mailchi.mp/indivisible-ma/aug-27-mass-action-newsletter-12124172){:target="_blank"} [Tanisha Sullivan](https://tanishasullivan.com){:target="_blank"} for Secretary of State! 
 
+Make sure you vote in the Primary!!  
 
-* [Acton Elections](https://docs.google.com/document/d/1sqsYjA1W5MGY7k-npWxIopuzs_ugVJq3DWNI1jLaAs0/){:target="_blank"}  
- -- ACTON Annual Town Election : Tuesday, March 29, 2022
-
-
----  
 
 ### Candidate and Campaign Policy and Etiquette
 
