@@ -50,7 +50,7 @@ var x = setInterval(function() {
 Early Voting ends FRIDAY, Sep 2.  
 Election day is TUESDAY, Sep 6.
 
-Read Progressive Mass endorsements [here](https://www.progressivemass.com/endorsements-april2022/){:target="_blank"}
+Read Progressive Mass endorsements [HERE](https://www.progressivemass.com/endorsements-april2022/){:target="_blank"}
 
 [Indivisible Mass Coalition](https://mailchi.mp/indivisible-ma/aug-27-mass-action-newsletter-12124172){:target="_blank"} has endorsed [Tanisha Sullivan  for Secretary of State](https://tanishasullivan.com){:target="_blank"}! 
 
