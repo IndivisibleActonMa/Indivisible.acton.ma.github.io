@@ -19,7 +19,7 @@ Sign up for Indivisible MA's statewide newsletter [HERE](https://indma.wufoo.com
 
 Sign up for emails from Indivisible National [HERE](https://indivisible.org){:target="_blank"}.
 
-Learn [How to Take Action](/uploads/Indivisible%20Presentation.pdf){:target="_blank"}
+[Take Action](turnpurple2blue.org){:target="_blank"}
 
 Questions?  Email us at *[info@indivisibleacton.org](mailto:info@indivisibleacton.org)*.  
 
