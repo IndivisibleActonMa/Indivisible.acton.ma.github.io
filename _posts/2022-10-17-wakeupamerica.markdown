@@ -19,3 +19,7 @@ Check out some past actions here:
 * [GOTV Canvassing in New Hampshire!](https://turnpurple2blue.org/2022/09/02/canvass-nh-2/?link_id=1&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-27-days-to-save-democracy&email_referrer=email_1697206&email_subject=_-26-days-to-save-democracy-_){:target="_blank"}.  
 
 Find out more ways **you** can help remake our democracy into one that works for the people [HERE](https://turnpurple2blue.org/){:target="_blank"}. 
+
+---
+
+*“The radical decision to eliminate a constitutional right enshrined for nearly 50 years is just the beginning. You know what other rights are based on the same legal reasoning? Marriage Equality. Homosexual Sex. Contraceptive Access. Interracial Marriage. The SCOTUS assurances that these rights won’t be affected are the exact same lies that these judges told about their belief in ROE’s precedent.”*
