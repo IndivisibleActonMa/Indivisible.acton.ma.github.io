@@ -55,7 +55,7 @@ Election day is TUESDAY, Nov 8.
 
 Read more about the MA Ballot Questions [HERE](https://turnpurple2blue.org/2022/09/29/massachusetts-2020-ballot-questions/){:target="_blank"}.
 
-**Learn how YOU can help turn <span style="color:purple;">Purple</span> To <span style="color:purple;">Blue</span>!**
+**Learn how YOU can help turn <span style="color:purple;">Purple</span> To <span style="color:blue;">Blue</span>!**
 
 Check out our sister website [HERE](https://turnpurple2blue.org){:target="_blank"}.
 
