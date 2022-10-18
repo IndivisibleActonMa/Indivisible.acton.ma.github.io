@@ -1,5 +1,5 @@
 ---
-title: "#WakeUpAmerica"
+title: 'Countdown to Save #democracy'
 date: 2022-10-17 05:18:00 -04:00
 is featured: true
 ---
