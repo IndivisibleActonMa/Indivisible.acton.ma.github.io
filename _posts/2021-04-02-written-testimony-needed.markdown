@@ -7,6 +7,11 @@ is featured: true
 <span style="font-family:Papyrus; font-size:1.5em; color:red;">**ANNOUNCEMENTS**</span>
 
 ---
+### Fight For #democracy
+
+Thank you [PoliticsGirl](https://twitter.com/IAmPoliticsGirl){:target="_blank} - This is the energy we have to embrace!
+
+[We are not just going to give up!](https://twitter.com/IAmPoliticsGirl/status/1581678349599981568?s=20&t=cvWEWfMfpE0ab0nRtESYUg){:target="_blank}
 
 ### Support Anti-racist Education Bill
 
