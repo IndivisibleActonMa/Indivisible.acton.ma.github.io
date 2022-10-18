@@ -45,7 +45,7 @@ var x = setInterval(function() {
 
 ---
 
-### MA
+### Elections/Voting
 
 Mail-in ballots are being delivered to voters.
 Early Voting STARTS Saturday, Oct 22 and ends Friday, Nov 4.  
