@@ -45,17 +45,17 @@ var x = setInterval(function() {
 
 ---
 
-### MA Primary
+### MA
 
-Early Voting ends FRIDAY, Sep 2.  
-Election day is TUESDAY, Sep 6.
+Mail-in ballots are being delivered to voters.
+Early Voting STARTS Saturday, Oct 22 and ends Friday, Nov 4.  
+Election day is TUESDAY, Nov 8.
 
-Read Progressive Mass endorsements [HERE](https://www.progressivemass.com/endorsements-april2022/){:target="_blank"}.
+**MA Statewide Ballot Questions**
 
-[Indivisible Mass Coalition](https://mailchi.mp/indivisible-ma/aug-27-mass-action-newsletter-12124172){:target="_blank"} has endorsed [Tanisha Sullivan  for Secretary of State](https://tanishasullivan.com){:target="_blank"}! 
+Read more about the MA Ballot Questions [HERE](https://turnpurple2blue.org/2022/09/29/massachusetts-2020-ballot-questions/){:target="_blank"}.
 
-Make sure you vote in the Primary!!  
-
+###
 
 ### Candidate and Campaign Policy and Etiquette
 
