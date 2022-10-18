@@ -6,9 +6,8 @@ is featured: true
 
 ## Get FIRED UP!
 
-Thank you [PoliticsGirl](https://twitter.com/IAmPoliticsGirl){:target="_blank} - This is the energy we have to embrace!
+Thank you [PoliticsGirl](https://twitter.com/IAmPoliticsGirl){:target="_blank} for this great [video](https://twitter.com/IAmPoliticsGirl/status/1581678349599981568?s=20&t=cvWEWfMfpE0ab0nRtESYUg){:target="_blank"} - This is the energy we have to embrace!
 
-[We are not just going to give up!](https://twitter.com/IAmPoliticsGirl/status/1581678349599981568?s=20&t=cvWEWfMfpE0ab0nRtESYUg){:target="_blank"}
 
 ---
 
