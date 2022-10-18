@@ -7,6 +7,10 @@ is featured: true
 <span style="font-family:Papyrus; font-size:1.5em; color:red;">**ANNOUNCEMENTS**</span>
 
 ---
+### MA Statewide Ballot Issues 2022 
+ 
+Read more about the MA Ballot Questions [HERE](https://turnpurple2blue.org/2022/09/29/massachusetts-2020-ballot-questions/){:target="_blank"}.
+
 
 ### Support Anti-racist Education Bill
 
