@@ -51,9 +51,12 @@ Thank you [PoliticsGirl](https://twitter.com/IAmPoliticsGirl){:target="_blank} f
 
 
 ---
+19 days ... A Twofer! 
+* [Donate to NC - Statehouses matter!](https://secure.actblue.com/donate/2022c2c?link_id=0&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-saving-democracy-is-easier-when-we-share-the-load&email_referrer=email_1704902&email_subject=_-you-are-the-key-to-saving-democracy&refcodeEmailReferrer=email_1704902){:target="_blank"}. 
+* [Join Thursday Phonebanks for #YesOn4](https://saferroadsma.com/events/){:target="_blank"}  
+
 [20 days to Save Democracy - Join Wednesday Phonebanks to Wisconsin](https://www.mobilize.us/wisdems/event/513943/?link_id=0&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-i-told-5-friends-and-they-told-5-friends-and-so-on-and-so-on&email_referrer=email_1704841&email_subject=_-saving-democracy-is-easier-when-we-share-the-load){:target="_blank"}   
 [21 days to Save Democracy](https://turnpurple2blue.org/2022/09/29/massachusetts-2020-ballot-questions/?link_id=0&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-democracy-is-endangered-by-maga-extremists-help-crush-the-coup&email_referrer=email_1704394&email_subject=_-i-told-5-friends-and-they-told-5-friends-and-so-on-and-so-on){:target="_blank"}  
-
 [22 days to Save Democracy](https://crushthecoup.org/arizona?link_id=1&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-23-days-to-save-democracy&email_referrer=email_1697275&email_subject=_-democracy-is-endangered-by-maga-extremists-help-crush-the-coup){:target="_blank"}.
 
 Check out some past actions here:
