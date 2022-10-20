@@ -1,6 +1,6 @@
 ---
 title: 'Countdown to Save #democracy'
-date: 2022-10-18 05:18:00 -04:00
+date: 2022-10-19 05:18:00 -04:00
 is featured: true
 ---
 
@@ -51,6 +51,7 @@ Thank you [PoliticsGirl](https://twitter.com/IAmPoliticsGirl){:target="_blank} f
 
 
 ---
+[20 days to Save Democracy - Join Wednesday Phonebanks to Wisconsin](https://www.mobilize.us/wisdems/event/513943/?link_id=0&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-i-told-5-friends-and-they-told-5-friends-and-so-on-and-so-on&email_referrer=email_1704841&email_subject=_-saving-democracy-is-easier-when-we-share-the-load){:target="_blank"}   
 [21 days to Save Democracy](https://turnpurple2blue.org/2022/09/29/massachusetts-2020-ballot-questions/?link_id=0&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-democracy-is-endangered-by-maga-extremists-help-crush-the-coup&email_referrer=email_1704394&email_subject=_-i-told-5-friends-and-they-told-5-friends-and-so-on-and-so-on){:target="_blank"}  
 
 [22 days to Save Democracy](https://crushthecoup.org/arizona?link_id=1&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-23-days-to-save-democracy&email_referrer=email_1697275&email_subject=_-democracy-is-endangered-by-maga-extremists-help-crush-the-coup){:target="_blank"}.
