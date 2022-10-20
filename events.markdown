@@ -10,6 +10,17 @@ date: 2021-04-24 08:43:00 -04:00
 <span style="font-family:Papyrus; font-size:1.0em;">[John Lewis, July 2020](https://www.nytimes.com/2020/07/30/opinion/john-lewis-civil-rights-america.html){:target="_blank"}</span>
 
 ---
+### Tuesday, Oct 25 7-8:30p 
+
+Join the [Indivisible Mass Coalition](https://indivisible-ma.org){:target="_blank"}  Statewide ACTION Call with Guest Speaker **Leah Greenberg** on **Tuesday, Oct 25 7-8:30p** for a Phonebank to GA for [Senator Raphael Warnock](https://warnockforgeorgia.com){:target="_blank"}. 
+
+Training & support will be provided.
+
+Let's keep the Senate Blue and help Get Out The Vote to Re-Elect Senator Warnock! 
+
+[RSVP HERE](https://indivisible-ma.us10.list-manage.com/track/click?u=448f2617a0ea6d2c20e5c403c&id=7afded1ba3&e=eb3c692fd7)!
+
+---
 
 ### Weekly events!
 
