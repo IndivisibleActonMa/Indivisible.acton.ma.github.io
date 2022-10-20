@@ -1,5 +1,6 @@
 ---
 title: General Information
+date: 2022-10-20 09:21:00 -04:00
 position: 0
 main-image: 
 layout: page
@@ -60,6 +61,8 @@ Email:  *newsletter@indivisibleacton.org*
 [Indivisible MA](https://www.indivisible-ma.org){:target="_blank"}  
 
 [Indivisible Concord](https://concordindivisible.org){:target="_blank"}   
+
+[Indivisible LAB](https://indivisiblelab.org){:target="_blank"}  
 
 [Indivisible Nashoba](http://indivisiblenashoba.org){:target="_blank"}  
 
