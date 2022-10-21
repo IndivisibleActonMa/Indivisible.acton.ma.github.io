@@ -51,6 +51,12 @@ Thank you [PoliticsGirl](https://twitter.com/IAmPoliticsGirl){:target="_blank} f
 
 
 ---
+
+18 days ... Sign up for canvasses on Saturday/Sunday:
+* [Talk to voters in Concord with Simon Cataldo, Candidate for 14th Middlesex, 10-2p](https://www.mobilize.us/maurahealey/event/531491/){:target="_blank"}  
+* [Talk to voters in Acton with Rep Sena and Senator Eldridge, 2-5p](https://saferroadsma.us/1022canvass-acton){:target="_blank"} 
+* [Talk to voters in NH - options for both days!](https://www.mobilize.us/swingbluealliance/event/507393/?link_id=0&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-you-are-the-key-to-saving-democracy&email_referrer=email_1704918&email_subject=_-together-we-are-the-wave){:target="_blank"}   
+
 19 days ... A Twofer! 
 * [Donate to NC - Statehouses matter!](https://secure.actblue.com/donate/2022c2c?link_id=0&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-saving-democracy-is-easier-when-we-share-the-load&email_referrer=email_1704902&email_subject=_-you-are-the-key-to-saving-democracy&refcodeEmailReferrer=email_1704902){:target="_blank"}  
 * [Join Thursday Phonebanks for #YesOn4](https://saferroadsma.com/events/){:target="_blank"}  
