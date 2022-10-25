@@ -51,7 +51,7 @@ Thank you [PoliticsGirl](https://twitter.com/IAmPoliticsGirl){:target="_blank} f
 
 
 ---
-
+14 days ... [Call Georgia Voters with Indivisible Mass Coalition](https://us02web.zoom.us/meeting/register/tZUrfumgqz8rHtQTFx7PnvlPjaS3E_2R4A97?link_id=0&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-calling-all-democracy-superstars&email_referrer=email_1713736&email_subject=_-14-days-to-save-democracy){:target="_blank"} and #GOTVBlue TONIGHT, Tuesday, Oct 25, 7-8:30p.  Indivisible co-founder Leah Greenberg will kick us off. 
 18 days ... Sign up for canvasses on Saturday/Sunday:
 * [Talk to voters in Concord with Simon Cataldo, Candidate for 14th Middlesex, 10-2p](https://www.mobilize.us/maurahealey/event/531491/){:target="_blank"}  
 * [Talk to voters in Acton with Rep Sena and Senator Eldridge, 2-5p](https://saferroadsma.us/1022canvass-acton){:target="_blank"} 
