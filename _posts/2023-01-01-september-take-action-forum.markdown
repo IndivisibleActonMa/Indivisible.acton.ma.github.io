@@ -1,7 +1,6 @@
 ---
 title: Tending the Flame of Democracy
 date: 2023-01-01 14:49:00 -05:00
-published: false
 is featured: true
 ---
 
