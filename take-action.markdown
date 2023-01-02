@@ -14,7 +14,7 @@ layout: page
 
 <span style="font-family:Papyrus; font-size:1em; color:blue;">Hope will never be silent. - Harvey Milk</span>
 
-Welcome to 2022!  Please check out our [sister website http://turnpurple2blue.org/](http://turnpurple2blue.org/){:target="_blank"} to find out what you can do to ***Save Our Democracy***!
+Welcome to 2023!  Please check out our [sister website http://turnpurple2blue.org/](http://turnpurple2blue.org/){:target="_blank"} to find out what you can do to ***tend the flame of democracy***!
 
 ---
 
