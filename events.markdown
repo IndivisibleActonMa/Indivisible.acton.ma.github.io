@@ -10,17 +10,13 @@ date: 2021-04-24 08:43:00 -04:00
 <span style="font-family:Papyrus; font-size:1.0em;">[John Lewis, July 2020](https://www.nytimes.com/2020/07/30/opinion/john-lewis-civil-rights-america.html){:target="_blank"}</span>
 
 ---
-### Tuesday, Oct 25 7-8:30p 
+### MEETING THE MOMENT: TAKING ACTION TO KEEP OUR DEMOCRACY
 
-Join the [Indivisible Mass Coalition](https://indivisible-ma.org){:target="_blank"}  Statewide ACTION Call with Guest Speaker **Leah Greenberg** on **Tuesday, Oct 25 7-8:30p** for a Phonebank to GA for [Senator Raphael Warnock](https://warnockforgeorgia.com){:target="_blank"}. 
+* **Friday, Jan 6, 5-6P** - A silent candlelight vigil at Concord’s Monument Square to honor those who lost their lives or were injured during the insurrection.
 
-Training & support will be provided.
+* **Saturday, Jan 7, 2-3P** - A rally on the steps of First Parish Unitarian Universalist Church (20 Lexington Road) in Concord to hear calls to action from key community leaders.
 
-Let's keep the Senate Blue and help Get Out The Vote to Re-Elect Senator Warnock! 
-
-[RSVP HERE](https://indivisible-ma.us10.list-manage.com/track/click?u=448f2617a0ea6d2c20e5c403c&id=7afded1ba3&e=eb3c692fd7)!
-
----
+[RSVP HERE](https://www.mobilize.us/jan6hearings/event/546047/?link_id=2&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-tell-gov-elect-healey-to-protect-mature-trees&email_referrer=email_1776384&email_subject=_grow-our-strength-by-tending-the-flame-of-democracy_)
 
 ### Weekly events!
 
@@ -28,7 +24,7 @@ Let's keep the Senate Blue and help Get Out The Vote to Re-Elect Senator Warnock
 
 ---
 
-**Tuesday 1-2p: Touch Base Tuesdays** Let’s get together to update/review/share/plan news and actions people can take to win in 2021 and beyond. Some of the brainstorming ideas discussed here turn into take action activities for the Indivisible Acton Area. [Register HERE](https://us02web.zoom.us/meeting/register/tZEkde-gpzktG9bKshEM-UVH-RWvS5BagXH7){:target="_blank"}.
+**Tuesday 1-2p: Touch Base Tuesdays** Let’s get together to update/review/share/plan news and actions people can take to win in 2021 and beyond. Some of the brainstorming ideas discussed here turn into take action activities for the Indivisible Acton Area. [Register HERE](https://us02web.zoom.us/meeting/register/tZIof-mupjIjGNUax2DyHh4LT5EZZJ2I1SyX){:target="_blank"}.
 
 **Thursday, 4-5p: Indivisible Truth Brigade** Help combat misinformation - join the Indivisible Truth Brigade.  [Register HERE](https://us02web.zoom.us/meeting/register/tZErd-Cvpj8jGNWkFLbI8Ytv0KuCirJJV7pd){:target="_blank"}. ***Please note the new time!***
 
