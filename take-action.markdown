@@ -40,17 +40,14 @@ Find out more about the impact of climate change:  [Climate Change: The Facts](h
 
 ---
 
-Click [HERE for the Activist Alliance Newsletter](https://docs.google.com/document/d/1c9noDp4crDN3kzDnXp6owDDsxNlR2XBBRXVmY0e4UxQ/edit?usp=sharing){:target="_blank"}
 
-Click [HERE for Indivisible MA newsletters](https://us17.campaign-archive.com/home/?u=3129bf2656ae4f5f1dcba96ad&id=70e7531ca3){:target="_blank"}
-
-Click [HERE](https://americansofconscience.com/){:target="_blank"} to find the latest [American's of Conscience](https://americansofconscience.com){:target="_blank"} checklist.
+Click [HERE for Indivisible MA newsletters](https://indivisible-ma.org/newsletter/){:target="_blank"}
 
 ---
 
-### Ways to Resist from Home
+### Ways to Resist from Home 
 
-* [Join the Indivisible Truth Brigade](https://act.indivisible.org/signup/indivisible-truth-brigade){:target="_blank"}.
+* Check out Jessica Craven's [daily newsletter](https://chopwoodcarrywaterdailyactions.substack.com/){:target="_blank"} for ways you can take action! 
 
 * Want to text green? Join [Sierra Club's new Texting Team](https://act.sierraclub.org/actions/National?actionId=AR0235958){:target="_blank"}! Primary season is in full swing, the Earth Day Climate Strike is fast approaching, and the Sierra Club has set a goal of texting millions of people to get out the vote and come strike! Join the Sierra Club’s Texting Team and fight climate change from home!\
   H/T Chop Wood Carry Water
