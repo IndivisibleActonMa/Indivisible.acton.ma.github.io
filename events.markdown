@@ -10,6 +10,7 @@ date: 2021-04-24 08:43:00 -04:00
 <span style="font-family:Papyrus; font-size:1.0em;">[John Lewis, July 2020](https://www.nytimes.com/2020/07/30/opinion/john-lewis-civil-rights-america.html){:target="_blank"}</span>
 
 ---
+
 ### MEETING THE MOMENT: TAKING ACTION TO KEEP OUR DEMOCRACY
 
 * **Friday, Jan 6, 5-6P** - A silent candlelight vigil at Concord’s Monument Square to honor those who lost their lives or were injured during the insurrection.
@@ -18,6 +19,14 @@ date: 2021-04-24 08:43:00 -04:00
 
 [RSVP HERE](https://www.mobilize.us/jan6hearings/event/546047/?link_id=2&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-tell-gov-elect-healey-to-protect-mature-trees&email_referrer=email_1776384&email_subject=_grow-our-strength-by-tending-the-flame-of-democracy_)
 
+### What's the plan?
+
+* **[Read the 2023 Indivisible Guide.](https://act.indivisible.org/go/655413?t=7&akid=85665%2E480654%2EAAlPmM)** Catch up on where we stand, explore our game plan for the current Congress, and find out how to get involved. Our wins over the last six years have been because we were coordinated, energized, and informed; let’s make sure we go into 2023 with that same foundation in place to fuel more wins.
+
+* **[Register for the Deep Dive on the New Guide: Our 2023 Indivisible Guide Launch Call on Thursday, January 12 at 8pm ET/5pm PT.](https://act.indivisible.org/go/655216?t=8&akid=85665%2E480654%2EAAlPmM)** Join Indivisibles from across the country as our team breaks down the main focuses of the Guide, walks us through activation strategies that can be applied locally in 2023, and creates a community space to reconvene and launch into a new year.
+
+* **[Donate $20 to Indivisible today!](https://act.indivisible.org/go/655414?t=9&akid=85665%2E480654%2EAAlPmM)** That is one dollar for each MAGA extremist holding our government hostage. Donate today to ensure that we can continue to be of service to the movement bringing activists together and sharing expertise to achieve victories.
+
 ### Weekly events!
 
 *Please note - We are changing over our event sign up system.  Please note - even if you were registered under the old system for future meetings, you will need to register again in the new system.  **IF** your Zoom meeting link brings you to a registration page, please register again, then check your email for the meeting link.*
@@ -25,7 +34,6 @@ date: 2021-04-24 08:43:00 -04:00
 ---
 
 **Tuesday 1-2p: Touch Base Tuesdays** Let’s get together to update/review/share/plan news and actions people can take to win in 2021 and beyond. Some of the brainstorming ideas discussed here turn into take action activities for the Indivisible Acton Area. [Register HERE](https://us02web.zoom.us/meeting/register/tZIof-mupjIjGNUax2DyHh4LT5EZZJ2I1SyX){:target="_blank"}.
-
 
 ---
 
@@ -37,7 +45,7 @@ date: 2021-04-24 08:43:00 -04:00
 
 * Find many other opportunities on [Mobilize America](https://www.mobilize.us/swingbluealliance/){:target="_blank"}.
 
----  
+---
 
 <iframe src="https://www.mobilize.us/embed/swingbluealliance/feed"
 style="border:none;"
