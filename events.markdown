@@ -13,11 +13,12 @@ date: 2023-01-06 08:43:00 -05:00
 
 ### MEETING THE MOMENT: TAKING ACTION TO KEEP OUR DEMOCRACY
 
-* **Friday, Jan 6, 5-6P** - A silent candlelight vigil at Concord’s Monument Square to honor those who lost their lives or were injured during the insurrection.
+**Wednesday, Jan 12, 2023 8p** - [Indivisible Mass Coalition (IMC)](https://indivisible-ma.org){:target="_blank"} is inviting Indivisibles to bring our input to their [open meeting](https://us02web.zoom.us/meeting/register/tZwpdemvpjouG91QeT0OGLOiGPRoZBU9Z64I){:target="_blank"} for IMC 2023 goals and metrics. 
 
-* **Saturday, Jan 7, 2-3P** - A rally on the steps of First Parish Unitarian Universalist Church (20 Lexington Road) in Concord to hear calls to action from key community leaders.
+[RSVP HERE](https://us02web.zoom.us/meeting/register/tZwpdemvpjouG91QeT0OGLOiGPRoZBU9Z64I){:target="_blank"}.
 
-[RSVP HERE](https://www.mobilize.us/jan6hearings/event/546047/?link_id=2&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-tell-gov-elect-healey-to-protect-mature-trees&email_referrer=email_1776384&email_subject=_grow-our-strength-by-tending-the-flame-of-democracy_){:target="_blank"}
+
+
 
 ### What's the plan?
 
