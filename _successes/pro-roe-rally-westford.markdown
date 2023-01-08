@@ -1,9 +1,9 @@
 ---
-title: "#WomensMarch2021"
-date: 2021-10-02 10:00:00 -04:00
+title: "#democracy"
+date: 2023-01-07 14:00:00 -05:00
 is featured: true
-main-image: "/uploads/244049840_852551735410005_5123750368435477964_n.jpg"
+main-image: "/uploads/IMG_0597.jpeg"
 layout: media-item
 ---
 
-We were proud to host a stand out for #WomensRights! [Great crowd](/uploads/244049840_852551735410005_5123750368435477964_n.jpg) with inspiring speeches from activists, students, medical professionals, writer and elected officials.
+We were proud to cosponsor #Jan6 events and stand with our friends in [Concord Indivisible](https://concordindivisible.org){:target="_blank"} to #ProtectOurDemocracy.
