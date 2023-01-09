@@ -51,7 +51,7 @@ REMEMBER - There are NO off years! #democracy is a verb.
 
 Stay up to date by checking [our sister website](https://turnpurple2blue.org/new/){:target="_blank"} for the latest projects.
 
-There is a postcarding effort for Special Election in Wisconsin for a Supreme Court seat. Read more[HERE](https://turnpurple2blue.org/2023/01/03/wi-special-election/){:target="_blank"}.
+There is a postcarding effort for Special Election in Wisconsin for a Supreme Court seat. Read more [HERE](https://turnpurple2blue.org/2023/01/03/wi-special-election/){:target="_blank"}.
 
 
 
