@@ -36,16 +36,9 @@ Questions?  Email us at *[info@indivisibleacton.org](mailto:info@indivisibleacto
 
 ### Newsletter
 
-*With less than a month to go, we will replace the twice-weekly newsletter with a daily Action of the Day email. Our [Turn Purple 2 Blue](https://turnpurple2blue.org/){:target="_blank"} editors select actions that will be most impactful for these last precious final days before midterms. Please check your email daily to learn what you can do to make a difference!*
+Our weekly newsletter comes out on Tuesdays
 
-Our bi-weekly newsletter comes out on Tuesdays and Fridays!
-
-Newsletter deadlines:  
-
-* Deadline for Tuesday:  Monday, 4p. 
-* Deadline for Friday:   Thursday, 4p. 
-
-Email:  *newsletter@indivisibleacton.org*
+Please submit any news items by Mondays, 4p at the latest to:  *newsletter@indivisibleacton.org*
 
 ---
 ### Representatives  
