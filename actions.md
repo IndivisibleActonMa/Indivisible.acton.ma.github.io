@@ -8,7 +8,7 @@ layout: page
 
 ### Getting involved
 
-[Join Indivisible Acton-Area](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton){:target="_blank"} and you get our twice weekly newsletter!
+[Join Indivisible Acton-Area](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton){:target="_blank"} and you get our weekly newsletter!
 
 [Join the Indivisible Acton-Area Facebook Group](https://www.facebook.com/groups/indivisibleacton){:target="_blank"} to find out about events, share ideas and news, and connect with other Indivisible members.  
 
