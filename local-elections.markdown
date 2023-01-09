@@ -47,17 +47,15 @@ var x = setInterval(function() {
 
 ### Elections/Voting
 
-Mail-in ballots are being delivered to voters.
-Early Voting STARTS Saturday, Oct 22 and ends Friday, Nov 4.  
-Election day is TUESDAY, Nov 8.
+REMEMBER - There are NO off years! #democracy is a verb.
 
-**MA Statewide Ballot Questions**
+Stay up to date by checking [our sister website](https://turnpurple2blue.org/new/){:target="_blank"} for the latest projects.
 
-Read more about the MA Ballot Questions [HERE](https://turnpurple2blue.org/2022/09/29/massachusetts-2020-ballot-questions/){:target="_blank"}.
+There is a postcarding effort for Special Election in Wisconsin for a Supreme Court seat. Read more[HERE](https://turnpurple2blue.org/2023/01/03/wi-special-election/){:target="_blank"}.
 
-**Learn how YOU can help turn <span style="color:purple;">Purple</span> To <span style="color:blue;">Blue</span>!**
 
-Check out our sister website [HERE](https://turnpurple2blue.org){:target="_blank"}.
+
+
 
 ### Candidate and Campaign Policy and Etiquette
 
