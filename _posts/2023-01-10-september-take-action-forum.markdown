@@ -4,6 +4,8 @@ date: 2023-01-10 14:49:00 -05:00
 is featured: true
 ---
 
+**January 10, 2023**  
+
 The Massachusetts Legislature made the national news last week, and not in a good way. MA House Speaker Mariano (D-3rd Norfolk) refused to swear in two duly elected Democratic representatives. Marc Elias, our nation's premiere voting and elections lawyer, took time out from Arizona lawsuits to call Mariano's decision "[odd and unprecedented](https://url1005.email.actionnetwork.org/ss/c/CMxF4nARlf6wAFa1PSfv0pxLN8zuXd485gHNRhmg2sYw43yClpkMs5eWxZIdyLSbAro56jUnh-Hij8sYdXKncSpTvm5BMGco3SftIxQE2EQTJ9Eq9MDw_IJjwWhVLElDWTQoPg-JwcFJFjcHjo50OMRTude5P9PqBmshZyVjGGjtcEXQT0eacoM3kHGZxMij82wgCcqdNGOM0n7wnrUqKJRFLCKhjr17nDxG0lRjnflLOzGx7LtGpqyQYXq59G64Sc1SqE3VmRpBusW8x35ddMpyZ2pqD2hP9SlXco-HjlYZ5NstTOBZ_9d7S9mZpTD0VRQYYIfL3ZG2RL97ZOxrBxp4cEtu0Dbn8oiJh6H97dCOCZw51wF4Jr3MneMZnGGba2PUTl_pPDBs11vbatZS6Q/3sq/1IGUSOXBRSag293M1MBGpQ/h0/l13FHzawNwhb0UEwhEwYjKIhFNQlQeYm9WTDsw_QCCQ){:target="_blank"}" Both elections went to a recount, and Secretary Galvin has certified their wins. Republicans are filing lawsuit as fast as they can be dismissed.
 
 **Mariano's actions do not bode well for our democratic values. In a year where we hope to strengthen and protect democracy, he has chosen to take the side of election deniers.**
