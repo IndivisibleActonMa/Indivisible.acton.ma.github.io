@@ -43,7 +43,7 @@ Please submit any news items by Mondays, 4p at the latest to:  *newsletter@indiv
 ---
 ### Representatives  
 
-[How to Contact Your Representatives](http://www.indivisibleacton.org/general-information/representatives.html) 
+[Find Your Representatives](https://malegislature.gov/Search/FindMyLegislator){:target="_blank"}
 
 [What's Going On In the Massachusetts State House](http://www.indivisibleacton.org/general-information/whats-going-on-in-the-ma-state-house.html): Find out how your State Representatives and Senators voted and what's going on in the MA State House!
 
