@@ -13,7 +13,7 @@ Want to know how your Representatives and State Senators voted?  Or see the jour
 ---
 **Remember** - *Grass roots efforts can really make a difference!!*  Talk to your family, friends and neighbors!  Call your Representatives and Senators and let them know if you like how they're voting and how you're being represented.
 
-Click [HERE](http://www.indivisibleacton.org/2018-ma-state-primary.html) for information about how you can contact our representatives.
+Click [HERE](https://malegislature.gov/Search/FindMyLegislator) to find your legislators and how to contact them.
 
 ---
 
