@@ -24,7 +24,7 @@ date: 2023-01-06 08:43:00 -05:00
 
 * **[Read the 2023 Indivisible Guide.](https://act.indivisible.org/go/655413?t=7&akid=85665%2E480654%2EAAlPmM){:target="_blank"}** Catch up on where we stand, explore our game plan for the current Congress, and find out how to get involved. Our wins over the last six years have been because we were coordinated, energized, and informed; let’s make sure we go into 2023 with that same foundation in place to fuel more wins.
 
-* **[Register for the Deep Dive on the New Guide: Our 2023 Indivisible Guide Launch Call on Thursday, January 12 at 8pm ET/5pm PT.](https://act.indivisible.org/go/655216?t=8&akid=85665%2E480654%2EAAlPmM){:target="_blank"}** Join Indivisibles from across the country as our team breaks down the main focuses of the Guide, walks us through activation strategies that can be applied locally in 2023, and creates a community space to reconvene and launch into a new year.
+* **[Register for the Deep Dive on the New Guide: Our 2023 Indivisible Guide Launch Call on Thursday, January 26 at 8pm ET/5pm PT.](https://act.indivisible.org/go/655216?t=8&akid=85665%2E480654%2EAAlPmM){:target="_blank"}** Join Indivisibles from across the country as our team breaks down the main focuses of the Guide, walks us through activation strategies that can be applied locally in 2023, and creates a community space to reconvene and launch into a new year.
 
 * **[Donate $20 to Indivisible today!](https://act.indivisible.org/go/655414?t=9&akid=85665%2E480654%2EAAlPmM){:target="_blank"}** That is one dollar for each MAGA extremist holding our government hostage. Donate today to ensure that we can continue to be of service to the movement bringing activists together and sharing expertise to achieve victories.
 
