@@ -1,13 +1,16 @@
 ---
-title: Testifying at State House for Automatic Voter Registration
-date: 2017-06-08 23:01:00 -04:00
+title: State House Public Hearing
+date: 2023-01-13 11:01:00 -05:00
 published: false
 categories:
 - state
 is featured: false
-main-image: "/uploads/avr_testimony1.jpg"
+main-image: "/uploads/IMG_0731.JPG"
 ---
 
-Member Monica Burke testified at the State House for a bill that is in the MA Legislature called Automatic Voter Registration. She had gathered written testimony from 151 people across 39 towns in MA and in 28 groups, many of them from Indivisible groups either handsigned or emailed.  It Went great! About 100-200 people testified in support of AVR. No one was against it..
+Indivisible Acton Area Members and friends attended the Special Committee of the House to Examine the Returns of Votes for Certain Representative Districts and touched base with new Reps [Simon Cataldo (14th Middlesex)](https://malegislature.gov/Legislators/Profile/S_C1){:target="_blank"} and [Kate Donaghue (19th Worcester)](https://malegislature.gov/Legislators/Profile/K_D1){:target="_blank"}
 
-Automatic Voter Registration is the answer against Voter Suppression. Indivisible Acton is working with the state wide organization [Lift Every Vote](https://www.facebook.com/groups/lifteveryvote) to promote this legislation.
+Watch here:
+* [2nd Essex](https://malegislature.gov/Events/SpecialEvents/Detail/400){:target="_blank"}  
+
+* [1st Middlesex](https://malegislature.gov/Events/SpecialEvents/Detail/401){:target="_blank"}
