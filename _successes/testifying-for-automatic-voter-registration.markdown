@@ -1,7 +1,6 @@
 ---
 title: State House Public Hearing
 date: 2023-01-13 11:01:00 -05:00
-published: false
 categories:
 - state
 is featured: false
