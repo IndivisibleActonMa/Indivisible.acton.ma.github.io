@@ -1,5 +1,5 @@
 ---
-title: Tending the Flame of Democracy
+title: 'Tending the Flame of #democracy'
 date: 2023-01-16 12:12:00 -05:00
 is featured: true
 ---
