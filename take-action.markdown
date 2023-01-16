@@ -14,15 +14,13 @@ layout: page
 
 <span style="font-family:Papyrus; font-size:1em; color:blue;">Hope will never be silent. - Harvey Milk</span>
 
-Welcome to 2023! 
+Welcome to 2023!
 
 * Please check out our [sister website http://turnpurple2blue.org/](http://turnpurple2blue.org/){:target="_blank"} to find out what you can do to ***tend the flame of democracy***!
 
 * Follow [Dr. Tami Gouveia](https://tamigouveia.substack.com){:target="_blank"} for [insights and inspiration to keep fighting](https://tamigouveia.substack.com/p/reflections-on-january-6th){:target="_blank"} for our #democracy.
 
-* **Take Action to Protect Democracy** right here in MA and [write to Speaker Mariano and his committee](https://actionnetwork.org/letters/take-action-to-protect-democracy-in-ma){:target="_blank"} and ask them to seat the 2nd Essex and 1st Middlesex Representatives-elect without further delay. Read more about it [here](https://www.bostonglobe.com/2023/01/03/metro/mass-house-leaders-say-theyll-delay-swearing-two-democrats-review-legal-issues-raised-by-gop-opponents/){:target="_blank"}.
-
-
+* **Take Action to Protect #democracy** right here in MA and [write to Speaker Mariano and his committee](https://actionnetwork.org/letters/take-action-to-protect-democracy-in-ma){:target="_blank"} and ask them to seat the 2nd Essex and 1st Middlesex Representatives-elect without further delay. Read more about it [here](https://www.bostonglobe.com/2023/01/03/metro/mass-house-leaders-say-theyll-delay-swearing-two-democrats-review-legal-issues-raised-by-gop-opponents/){:target="_blank"}.
 
 ---
 
@@ -48,14 +46,13 @@ Find out more about the impact of climate change:  [Climate Change: The Facts](h
 
 ---
 
-
 Click [HERE for Indivisible MA newsletters](https://indivisible-ma.org/newsletter/){:target="_blank"}
 
 ---
 
-### Ways to Resist from Home 
+### Ways to Resist from Home
 
-* Check out Jessica Craven's [daily newsletter](https://chopwoodcarrywaterdailyactions.substack.com/){:target="_blank"} for ways you can take action! 
+* Check out Jessica Craven's [daily newsletter](https://chopwoodcarrywaterdailyactions.substack.com/){:target="_blank"} for ways you can take action!
 
 * Want to text green? Join [Sierra Club's new Texting Team](https://act.sierraclub.org/actions/National?actionId=AR0235958){:target="_blank"}! Primary season is in full swing, the Earth Day Climate Strike is fast approaching, and the Sierra Club has set a goal of texting millions of people to get out the vote and come strike! Join the Sierra Club’s Texting Team and fight climate change from home!\
   H/T Chop Wood Carry Water
