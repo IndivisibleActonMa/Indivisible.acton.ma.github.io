@@ -1,8 +1,26 @@
 ---
 title: 'Tending the Flame of #democracy'
-date: 2023-01-16 12:12:00 -05:00
+date: 2023-01-26 12:12:00 -05:00
 is featured: true
 ---
+
+Jan 24, 2023
+
+**Thank you for your letters and phone calls! **Last Wednesday, Margaret Scarsdale was sworn in as the duly elected representative to the 1st Middlesex after the unanimous committee report was adopted by the House. This means that her district, without representation since last February, will now have a voice, including being able to file legislation.
+
+**The same is not true for Kristin Kassner of 2nd Essex. Remember that Mariano swore in the losing Republican in her place. We cannot allow this to stand. The newly redistricted 2nd Essex elected her, and her recount was certified by Sec. Galvin and the Governor's Council. It will only embolden the GOP if we allow Blue Massachusetts to be an example of election denialism.**
+
+**Write or Call to demand that Kristin Kassner be sworn in:**
+
+1. **Easy Email template from Progressive Mass is** [here](https://url1005.email.actionnetwork.org/ss/c/P8Elou2Rvc0qoMPEUZrMXcOpy_XqN4R2ZGjoK-5zZnk0CTCdzMxgqSqd7rKusgOE7izkqZQUUfgkn4WAhDlzNDCR1dm-UStY9MvTOETQ5Uppvq3l0huJEnFf2U9iXSG8EK8ocs626aq3GAEsHFPV7VLsowsB7oPQzAZInfwBg-82__fSUFuAZk-YIMtn61HMEhchZGcscvctsj9GqRIfirMAWfPjXmdfxLn8mcjhmnLtUKBiOF3QaQDEzqv0gvm0WuspznCHuuoMxyWILfxyl2BNoxD3it2bt23nS2wTXLI/3t4/sKFrEvnTQ0W1JcTlwM4TAg/h0/8Hha2DC7dL5PKR5s-AslM_HlDFUvgPp9v3UiyIuRUYU)
+
+2. **Call Speaker Mariano at 617-722-2500**
+
+3. **Call or email committee member Rep Michael Day** [here](https://url1005.email.actionnetwork.org/ss/c/tTBUZwcBH_2q13Ow12s-jbfYYmdayLnUPGGDfP9fWbDw07UAOti2btln68IrkYR2AF2aqgOuiixJoZldzoi_V33W8s8__7s8LMVuoEmC4zZk3VSON2dcAc2blG6huj-ZP8bqwXpnI00u7PnEvEhNdnDS7zcrZvE6zHIb4GT0d1XIaSz5zAWnYlCSI3C6-P8H0HvIGA4Dzyz9xx4T3GpqkOtUhWFmrvEkmNSLlFmsUowLaHFGnWbZT3RLaCkCybyWGQe3IMOIztdgGrzBxzNNbgrO6GzE3r2L3RBWVwI1X9I2cCM37fCIq7pGUl_eE76W/3t4/sKFrEvnTQ0W1JcTlwM4TAg/h1/SjTeT8T0Jxgxd6hM6Vb0O3IgUmeT3OOOyDU-A3r0r0U)
+
+4. **Call or email committee member Rep Daniel Ryan** [here](https://url1005.email.actionnetwork.org/ss/c/tTBUZwcBH_2q13Ow12s-jbfYYmdayLnUPGGDfP9fWbDw07UAOti2btln68IrkYR2x59_03Q74aLnYSHZjugiJ0Nbrd9cKl3k-_wG4ouL_ILIJX5uXnPhnYHX_NLQkhaUv3m52LotcK7Cmb2nvnijb35KDyWj-4CnpUB2bok6EA0m4FDuPBBr4U6mTPZDTWWOE4e-CHfSui4ojR1GPw4G4lISt5AM4wqy97Sr0yj9x4KLzzd60A1BOV8JMKqPMOvxGIBoOmAd_uX3VXGcZ8DSEs5ebTl7jo44VNtYFQF--CqzbEG6mA5PG9pvic2pvO_n/3t4/sKFrEvnTQ0W1JcTlwM4TAg/h2/wOH5efFsf5vggxMH-1UAg1QyKQ23zFnD0S4Sw_dYR_o)
+
+5. **Call or email committee member Rep Brad Jones** [here](https://url1005.email.actionnetwork.org/ss/c/tTBUZwcBH_2q13Ow12s-jbfYYmdayLnUPGGDfP9fWbDw07UAOti2btln68IrkYR2WwdwAZolEisTNr6Y2EkOIpvDNdfcX5lhWbWFldPxAqDYGylQaJbutW6A2328Ho-YjbMffPx7CvPWzuJ0ZHKdBtxP03KRQaroIAWSO8_mLCBTBEyeVUvIr9hc-dr8pYNMzH9g-SGB4q2arVl7-CpnOsFo2YrTul_FVfGoX-UrezbjGV_tLKsP-s3T-IhGhr5VS6VWD79kjwxD-e_OMekGY9dsfrb36BgamRW5YMp0hMHhaPBIUr3L_AdMdN5bpdfc/3t4/sKFrEvnTQ0W1JcTlwM4TAg/h3/ubFWIOkmf1csa9FKAERvopAjv8w6ErRVK4Pqx-4Ft68)
 
 **Write a Letter To The Editor**
 
