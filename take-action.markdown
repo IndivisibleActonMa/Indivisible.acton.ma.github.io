@@ -26,7 +26,7 @@ Welcome to 2023!
 
 ## **Start a Climate Conversation**
 
-## “*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation
+“*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation
 
 Spark vital conversations with help from the [The New York Times Climate Hub](https://www.nytclimatehub.com/climatehub/nyt-climate-hub-2021){:target="_blank"}.
 
