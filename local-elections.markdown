@@ -1,6 +1,6 @@
 ---
 title: Elections
-date: 2023-01-09 10:56:00 -05:00
+date: 2023-01-26 10:56:00 -05:00
 ---
 
 ---
@@ -45,15 +45,29 @@ var x = setInterval(function() {
 
 ---
 
-### Elections/Voting
+## Elections/Voting
 
 REMEMBER - There are NO off years! #democracy is a verb.
+
+### Think Local
+
+It's local election season! Check your town websites for the dates of your local elections and Town Meetings.
+
+* Acton: [https://acton-ma.gov/598/Elections-Voting](https://acton-ma.gov/598/Elections-Voting){:target="_blank"}
+* Boxborough: [https://www.boxborough-ma.gov/211/Elections-Voting](https://www.boxborough-ma.gov/211/Elections-Voting){:target="_blank"}
+* Concord: [https://concordma.gov/DocumentCenter/View/40203/2023-Filing-Schedule---Annual-Town-Election?bidId=](https://concordma.gov/DocumentCenter/View/40203/2023-Filing-Schedule---Annual-Town-Election?bidId=){:target="_blank"}
+* Harvard: [https://www.harvard-ma.gov/town-clerk](https://www.harvard-ma.gov/town-clerk){:target="_blank"}
+* Littleton: [https://www.littletonma.org/elections-and-voter-information/pages/elections-2023](https://www.littletonma.org/elections-and-voter-information/pages/elections-2023){:target="_blank"}
+* Maynard: [https://www.townofmaynard-ma.gov/170/Elections](https://www.townofmaynard-ma.gov/170/Elections){:target="_blank"}
+* Stow: [https://www.stow-ma.gov/town-meeting-election-information](https://www.stow-ma.gov/town-meeting-election-information){:target="_blank"}
+
+**Think about running for office!**
+
+### National and Federal work
 
 Stay up to date by checking [our sister website](https://turnpurple2blue.org/new/){:target="_blank"} for the latest projects.
 
 There is a postcarding effort for Special Election in Wisconsin for a Supreme Court seat. Read more [HERE](https://turnpurple2blue.org/2023/01/03/wi-special-election/){:target="_blank"}.
-
-
 
 
 
