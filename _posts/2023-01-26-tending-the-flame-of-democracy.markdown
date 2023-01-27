@@ -6,7 +6,7 @@ is featured: true
 
 Jan 24, 2023
 
-**Thank you for your letters and phone calls! **Last Wednesday, Margaret Scarsdale was sworn in as the duly elected representative to the 1st Middlesex after the unanimous committee report was adopted by the House. This means that her district, without representation since last February, will now have a voice, including being able to file legislation.
+\*\*Thank you for your letters and phone calls!\*\* Last Wednesday, Margaret Scarsdale was sworn in as the duly elected representative to the 1st Middlesex after the unanimous committee report was adopted by the House. This means that her district, without representation since last February, will now have a voice, including being able to file legislation.
 
 **The same is not true for Kristin Kassner of 2nd Essex. Remember that Mariano swore in the losing Republican in her place. We cannot allow this to stand. The newly redistricted 2nd Essex elected her, and her recount was certified by Sec. Galvin and the Governor's Council. It will only embolden the GOP if we allow Blue Massachusetts to be an example of election denialism.**
 
