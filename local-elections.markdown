@@ -63,6 +63,10 @@ It's local election season! Check your town websites for the dates of your local
 
 **Think about running for office!**
 
+### MA Legislature
+ 
+[The 193rd General Court — 2023 — First Annual Session](https://malegislature.gov/ClerksOffice/House/Deadlines){:target="_blank"}  
+
 ### National and Federal work
 
 Stay up to date by checking [our sister website](https://turnpurple2blue.org/new/){:target="_blank"} for the latest projects.
