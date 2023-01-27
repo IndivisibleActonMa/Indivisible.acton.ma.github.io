@@ -1,6 +1,6 @@
 ---
 title: Events
-date: 2023-01-06 08:43:00 -05:00
+date: 2023-01-26 08:43:00 -05:00
 ---
 
 ## ![117389754_3468490556517130_1936030534958581123_n.jpg](/uploads/117389754_3468490556517130_1936030534958581123_n.jpg)
@@ -12,13 +12,6 @@ date: 2023-01-06 08:43:00 -05:00
 ---
 
 ### MEETING THE MOMENT: TAKING ACTION TO KEEP OUR DEMOCRACY
-
-**Wednesday, Jan 12, 2023 8p** - [Indivisible Mass Coalition (IMC)](https://indivisible-ma.org){:target="_blank"} is inviting Indivisibles to bring our input to their [open meeting](https://us02web.zoom.us/meeting/register/tZwpdemvpjouG91QeT0OGLOiGPRoZBU9Z64I){:target="_blank"} for IMC 2023 goals and metrics. 
-
-[RSVP HERE](https://us02web.zoom.us/meeting/register/tZwpdemvpjouG91QeT0OGLOiGPRoZBU9Z64I){:target="_blank"}.
-
-
-
 
 ### What's the plan?
 
