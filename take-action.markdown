@@ -1,6 +1,6 @@
 ---
 title: Take Action
-date: 2019-05-06 10:41:00 -04:00
+date: 2023-01-26 10:41:00 -05:00
 layout: page
 ---
 
@@ -24,13 +24,20 @@ Welcome to 2023!
 
 ---
 
-**Start a Climate Conversation**
+## **Start a Climate Conversation**
 
-“*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation
+## “*Solving climate change requires us all to work together. We can’t do that without finding common ground with those who may not share our perspective.*”  —David Suzuki Foundation
 
 Spark vital conversations with help from the [The New York Times Climate Hub](https://www.nytclimatehub.com/climatehub/nyt-climate-hub-2021){:target="_blank"}.
 
-PLEASE [contact your state legislators](https://malegislature.gov/search/findmylegislator){:target="_blank"} and urge them to reject Baker's amendments to the climate bill act quickly to pass this bill into law! Because the climate bill passed with a supermajority, the legislature likely has enough support to override another veto from the governor. Let's get this bill passed!
+### Take Climate Action!
+
+The Zero Carbon Renovation Fund bill has now been filed by Senator Adam Gomez and Representative Andy Vargas. The full text of the Senate legislation (SD.500) can be found[here](https://malegislature.gov/Bills/193/SD500). The full text of the House legislation (**HD.776) **can be found [here](https://malegislature.gov/Bills/193/HD776).
+
+Please urge your legislators to urge them to co-sponsor the Zero Carbon Renovation Fund (ZCRF) and share with your networks as well.
+
+Use this [simple form](https://actionnetwork.org/letters/300-million-for-the-massachusetts-zero-carbon-renovation-fund) to email your legislator today!\
+\
 
 ---
 
