@@ -36,8 +36,7 @@ The Zero Carbon Renovation Fund bill has now been filed by Senator Adam Gomez an
 
 Please urge your legislators to urge them to co-sponsor the Zero Carbon Renovation Fund (ZCRF) and share with your networks as well.
 
-Use this [simple form](https://actionnetwork.org/letters/300-million-for-the-massachusetts-zero-carbon-renovation-fund) to email your legislator today!\
-\
+Use this [simple form](https://actionnetwork.org/letters/300-million-for-the-massachusetts-zero-carbon-renovation-fund) to email your legislator today!
 
 ---
 
