@@ -32,11 +32,11 @@ Spark vital conversations with help from the [The New York Times Climate Hub](ht
 
 ### Take Climate Action!
 
-The Zero Carbon Renovation Fund bill has now been filed by Senator Adam Gomez and Representative Andy Vargas. The full text of the Senate legislation (SD.500) can be found[here](https://malegislature.gov/Bills/193/SD500). The full text of the House legislation (**HD.776) **can be found [here](https://malegislature.gov/Bills/193/HD776).
+The Zero Carbon Renovation Fund bill has now been filed by Senator Adam Gomez and Representative Andy Vargas. The full text of the Senate legislation (**SD.500**) can be found [here](https://malegislature.gov/Bills/193/SD500){:target="_blank"}. The full text of the House legislation (**HD.776**) can be found [here](https://malegislature.gov/Bills/193/HD776){:target="_blank"}.
 
 Please urge your legislators to urge them to co-sponsor the Zero Carbon Renovation Fund (ZCRF) and share with your networks as well.
 
-Use this [simple form](https://actionnetwork.org/letters/300-million-for-the-massachusetts-zero-carbon-renovation-fund) to email your legislator today!
+Use this [simple form](https://actionnetwork.org/letters/300-million-for-the-massachusetts-zero-carbon-renovation-fund){:target="_blank"} to email your legislator today!
 
 ---
 
