@@ -64,3 +64,5 @@ Please submit any news items by Mondays, 4p at the latest to:  *newsletter@indiv
 [Indivisible Westford](https://indivisiblewestford.org){:target="_blank"} 
 
 [Minuteman Indivisible](https://www.minutemanindivisible.org){:target="_blank"}
+
+[Progressive Mass](https://www.progressivemass.com){:target="_blank"}
