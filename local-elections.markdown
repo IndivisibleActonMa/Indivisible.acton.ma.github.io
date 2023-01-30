@@ -59,7 +59,8 @@ It's local election season! Check your town websites for the dates of your local
 * Harvard: [https://www.harvard-ma.gov/town-clerk](https://www.harvard-ma.gov/town-clerk){:target="_blank"}
 * Littleton: [https://www.littletonma.org/elections-and-voter-information/pages/elections-2023](https://www.littletonma.org/elections-and-voter-information/pages/elections-2023){:target="_blank"}
 * Maynard: [https://www.townofmaynard-ma.gov/170/Elections](https://www.townofmaynard-ma.gov/170/Elections){:target="_blank"}
-* Stow: [https://www.stow-ma.gov/town-meeting-election-information](https://www.stow-ma.gov/town-meeting-election-information){:target="_blank"}
+* Stow: [https://www.stow-ma.gov/town-meeting-election-information](https://www.stow-ma.gov/town-meeting-election-information){:target="_blank"}  
+* Sudbury: [https://sudbury.ma.us/clerk/2022/12/07/2020-election-schedule/](https://sudbury.ma.us/clerk/2022/12/07/2020-election-schedule/){:target="_blank"}  
 
 **Think about running for office!**
 
