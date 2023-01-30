@@ -12,6 +12,8 @@ layout: page
 
 [Join the Indivisible Acton-Area Facebook Group](https://www.facebook.com/groups/indivisibleacton){:target="_blank"} to find out about events, share ideas and news, and connect with other Indivisible members.  
 
+[Join Indivisible Mass Coalition](https://docs.google.com/forms/d/e/1FAIpQLSfNOW4m1ClV1wjX7IGer-0svn9nxJPZ5spHQdqs-HcNU8pUeQ/viewform){:target="_blank"}  
+
 ***NEW : Please see our [Meeting Guidelines Regarding COVID-19](https://docs.google.com/document/d/1DSwMiE1I9syvJv1nP2i_8ihsBGCG6TDnPMcMSNtrry4/view){:target="_blank"}***. 
 
 Please see our [Social Media Policy for the Primaries](https://docs.google.com/document/d/1k-N7qZ5fBR2wRGOcRI8ZJxQGbO5CfsXbZlZSKHm4N18/){:target="_blank"}. 
