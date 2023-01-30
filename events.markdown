@@ -20,11 +20,11 @@ We are so excited to have **Jonathan Cohn**, Policy Director of [Progressive Mas
 **When:**  Wednesday, Feb 22, 6:45-8:45p  
 **Where:** Reuben Hoar Library, Littleton or via Zoom. 
 **Hosts:** Indivisible Acton Area and [Indivisible Lab](https://indivisiblelab.org){:target="_blank"}  
-**CoSponsors:** Billerica, Bolton, Harvard, Lincoln, Littleton, Shirley, Stow DTC's  
+**CoSponsors:** Billerica, Bolton, Harvard, Lincoln, Littleton, Shirley, Stow DTCs  
 
 Register [HERE](bit.ly/TAFFeb22){:target="_blank"}.
 
-### What's the plan?
+### What's the plan?  
 
 * **[Read the 2023 Indivisible Guide.](https://act.indivisible.org/go/655413?t=7&akid=85665%2E480654%2EAAlPmM){:target="_blank"}** Catch up on where we stand, explore our game plan for the current Congress, and find out how to get involved. Our wins over the last six years have been because we were coordinated, energized, and informed; let’s make sure we go into 2023 with that same foundation in place to fuel more wins.
 
