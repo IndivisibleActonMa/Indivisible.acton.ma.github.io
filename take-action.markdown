@@ -20,7 +20,7 @@ Welcome to 2023!
 
 * Follow [Dr. Tami Gouveia](https://tamigouveia.substack.com){:target="_blank"} for [insights and inspiration to keep fighting](https://tamigouveia.substack.com/p/reflections-on-january-6th){:target="_blank"} for our #democracy.
 
-* **Take Action to Protect #democracy** right here in MA and [write to Speaker Mariano and his committee](https://actionnetwork.org/letters/take-action-to-protect-democracy-in-ma){:target="_blank"} and ask them to seat the 2nd Essex and 1st Middlesex Representatives-elect without further delay. Read more about it [here](https://www.bostonglobe.com/2023/01/03/metro/mass-house-leaders-say-theyll-delay-swearing-two-democrats-review-legal-issues-raised-by-gop-opponents/){:target="_blank"}.
+* **Take Action to Protect #democracy** right here in MA! You can take action [HERE](https://docs.google.com/document/d/1ZAUPCxH26-wkgMjrbU7LSvfiJhxw3QLYT6spjyphgho/edit?link_id=1&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-hop-into-the-new-year&email_referrer=email_1798877&email_subject=__the-rules-matter__){:target="_blank"}.  
 
 ---
 
