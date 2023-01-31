@@ -1,10 +1,17 @@
 ---
 title: 'Tending the Flame of #democracy'
-date: 2023-01-26 12:12:00 -05:00
+date: 2023-01-31 00:12:00 -05:00
 is featured: true
 ---
 
-Jan 24, 2023
+**Jan 31, 2023**  
+
+As our newsletter Editor-in-Chief Christine writes, **"Before we start the Massachusetts Legislature's two year cycle to pass bills, the rules are voted on.  You've seen how essential McCarthy's rules have been to disrupt democracy in the US House, and Beacon Hill is no different."**
+
+[Act On Mass](https://actonmass.org){:target="_blank"} tells it like it is 
+[HERE](https://docs.google.com/document/d/1ZAUPCxH26-wkgMjrbU7LSvfiJhxw3QLYT6spjyphgho/edit?link_id=1&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-hop-into-the-new-year&email_referrer=email_1798877&email_subject=__the-rules-matter__){:target="_blank"}.  
+
+**Jan 24, 2023**
 
 **Thank you for your letters and phone calls!** Last Wednesday, Margaret Scarsdale was sworn in as the duly elected representative to the 1st Middlesex after the unanimous committee report was adopted by the House. This means that her district, without representation since last February, will now have a voice, including being able to file legislation.
 
