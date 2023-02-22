@@ -4,6 +4,12 @@ date: 2023-02-21 00:12:00 -05:00
 is featured: true
 ---
 
+**Feb 22, 2023**
+
+***PLEASE NOTE: Due to the impending inclement weather, we will only be meeting in Zoom for tonight's Take Action Forum.***  
+
+Register [HERE](bit.ly/TAFFeb22){:target="_blank"}.   
+
 **Feb 21, 2023**
 
 Hope that you can join us and co-host [Indivisible Lab](https://indivisiblelab.org){:target="_blank"} for our first Take Action Forum of 2023!  We will be meeting in-person at the Reuben Hoar Library in Littleton and via Zoom **Feb 22, Wednesday, 6:45p**. 
