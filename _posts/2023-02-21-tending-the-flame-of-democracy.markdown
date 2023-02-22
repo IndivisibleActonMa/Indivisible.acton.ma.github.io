@@ -6,7 +6,7 @@ is featured: true
 
 **Feb 21, 2023**
 
-Join us and our co-host [Indivisible Lab](https://indivisiblelab.org){:target="_blank"} for our first Take Action Forum of 2023!  We will be meeting in-person at the Reuben Hoar Library in Littleton and via Zoom Feb 22, Wednesday, 6:45p. 
+Hope that you can join us and co-host [Indivisible Lab](https://indivisiblelab.org){:target="_blank"} for our first Take Action Forum of 2023!  We will be meeting in-person at the Reuben Hoar Library in Littleton and via Zoom **Feb 22, Wednesday, 6:45p**. 
 
 Jonathan Cohn, Policy Director of [Progressive Mass](https://www.progressivemass.com){:target="_blank"} is our featured speaker!
 
