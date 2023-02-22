@@ -1,8 +1,17 @@
 ---
 title: 'Tending the Flame of #democracy'
-date: 2023-01-31 00:12:00 -05:00
+date: 2023-02-21 00:12:00 -05:00
 is featured: true
 ---
+
+**Feb 21, 2023**
+
+Join us and our co-host [Indivisible Lab](https://indivisiblelab.org){:target="_blank"} for our first Take Action Forum of 2023!  We will be meeting in-person at the Reuben Hoar Library in Littleton and via Zoom Feb 22, Wednesday, 6:45p. 
+
+Jonathan Cohn, Policy Director of [Progressive Mass](https://www.progressivemass.com){:target="_blank"} is our featured speaker!
+
+Register [HERE](bit.ly/TAFFeb22){:target="_blank"}. 
+
 
 **Jan 31, 2023**  
 
