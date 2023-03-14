@@ -1,6 +1,7 @@
 ---
 title: Tyre Nichols should still be alive.
 date: 2023-01-27 18:44:00 -05:00
+published: false
 is featured: true
 ---
 
