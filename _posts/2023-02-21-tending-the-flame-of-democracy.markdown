@@ -4,7 +4,7 @@ date: 2023-02-21 00:12:00 -05:00
 is featured: true
 ---
 
-**SAVE THE DATE : Wednesday, April 26 **
+\*\*SAVE THE DATE :  Wednesday, April 26\*\*
 
 **TAKE ACTION FORUM**
 7-8:30p on Zoom, featuring guest speakers from [Our Climate](https://ourclimate.us){:target="_blank"}.
