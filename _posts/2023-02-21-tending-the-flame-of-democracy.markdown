@@ -4,27 +4,31 @@ date: 2023-02-21 00:12:00 -05:00
 is featured: true
 ---
 
+**SAVE THE DATE : Wednesday, April 26 **
+
+**TAKE ACTION FORUM**
+7-8:30p on Zoom, featuring guest speakers from [Our Climate](https://ourclimate.us){:target="_blank"}.
+
 **Feb 22, 2023**
 
-***PLEASE NOTE: Due to the impending inclement weather, we will only be meeting in Zoom for tonight's Take Action Forum.***  
+***PLEASE NOTE: Due to the impending inclement weather, we will only be meeting in Zoom for tonight's Take Action Forum.***
 
-Register [HERE](bit.ly/TAFFeb22){:target="_blank"}.   
+Register [HERE](bit.ly/TAFFeb22){:target="_blank"}.
 
 **Feb 21, 2023**
 
-Hope that you can join us and co-host [Indivisible Lab](https://indivisiblelab.org){:target="_blank"} for our first Take Action Forum of 2023!  We will be meeting in-person at the Reuben Hoar Library in Littleton and via Zoom **Feb 22, Wednesday, 6:45p**. 
+Hope that you can join us and co-host [Indivisible Lab](https://indivisiblelab.org){:target="_blank"} for our first Take Action Forum of 2023!  We will be meeting in-person at the Reuben Hoar Library in Littleton and via Zoom **Feb 22, Wednesday, 6:45p**.
 
 Jonathan Cohn, Policy Director of [Progressive Mass](https://www.progressivemass.com){:target="_blank"} is our featured speaker!
 
-Register [HERE](bit.ly/TAFFeb22){:target="_blank"}. 
+Register [HERE](bit.ly/TAFFeb22){:target="_blank"}.
 
-
-**Jan 31, 2023**  
+**Jan 31, 2023**
 
 As our newsletter Editor-in-Chief Christine writes, **"Before we start the Massachusetts Legislature's two year cycle to pass bills, the rules are voted on.  You've seen how essential McCarthy's rules have been to disrupt democracy in the US House, and Beacon Hill is no different."**
 
-[Act On Mass](https://actonmass.org){:target="_blank"} tells it like it is 
-[HERE](https://docs.google.com/document/d/1ZAUPCxH26-wkgMjrbU7LSvfiJhxw3QLYT6spjyphgho/edit?link_id=1&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-hop-into-the-new-year&email_referrer=email_1798877&email_subject=__the-rules-matter__){:target="_blank"}.  
+[Act On Mass](https://actonmass.org){:target="_blank"} tells it like it is
+[HERE](https://docs.google.com/document/d/1ZAUPCxH26-wkgMjrbU7LSvfiJhxw3QLYT6spjyphgho/edit?link_id=1&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-hop-into-the-new-year&email_referrer=email_1798877&email_subject=__the-rules-matter__){:target="_blank"}.
 
 **Jan 24, 2023**
 
@@ -46,7 +50,7 @@ As our newsletter Editor-in-Chief Christine writes, **"Before we start the Massa
 
 **Write a Letter To The Editor**
 
-Massachusetts House Speaker Ronald Mariano dealt a serious blow to the democratic process in the Commonwealth when he decided to form a [Special Committee to Examine the Returns](https://www.bostonglobe.com/2023/01/03/metro/mass-house-leaders-say-theyll-delay-swearing-two-democrats-review-legal-issues-raised-by-gop-opponents/?p1=BGSearch_Overlay_Results&p1=Article_Inline_Text_Link) in the victories of state Representatives-elect Kristen Kassner and Margaret Scarsdale ([“Mariano’s move in 2 close races roils Democrats,”](https://www.bostonglobe.com/2023/01/11/metro/no-election-is-safe-amid-rise-election-deniers-house-decision-delay-democrats-swearing-in-touches-nerve-party/?p1=Article_Inline_Text_Link){:target="_blank"} Page A1, Jan. 12). 
+Massachusetts House Speaker Ronald Mariano dealt a serious blow to the democratic process in the Commonwealth when he decided to form a [Special Committee to Examine the Returns](https://www.bostonglobe.com/2023/01/03/metro/mass-house-leaders-say-theyll-delay-swearing-two-democrats-review-legal-issues-raised-by-gop-opponents/?p1=BGSearch_Overlay_Results&p1=Article_Inline_Text_Link) in the victories of state Representatives-elect Kristen Kassner and Margaret Scarsdale ([“Mariano’s move in 2 close races roils Democrats,”](https://www.bostonglobe.com/2023/01/11/metro/no-election-is-safe-amid-rise-election-deniers-house-decision-delay-democrats-swearing-in-touches-nerve-party/?p1=Article_Inline_Text_Link){:target="_blank"} Page A1, Jan. 12).
 
 Mariano and other House leadership would be well advised to heed the defense by the towns of Ipswich, Georgetown, and Rowley and Secretary of the Commonwealth William Galvin in the case brought by Republican incumbent Lenny Mirra to overturn Democrat Kassner’s one-vote victory — a challenge that has already been rejected by the trial and appellate courts.
 
