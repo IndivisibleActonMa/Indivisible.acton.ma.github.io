@@ -1,7 +1,6 @@
 ---
 title: April Take Action Forum
 date: 2023-04-26 18:45:00 -04:00
-published: false
 is featured: true
 event-start-date: 2023-04-26 18:45:00 -04:00
 event-end-date: 2022-04-26 20:45:00 -04:00
@@ -17,3 +16,5 @@ We are excited to meet Sara Karp and Eben Bein from Our Climate to discuss the l
 [IndivisibleLAB](https://indivisiblelab.org){:target="_blank"} will talk about banning Rodenticide.
 
 We'll bring it home with how to make a difference in your own yard!
+
+![unnamed (2).png](/uploads/unnamed%20(2).png)
