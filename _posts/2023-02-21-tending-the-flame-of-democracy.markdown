@@ -4,6 +4,12 @@ date: 2023-02-21 00:12:00 -05:00
 is featured: true
 ---
 
+**April 18, 2023**
+Frustrated by the national news? Remember MAGA is causing that sh*tstorm on purpose to distract us from taking action where we can make a difference.     
+
+Use your energy to boost the causes you love! Want to plan ahead?  Check out our calendar and find many more actions on [www.TurnPurple2Blue.org](www.TurnPurple2Blue.org){:target="_blank"}, a project of Indivisible Acton Area.
+
+
 **SAVE THE DATE :  Wednesday, April 26**
 
 **TAKE ACTION FORUM**
