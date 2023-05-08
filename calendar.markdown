@@ -7,8 +7,8 @@ embed-code: '<iframe src="https://calendar.google.com/calendar/embed?src=indivis
 layout: calendar
 ---
 
-
 Click [HERE](http://www.indivisibleacton.org/events.html) for more events of interest.
 
-Click [HERE](https://indivisible-ma.org/calendar/){:target="_blank"} for the Indivisible Mass Coalition calendar.
+Click [HERE](https://indivisible-ma.org/calendar/){:target="_blank"} for the Indivisible Mass Coalition calendar. 
+
 ---
