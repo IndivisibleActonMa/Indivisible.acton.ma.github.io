@@ -4,6 +4,14 @@ date: 2023-02-21 00:12:00 -05:00
 is featured: true
 ---
 
+**May 17, 2023**
+
+Want to know what we can do about about the Republican Default Crisis? About the state of our #democracy at home and across the country? Please check out all the actions you can take at [turnpurple2blue.org](https://turnpurple2blue.org){:target="_blank"}.  
+
+We can use social media to broaden our reach and support the causes (#democracy!) that we are fighting for. Please follow us on [Instagram](https://www.instagram.com/indactonma/){:target="_blank"} and [Twitter](https://twitter.com/IndActonMa){:target="_blank"}. 
+
+
+
 **April 18, 2023**  
 
 Frustrated by the national news? Remember MAGA is causing that sh*tstorm on purpose to distract us from taking action where we can make a difference.     
