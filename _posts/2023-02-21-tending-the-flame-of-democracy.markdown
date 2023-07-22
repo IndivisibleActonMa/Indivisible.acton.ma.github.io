@@ -4,6 +4,15 @@ date: 2023-02-21 00:12:00 -05:00
 is featured: true
 ---
 
+**Jul 22, 2023**
+
+As Heather Cox Richardson writes in her [July 21 Letters from an American](https://open.substack.com/pub/heathercoxrichardson/p/july-21-2023-friday?utm_campaign=post&utm_medium=web){:target="_blank"}: 
+
+*"Democracy is based on the rule of law. Undermining the rule of law destroys the central feature of democracy and replaces that system of government with something else."*  
+
+**There is no time to waste. We need to commit to #democracy, now more than ever. [WE NEED TO SHOW UP NOW](https://turnpurple2blue.org/2023/06/26/doing-the-work/){:target="_blank"}.**  
+
+
 **May 17, 2023**
 
 Want to know what we can do about about the Republican Default Crisis? About the state of our #democracy at home and across the country? Please check out all the actions you can take at [turnpurple2blue.org](https://turnpurple2blue.org){:target="_blank"}.  
