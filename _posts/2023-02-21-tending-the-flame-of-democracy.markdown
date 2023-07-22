@@ -12,6 +12,8 @@ As Heather Cox Richardson writes in her [July 21 Letters from an American](https
 
 **There is no time to waste. We need to commit to #democracy, now more than ever. [WE NEED TO SHOW UP NOW](https://turnpurple2blue.org/2023/06/26/doing-the-work/){:target="_blank"}.**  
 
+Find out how you can take action at: [turnpurple2blue.org](https://turnpurple2blue.org){:target="_blank"}.  
+
 
 **May 17, 2023**
 
