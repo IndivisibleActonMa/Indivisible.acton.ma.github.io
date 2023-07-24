@@ -13,16 +13,8 @@ date: 2023-01-29 08:43:00 -05:00
 
 ### MEETING THE MOMENT: TAKING ACTION TO KEEP OUR DEMOCRACY
 
-### Join our February Take Action Forum!
+[https://turnpurple2blue.org](https://turnpurple2blue.org) is your permanent location for all our actions! **Bookmark it today!** 
 
-We are so excited to have **Jonathan Cohn**, Policy Director of [Progressive Mass](https://www.progressivemass.com){:target="_blank"} as our featured speaker!
-
-**When:**  Wednesday, Feb 22, 6:45-8:45p  
-**Where:** Reuben Hoar Library, Littleton or via Zoom. 
-**Hosts:** Indivisible Acton Area and [Indivisible Lab](https://indivisiblelab.org){:target="_blank"}  
-**CoSponsors:** Billerica, Bolton, Harvard, Lincoln, Littleton, Shirley, Stow DTCs  
-
-Register [HERE](bit.ly/TAFFeb22){:target="_blank"}.
 
 ### What's the plan?  
 
