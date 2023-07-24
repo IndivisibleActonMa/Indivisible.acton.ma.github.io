@@ -1,6 +1,6 @@
 ---
 title: Take Action!
-date: 2023-07-24 11:04:00 -04:00
+date: 2023-07-24 08:04:00 -04:00
 is featured: true
 RSVP-link: https://t.co/4IeH2x61ab
 ---
