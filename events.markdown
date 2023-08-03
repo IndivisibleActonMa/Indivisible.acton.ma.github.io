@@ -24,14 +24,6 @@ date: 2023-01-29 08:43:00 -05:00
 
 * **[Donate $20 to Indivisible today!](https://act.indivisible.org/go/655414?t=9&akid=85665%2E480654%2EAAlPmM){:target="_blank"}** That is one dollar for each MAGA extremist holding our government hostage. Donate today to ensure that we can continue to be of service to the movement bringing activists together and sharing expertise to achieve victories.
 
-### Weekly events!
-
-*Please note - We are changing over our event sign up system.  Please note - even if you were registered under the old system for future meetings, you will need to register again in the new system.  **IF** your Zoom meeting link brings you to a registration page, please register again, then check your email for the meeting link.*
-
----
-
-**Tuesday 1-2p: Touch Base Tuesdays** Let’s get together to update/review/share/plan news and actions people can take to win in 2021 and beyond. Some of the brainstorming ideas discussed here turn into take action activities for the Indivisible Acton Area. [Register HERE](https://us02web.zoom.us/meeting/register/tZIof-mupjIjGNUax2DyHh4LT5EZZJ2I1SyX){:target="_blank"}.
-
 ---
 
 ### Other ways to find out what's going on

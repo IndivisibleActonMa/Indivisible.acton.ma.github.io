@@ -18,9 +18,7 @@ Welcome to 2023!
 
 * Please check out our [sister website http://turnpurple2blue.org/](http://turnpurple2blue.org/){:target="_blank"} to find out what you can do to ***tend the flame of democracy***!
 
-* Follow [Dr. Tami Gouveia](https://tamigouveia.substack.com){:target="_blank"} for [insights and inspiration to keep fighting](https://tamigouveia.substack.com/p/reflections-on-january-6th){:target="_blank"} for our #democracy.
-
-* **Take Action to Protect #democracy** right here in MA! You can take action [HERE](https://docs.google.com/document/d/1ZAUPCxH26-wkgMjrbU7LSvfiJhxw3QLYT6spjyphgho/edit?link_id=1&can_id=5b37021dbc0c923fe37b06811eb9fbb5&source=email-hop-into-the-new-year&email_referrer=email_1798877&email_subject=__the-rules-matter__){:target="_blank"}.  
+* **Take Action to Protect #democracy** right here in MA! You can take action [HERE](https://actonmass.org/blog){:target="_blank"}.  
 
 ---
 
