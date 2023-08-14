@@ -4,6 +4,24 @@ date: 2023-02-21 00:12:00 -05:00
 is featured: true
 ---
 
+**Aug 14, 2023**
+
+Governor Healey has signed the budget. Read more about it [HERE](https://www.wbur.org/news/2023/08/09/fy-2024-massachusetts-state-budget){:target="_blank"}.
+
+What's going on in the MA legislature?
+
+Check out [this curated a list of priority bills](https://turnpurple2blue.org/priority-bills/){:target="_blank"} for the 2023-2024 MA Legislative Session based on the Progressive Mass and Act On Mass lists of priority bills.
+
+You can filter this list by sponsor, policy area, and/or endorsing organization. You can search this list!
+
+You can see where legislators in our area stand on these bills.
+
+Click on the "+" icon by the bill name, and you will get more information like the bill's co-sponsor, endorsing organization, fact sheets, and status of the bill (eg - in committee) and/or *action you can take*.
+
+Click [HERE](https://turnpurple2blue.org/priority-bills/){:target="_blank"} to see the list of Priority Bills 2023 – 2024.
+
+
+
 **Jul 22, 2023**
 
 As Heather Cox Richardson writes in her [July 21 Letters from an American](https://open.substack.com/pub/heathercoxrichardson/p/july-21-2023-friday?utm_campaign=post&utm_medium=web){:target="_blank"}: 
