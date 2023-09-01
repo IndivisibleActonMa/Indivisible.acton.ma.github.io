@@ -4,6 +4,14 @@ date: 2023-02-21 00:12:00 -05:00
 is featured: true
 ---
 
+**Aug 31, 2023**
+
+It's the last day of August... school has started in many places, and you might be thinking you need to dive back in and tend to our #democracy! You've come to the right place!
+
+We have so many ways for you to get involved - from postcards, to phone banking to canvassing and more. Our [Turn Purple 2 Blue](https://turnpurple2blue.org){:target="_blank"} team has done all the hard work in curating actions that will help where it's needed most. Please visit [turnpurple2blue.org](https://turnpurple2blue.org){:target="_blank"} and find out how YOU can take action!
+
+Stop by and visit us at the Acton Boxborough's Farmers Market every Sunday, 10a-1p. We have postcards you can write and information about things going on here in the Commonwealth.  
+
 **Aug 14, 2023**
 
 Governor Healey has signed the budget. Read more about it [HERE](https://www.wbur.org/news/2023/08/09/fy-2024-massachusetts-state-budget){:target="_blank"}.
