@@ -18,6 +18,8 @@ date: 2023-01-29 08:43:00 -05:00
 
 ### What's the plan?  
 
+* **Read David Pepper's Book Saving Democracy](https://savedemocracy.us){:target="_blank"}** and explore all the ways you can lift #democracy!  
+
 * **[Read the 2023 Indivisible Guide.](https://act.indivisible.org/go/655413?t=7&akid=85665%2E480654%2EAAlPmM){:target="_blank"}** Catch up on where we stand, explore our game plan for the current Congress, and find out how to get involved. Our wins over the last six years have been because we were coordinated, energized, and informed; let’s make sure we go into 2023 with that same foundation in place to fuel more wins.
 
 * **[Watch the recording of the Deep Dive on the New Guide: Our 2023 Indivisible Guide Launch Call from Thursday, January 26](https://www.youtube.com/watch?v=3ZFLMdfgJAY){:target="_blank"}**
