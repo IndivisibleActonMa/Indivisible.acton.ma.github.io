@@ -4,6 +4,17 @@ date: 2023-02-21 00:12:00 -05:00
 is featured: true
 ---
 
+**Sep 4, 2023**
+
+**[Take the 14-Month Challenge]( https://turnpurple2blue.org/2023/08/31/practicing-david-peppers-saving-democracy-conversations/){:target="_blank"}**
+
+"In the next 14 months ... take your activism one step further.  It’s small conversations- planting little seeds.  You’ll be talking to people you know:  family, neighbors, dog walkers, Uber drivers, anyone you interact with.  We’ll share some messaging ideas -but remember you are leading with your values and experiences."  
+
+Follow along on [Turn Purple 2 Blue](https://turnpurple2blue.org/){:target="_blank"}.
+
+Let's make a difference!  
+
+
 **Aug 31, 2023**
 
 It's the last day of August... school has started in many places, and you might be thinking you need to dive back in and tend to our #democracy! You've come to the right place!
