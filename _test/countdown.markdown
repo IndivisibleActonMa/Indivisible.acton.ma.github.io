@@ -45,7 +45,7 @@ var x = setInterval(function() {
   // If the count down is over, write some text 
   if (t < 0) {
     clearInterval(x);
-    document.getElementById("demo").innerHTML = "EXPIRED";
+    document.getElementById("demo").innerHTML = "The biggest threat to our democracy is indifference.";
   }
 },500);
 </script>
