@@ -48,7 +48,11 @@ var x = setInterval(function() {
 
 REMEMBER - #democracy is a verb.
 
-[https://turnpurple2blue.org](https://turnpurple2blue.org) is your permanent location for **TAKING ACTION**! ***Bookmark it today!***
+What's at stake in this election? What is important to you - the climate crisis to abortion rights, the economy, foreign policy... What's your strategy? 
+
+Make a Personal Action Plan to Win!  
+
+#Pro-Tip: [https://turnpurple2blue.org](https://turnpurple2blue.org) is your permanent location for **TAKING ACTION**! ***Bookmark it today!***
 
 ### Think Local
 
