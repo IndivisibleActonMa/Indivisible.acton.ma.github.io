@@ -31,8 +31,8 @@ var seconds = Math.floor((t % (1000 \* 60)) / 1000);
 var test1 = document.getElementById("demo");
 test1.style.font = "italic bold 30px arial,serif";
 //test1.style.textAlign = "center";
-//test1.innerHTML = days \+ " days left until Nov 8, 2022!";
-test1.innerHTML = days \+ "d " \+ hours \+ "h " \+ minutes \+ "m " \+ seconds \+ "s left until 12p Nov 8, 2022!";
+//test1.innerHTML = days \+ " days left until Nov 5, 2024!";
+test1.innerHTML = days \+ "d " \+ hours \+ "h " \+ minutes \+ "m " \+ seconds \+ "s left until 12p Nov 5, 2024!";
 
 // If the count down is over, write some text
 if (t < 0) {
@@ -46,7 +46,9 @@ document.getElementById("demo").innerHTML = "The biggest threat to our democracy
 
 ## Elections/Voting
 
-REMEMBER - There are NO off years! #democracy is a verb.
+REMEMBER - #democracy is a verb.
+
+[https://turnpurple2blue.org](https://turnpurple2blue.org) is your permanent location for **TAKING ACTION**! **Bookmark it today!**
 
 ### Think Local
 
