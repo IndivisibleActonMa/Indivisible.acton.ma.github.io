@@ -16,3 +16,4 @@ Please bring a side dish OR dessert to share.
 
 Rain or shine, there is a covered pavilion! We have the whole pavilion so plenty of room to spread out.
 
+Click [HERE](https://turnpurple2blue.org/2024/04/26/celebrate-our-activist-community/) for more info.
