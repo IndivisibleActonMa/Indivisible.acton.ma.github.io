@@ -1,6 +1,6 @@
 ---
-title: Celebrate our Activist Community!
-date: 2024-05-02 12:48:00 -04:00
+title: Celebrate Our Activist Community!
+date: 2024-05-09 12:48:00 -04:00
 is featured: true
 event-start-date: 2024-05-19 16:00:00 -04:00
 event-end-date: 2024-05-19 18:00:00 -04:00
