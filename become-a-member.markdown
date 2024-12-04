@@ -1,13 +1,13 @@
 ---
 title: Get our newsletter!
-date: 2017-02-16 22:58:00 -05:00
+date: 2024-12-10 10:58:00 -05:00
 position: 5
 layout: page
 ---
 
 ## Get involved!
 
-You can sign up to get our awesome bi-weekly newsletter! We welcome your input and involvement! Participate in the ways that feel right for you.  
+You can sign up to get our awesome weekly newsletter! We welcome your input and involvement! Participate in the ways that feel right for you.  
 
 *We will not share your contact info or send you too many messages. You can unsubscribe any time you want.*  
 
