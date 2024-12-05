@@ -1,6 +1,7 @@
 ---
 title: We Fight On, Together
 date: 2024-12-04 19:26:00 -05:00
+is featured: true
 ---
 
 Not gonna lie. It’s going to suck. But we can and we will fight back!
