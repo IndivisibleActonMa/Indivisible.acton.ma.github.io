@@ -8,7 +8,7 @@ Not gonna lie. It’s going to suck. But we can and we will fight back!
 
 Check out [Indivisible's Guide to Democracy on the Brink](https://turnpurple2blue.org/2024/12/01/indivisible-a-practical-guide-to-democracy-on-the-brink/).
 
-Some actions you can take NOW:
+Some actions you can take **NOW**:
 
 **Tell Beacon Hill: It’s Time to Come Back!**
 
