@@ -1,6 +1,6 @@
 ---
 title: We Fight On, Together!
-date: 2024-07-21 13:59:00 -04:00
+date: 2024-12-10 13:59:00 -05:00
 is featured: true
 ---
 
