@@ -68,11 +68,11 @@ Pick up your nomination papers today and start your journey towards making a pos
 
 ### MA Legislature
 
-Jan 1, 2025  : Convening of 2025-2026 General Court.  
+**Jan 1, 2025**  : Convening of 2025-2026 General Court.  
 
-Jan 17, 2025 : Bill filing deadline.  
+**Jan 17, 2025** : Bill filing deadline.  
 
-Jan 22, 2025 : Governor's FY26 budget due.    
+**Jan 22, 2025** : Governor's FY26 budget due.    
 
 ### National and Federal work
 
