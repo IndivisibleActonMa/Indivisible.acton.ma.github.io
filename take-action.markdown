@@ -14,11 +14,13 @@ layout: page
 
 <span style="font-family:Papyrus; font-size:1em; color:blue;">Hope will never be silent. - Harvey Milk</span>
 
-Welcome to 2023!
+Get ready for 2025!  
 
-* Please check out our [sister website http://turnpurple2blue.org/](http://turnpurple2blue.org/){:target="_blank"} to find out what you can do to ***tend the flame of democracy***!
+What a year it has been. Thank you to everyone for all their hard work!!! Hope you will have a chance to take a break and recharge.
 
-* **Take Action to Protect #democracy** right here in MA! You can take action [HERE](https://actonmass.org/blog){:target="_blank"}.  
+Keep an eye on our [sister website http://turnpurple2blue.org/](http://turnpurple2blue.org/){:target="_blank"} to find out what you can do to ***tend the flame of democracy***!
+
+Sign up for [our newsletter](https://actionnetwork.org/forms/join-indivisible-acton?source=direct_link&referrer=group-indivisible-acton){:target="_blank"} so you don't miss anything.
 
 ---
 
