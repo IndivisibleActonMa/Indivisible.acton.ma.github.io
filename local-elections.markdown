@@ -68,6 +68,8 @@ Pick up your nomination papers today and start your journey towards making a pos
 
 ### MA Legislature
 
+Some important dates for the 2025-2026 legislative session.  
+
 **Jan 1, 2025**  : Convening of 2025-2026 General Court.  
 
 **Jan 17, 2025** : Bill filing deadline.  
