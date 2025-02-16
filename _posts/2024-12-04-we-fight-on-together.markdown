@@ -10,6 +10,7 @@ Check out [Indivisible's Guide to Democracy on the Brink](https://turnpurple2blu
 
 Some actions you can take **NOW**:
 
+* [Stop the Coup](https://indivisible.org/coup)
 * [Take Action Now with indivisible](https://indivisible.org/take-action-now)
 * [Make your voice heard.](https://5calls.org/)
 
